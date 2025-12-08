@@ -91,20 +91,11 @@
 
 -------------------------  
 
-> **Should** someone manage to gain access to your privte keys, they have your bitcoins.  
-
-California’s latest gold rush. The high gold price is **luring** **prospectors** to the mountains.  
-
 **flag as a verb**: **droop**, sink, or settle from or as if from pressure or loss of **tautness**  
-Google has pierced Nvidia’s **aura** of invulnerability.  
-What has **webbed feet**, a big **snout** and is adored on the internet? The **capybara** has a far better reputation than its fellow **rodents**.  
 
-America has dumped a messy, **sordid** “peace plan” on Ukraine.  
-How do you replace a CEO like Tim Cook or Warren Buffett? Some shoes seem just **too big to fill**.  
-**Vineyards** are disappearing in France. As wine-drinking slows, farmers are **uprooting** vines.  
+> **Should** someone manage to gain access to your private keys, they have your bitcoins.  
 
 Futures open interest is **unwinding** steadily, funding rates are neutral, and leverage across major assets has faded.  
-
 **vilify** savings and **deifying** consumption.  
 
 Every year, she hosts a big gathering of family, friends, and **a smattering of** my dad's students and mentees who don't have local family to visit **for the occasion**.  
@@ -113,12 +104,9 @@ Every year, she hosts a big gathering of family, friends, and **a smattering of*
 
 If your App looks like it was **cobbled together** in a few days, or you're trying to get your first practice App into the store to impress your friends, please **brace** yourself for rejection.  
 If I’m just unaware of **blatant** **rip-offs** running wild in the App Store, send examples my way.  
-
 **unsubstantiated** claims from French law enforcement.  
 He's a kid, our **unsub** is a kid.  
-
 **Blinds and antes** increase over time, forcing players to make decisions under growing pressure, and the prize pool is split among the top percentage of finishers, not just the final winner.   
-
 You want to pave a **golden road** behind your enemy to allow them to retreat.  
 Kennedy has **backchanneled** a plan to remove some American missiles from Turkey that he had already known to be **obsolete**.   
 
@@ -136,7 +124,6 @@ During that time I was diagnosed with **anticipatory** anxiety disorder.
 I can’t be everything to everyone. I kind of **made peace** with it years ago.  
 “How is it that you are advising me? Have you already advised yourself? Have you got yourself **straightened out**?”  
 
-
 > "Panties" is a more specific term for various styles of female underwear, such as briefs, **thongs**, and **bikinis**. "Underwear" is a general term that **encompasses** all **undergarments** for all genders.  
 > The suffix "-ies" likely served as a **diminutive**, turning "pants" into a new, specific term for women's version.  
 > Usage: While both terms are correct, "panties" allows for more specific conversation about women's underwear, just as "briefs" or "boxers" are used to describe specific styles of men's underwear.  
@@ -145,11 +132,8 @@ It's **composite**, like plastic. -
 Bitcoin’s Academic **Pedigree**.  
 
 law of **diminishing marginal returns**  
-
 This "silent **reshaping**" approach allows BOC to experiment without public **fanfare**, focusing on interoperability with other blockchains and legacy systems.  
-
 **grand slam home run**  
-
 And within this script, which is now your new **harpoon**. I'm gonna teach each and everyone of you to be **Captain Ahab**.  
 **tooth fairy**.  
 Why would they? Look at you? A bunch of **sleazy** salesmen, right?  

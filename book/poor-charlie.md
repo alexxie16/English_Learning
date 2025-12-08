@@ -1,5 +1,5 @@
 
-## Before Talk
+## Before Talk  
 
 Charlie was just in a hurry, and the **customary pleasantries** of the classroom were of little concern to him.  
 
@@ -76,7 +76,7 @@ his carefully identified **circles of competence**.
 
 > To stay within these circles, he first applies a basic, overall screen, designed to limit his investment field to only “simple, understandable candidates.” As he says, “We have three baskets for investing: yes, no, and too tough to understand.”  
 
-> It’s kind of fun to sit there and **outthink** people who are way smarter than you are because you’ve trained yourself to be more objective and more multidisciplinary. Furthermore, there is a lot of money in it, as I can testify from my own personal experience.  
+> It’s kind of fun to sit there and **outthink** people who are way smarter than you are because you've trained yourself to be more objective and more multidisciplinary. Furthermore, there is a lot of money in it, as I can testify from my own personal experience.  
 
 
 ### Talk 1  
@@ -91,7 +91,6 @@ For those of you who want to remain unenlightened and **mirthless**, do not, und
 But whatever the topic, Charlie is **apt** to tell it like it is, which is exactly what he has done in over two decades of public speaking.  
 Now that Headmaster Berrisford has selected one of the oldest and longest-serving trustees to make a **commencement speech**, **it behooves** the speaker to address two questions in every mind.   
 
-Benjamin Disraeli,78 as he rose to become one of the greatest prime ministers, learned to give up **vengeance** as a motivation for action, but he did retain some **outlet** for resentment by putting the names of people who wronged him on pieces of paper in a drawer.  
 
 > Then, from time to time, he reviewed these names and took pleasure in noting the way the world had taken his enemies down without his assistance.  
 
@@ -100,8 +99,8 @@ once the richest king in the world. Later, in **ignominious** captivity, as he p
 My second prescription for misery is to learn everything you possibly can from your own experience, minimizing what you learn **vicariously** from the good and bad experiences of others, living and dead. This prescription is a sure-shot producer of misery and second-rate achievement.  
 How little **originality** there is in the common disasters of mankind: drunk driving deaths, reckless driving **maimings**, **incurable** **venereal** diseases.   
 The other aspect of avoiding **vicarious wisdom** is the rule of not learning from the best work done before yours.   
-Because there is so much adversity out there, even for the lucky and wise, this will guarantee that, **in due course**, you will be permanently mired in misery.  
-If my experience is any guide, the rustic’s approach is to be avoided at all cost by someone **bent on** misery.  
+Because there is so much adversity out there, even for the lucky and wise, this will guarantee that, **in due course**, you will be permanently **mired** in misery.  
+If my experience is any guide, the **rustic**’s approach is to be avoided at all cost by someone **bent on** misery.  
 
 > as Carson and was known for his constant repetition of one phrase: “Invert, always invert.”  
 
@@ -135,95 +134,92 @@ They tried everything—moral **suasion**, threats, you name it.
 
 > Getting the incentive right is a very very important lesson.  
 
-He also had a concept that management would often **couch** the information very shrewdly to mislead. Therefore, it was very difficult. And that is still true, of course, human nature being what it is.  
+He also had a concept that management would often **couch** the information very **shrewdly** to mislead. Therefore, it was very difficult. And that is still true, of course, human nature being what it is.  
 
 
-### Talk 3 
+### Talk 3   
 It can’t be emphasized too much that issues of morality are deeply **entwined** with worldly wisdom considerations involving psychology.  
 
 > It’s very, very important to create human systems that are hard to cheat. Otherwise, you’re ruining your civilization, because these big incentives will create incentive-caused bias and people will rationalize that bad behavior is okay  
 
-> The reason we’re not in high-tech businesses is that we have a special lack of aptitude in that area. And yes—a low-tech business can be plenty hard. Just try to open a restaurant and make it succeed.
+> The reason we’re not in high-tech businesses is that we have a special lack of aptitude in that area. And yes—a low-tech business can be plenty hard. Just try to open a restaurant and make it succeed.  
 
 Disney is an amazing example of **autocatalysis**. They had all those movies in the can.  
 They owned the copyright. And just as Coke could **prosper** when refrigeration came, when the **videocassette** was invented, Disney didn't have to invent anything or do anything except take the thing out of the can and stick it on the **cassette**.  
 
 > On the other hand, in copying Jack Welch, I am trying to teach you something. When you don’t know and you don’t have any special competence, don’t be afraid to say so.  
 
-> But I’m always asked this question: “Spoon-feed me what you know.” And, of course, what they’re often saying is “Teach me how to get rich with soft white hands faster. And not only let me get rich faster, but teach me faster, too.”
+> But I’m always asked this question: “Spoon-feed me what you know.” And, of course, what they’re often saying is “Teach me how to get rich with soft white hands faster. And not only let me get rich faster, but teach me faster, too.”  
 
 But it’s a **screaming** opportunity for somebody. I’d provide funds to support the writing of an appropriate book if I found someone with the wisdom and the will to do the job right.  
 
 
-## Talk 4 
+## Talk 4   
 
-> You will also suffer from the reality **evoked** by the Shavian character who said, “In the last analysis, every profession is a conspiracy against the laity.  
+> You will also suffer from the reality **evoked** by the Shavian character who said, “In the last analysis, every profession is a conspiracy against the **laity**.  
 
-> The dollar, like the Roman drachma,214 will almost surely suffer monetary depreciation. Concurrently, real purchasing power of the average beverage consumer in the world will go way up. His proclivity to inexpensively improve his experience while ingesting water will go up considerably faster
+> The dollar, like the Roman drachma,214 will almost surely suffer monetary depreciation. Concurrently, real purchasing power of the average beverage consumer in the world will go way up. His proclivity to inexpensively improve his experience while ingesting water will go up considerably faster  
 
 **pavlovian conditioning**.  
 We will make a big **hoopla** over our secrecy, which will enhance Pavlovian effects.  
 Eventually, food chemical engineering will advance so that our flavor can be copied with near **exactitude**.  
 And if I am right in these two ways, this would indicate that our civilization now keeps in place a great many educators who can’t satisfactorily explain Coca-Cola, even in retrospect, and even after watching it closely all their lives. This is not a satisfactory **state of affairs**.  
 
-> In short, academic psychology departments are immensely more important and useful than other academic departments think. And at the same time, the psychology departments are immensely worse than most of their inhabitants think.
+> In short, academic psychology departments are immensely more important and useful than other academic departments think. And at the same time, the psychology departments are immensely worse than most of their inhabitants think.  
 
-> Indeed, a problem of this sort may have given you your speaker today. But the size of this psychology department gap is preposterously large
+> Indeed, a problem of this sort may have given you your speaker today. But the size of this psychology department gap is preposterously large  
 
 If, in many high places, a universal product as successful as Coca-Cola is not properly understood and explained, it can’t **bode** well for our competency in dealing with much else that is important.  
 
 If academia and business functioned with best practicable results, most **denizens** would be able to explain the success of the Coca-Cola Company through **parsimonious** use of basic concepts and problem-solving techniques.   
 
-This was logically **sound**. But if psychological ignorance is widespread, why would most of my hearers recognize that my version of psychology was correct?
+This was logically **sound**. But if psychological ignorance is widespread, why would most of my hearers recognize that my version of psychology was correct?  
 
 And this was not the **outer limit** of my teaching **folly**.  
 
-### Talk 5 
-Having ranted in the previous speech about all that is wrong in academia, Charlie **holds forth** here on the solutions.
+### Talk 5   
+Having ranted in the previous speech about all that is wrong in academia, Charlie **holds forth** here on the solutions.  
 After months of imprisonment, he was condemned for **heresy**, strangled to death, and publicly **cremated**.  
 But Shaw **plainly** understates the problem in implying that a conscious, **self-interested** **malevolence** is the main culprit.   
 
 Even in our youth, some of the best professors were horrified by bad effects from the **balkanization** of academia into **insular**, turf-protecting **enclaves**, wherein notions were maintained by leaps of faith plus exclusion of nonbelievers.  
 
 one of whom kept explaining Berkshire Hathaway’s investing success by adding **standard deviations** of luck until, at six standard deviations, he encountered enough **derision** to force a change in explanation.   
-business **periodicals**, like the Wall Street Journal, Forbes, Fortune . 
+business **periodicals**, like the Wall Street Journal, Forbes, Fortune .   
 
-> “There is an old two-part rule that often works wonders in business, science, and elsewhere: 1) Take a simple, basic idea and 2) take it very seriously.”
+> “There is an old two-part rule that often works wonders in business, science, and elsewhere: 1) Take a simple, basic idea and 2) take it very seriously.”  
 
 I came to Harvard Law School very poorly educated, with **desultory** work habits and no college degree.  
 What I found, in my extended attempts to complete by informal means my stunted education, was that, plugging along with only ordinary will but with the fundamental organizing ethos as my guide, my ability to serve everything I loved was enhanced far beyond my **deserts**.  
-while everything I have said is **non-original** and has long been obvious to the point of **banality** to many sound and well-educated minds, all the evils I **decry** remain grossly **over-present** in the best of our soft-science educational domains . 
+while everything I have said is **non-original** and has long been obvious to the point of **banality** to many sound and well-educated minds, all the evils I **decry** remain grossly **over-present** in the best of our soft-science educational domains .   
 
 To me, this ridiculous outcome implies that the soft-science departments tolerate **perverse incentives**.  
 
-> truth is hard to assimilate in any mind when opposed by interest.
+> truth is hard to assimilate in any mind when opposed by interest.  
 
-### Talk 6 
+### Talk 6   
 In the talk, he attacks the accepted and practiced **orthodoxy** of his audience with sharp humor, though always without **malice**.  
 Charlie has a deep and **abiding** belief in philanthropy, as is demonstrated by his own generous giving, and he seeks here to save the **philanthropic** community from itself.  
 If Charlie can emerge from that state successfully, he seems to be saying, so can the **wayward** foundation managers in his audience.  
 
-There is one thing sure about all this complexity, including its touches of behavior lacking the full **punctilio** of honor. -
+There is one thing sure about all this complexity, including its touches of behavior lacking the full **punctilio** of honor. -  
 easily reach 3 percent of foundation net worth per **annum**  
 
-> And people who are successfully selling something, as investment counselors do, make Swedish drivers sound like depressives. Virtually every investment expert’s public assessment is that he is above average, no matter what the evidence to the contrary.
+> And people who are successfully selling something, as investment counselors do, make Swedish drivers sound like depressives. Virtually every investment expert’s public assessment is that he is above average, no matter what the evidence to the contrary.  
 
 This leaves for extensive discussion only foundation choice 2, more imitation of the investment practices of Berkshire Hathaway in maintaining marketable equity portfolios with virtually zero **turnover** and with only a very few stocks chosen.  
 
-### Talk 7 Breakfast Meeting of the Philanthropy Roundtable
+### Talk 7 Breakfast Meeting of the Philanthropy Roundtable  
 
-> First, spending proclivity is influenced in an upward direction when stock prices go up, and in a downward direction when stock prices go down. Second, the proclivity to spend is terribly important in macroeconomics.
+> First, spending proclivity is influenced in an upward direction when stock prices go up, and in a downward direction when stock prices go down. Second, the proclivity to spend is terribly important in macroeconomics.  
 
+Then, asset values crashed, and the Japanese economy **stalled out** at a very suboptimal level.  
 
-Then, asset values crashed, and the Japanese economy stalled out at a very suboptimal level.
+This Japanese experience is a disturbing example for everyone, and if something like it happened here, it would leave shrunken **charitable** foundations feeling **clobbered** by fate.  
 
-This Japanese experience is a disturbing example for everyone, and if something like it happened here, it would leave shrunken charitable foundations feeling clobbered by fate.
+But Galbraith did not push his insight on. He was content to stop with being a stimulating **gadfly**.  
 
-But Galbraith did not push his insight on. He was content to stop with being a stimulating gadfly.  
-
-After all, the Scottish enthusiastically accepted the idea of preordained, unfixable infant damnation. But the rest of us don’t like Galbraith’s insight.  
-
-
+After all, the Scottish enthusiastically accepted the idea of **preordained**, unfixable infant damnation. But the rest of us don’t like Galbraith’s insight.  
 
 
 

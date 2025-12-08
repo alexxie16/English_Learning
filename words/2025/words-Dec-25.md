@@ -15,6 +15,8 @@
 
 ### Words with Questions  
 
+cretin  
+
 pyretic  
 
 bonhomie  
@@ -53,20 +55,55 @@ nitrite
 
 ## Special Words  
 
+**sloppy**  
+
+**autograph**  
+
 **advocate, advocacy**.   
 
 ## Verb Words  
+
+**derail**  
+
+**usurp**  
 
 **crystalize**  
 
 **morph**  
 
--------------------------  
+**pander, pamper**  
 
-bitkey.world multisig wallet from Square   
+-------------------------  
 
 ### Week 49  
 
+Did she **usurp** his place in his mother's heart?  
+
+So while the evidence for “making you smarter” is shaky, the evidence that binaural beats (especially slower frequencies) help with relaxation, **sleep onset**, and nap refreshment is quite solid and matches exactly what you’re experiencing.  
+
+> A "canary in the coal mine" refers to an early warning sign or indicator of impending danger, derived from the historical practice of bringing caged canaries into coal mines because their greater sensitivity to toxic gases.  
+
+They would **succumb** before the miners, giving them time to escape.  
+
+Benjamin Disraeli,78 as he rose to become one of the greatest prime ministers, learned to give up **vengeance** as a motivation for action, but he did retain some **outlet** for resentment by putting the names of people who wronged him on pieces of paper in a drawer.  
+
+**strife, feud, quarrel, bicker, rowdy**.  
+**skirmish, altercate, brawl, showdown, clash, duel**,   
+
+### Lughead | Omeleto   
+
+She talks down to me, she **calls me names**.  
+Why did you get into this **line of work**.  
+There are **nerve agents** in the black market, not quite like what you see Russians using in the news, but they're quick and effective.  
+Do I **strike you as being** unreliable?  
+When you wife hired me to kill you, I did have my **reservations**.  
+**in your defense**, she doesn't sound like a total bitch.  
+**remarkably uncreative**.  
+
+They think they're so **slick** messing with us, but they don't know that we know that they know.  
+Basketball shoes can be used **in a pinch** for casual skating, but they compromise durability, board feel, and technical performance.  
+Lots of people are ready to **throw in the towel**.  
+I have that very **evolved** kind of academic stupidity.  
 
 The world is a mere **succession** of fortunes made and lost, lessons learned and forgotten and learned again.  
 How did Marcus Aurelius, the philosopher king, **give way to** Commodus?   
@@ -90,13 +127,32 @@ That's pretty **steep**.
 Pablo's **amour-propre** must have been tested by his short **stature**.  
 It was **incumbent on** him to say something.  
 
-
 You can tell from my **stature** I played a lot of basketball.  
 It can take 5 days to play but still end up **in a draw**.  
 Would've broken the model, **to the upside**.  
 
 
 ### Economist Newsletter  
+
+Donald Trump’s **bleak**, incoherent foreign-policy strategy. Allies may panic; **despots** will cheer.  
+America is now the biggest market for international football. Europeans may **scoff**, but it’s all about the soccer.  
+In Europe worries about America’s **flakiness** under Donald Trump are **giving way to** a bigger fear.  
+Enough **dithering**. Europe must pay to save Ukraine. America will not. Europe’s security depends on agreeing how to.  
+Why Iran is making surprising **overtures** to America. Its **clerical** regime appears to be adapting to survive.  
+AI is **upending** the porn industry. Synthetic **smut** will soon be flooding the internet, bringing new opportunities and perils.  
+How Pepsi **trounced** Coca Cola in the Middle East.  
+Why investors are increasingly **fatalistic**. The mood in stockmarkets has shifted from bullish to fatalistic.  
+Mortgage lending in America is **seizing up**. How to revive it.  
+Economists get **cold feet** about high minimum wages.  
+
+California’s latest gold rush. The high gold price is **luring** **prospectors** to the mountains.  
+
+Google has pierced Nvidia’s **aura** of invulnerability.  
+What has **webbed feet**, a big **snout** and is adored on the internet? The **capybara** has a far better reputation than its fellow **rodents**.  
+America has dumped a messy, **sordid** “peace plan” on Ukraine.  
+How do you replace a CEO like Tim Cook or Warren Buffett? Some shoes seem just **too big to fill**.  
+**Vineyards** are disappearing in France. As wine-drinking slows, farmers are **uprooting** vines.  
+
 
 Vladimir Putin has no plan for winning in Ukraine. Fighting will continue, but a **reckoning** is coming.  
 Beware the **scorching** gold rally  
