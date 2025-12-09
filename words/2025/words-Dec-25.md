@@ -15,6 +15,8 @@
 
 ### Words with Questions  
 
+covet  
+
 cretin  
 
 pyretic  
@@ -55,6 +57,8 @@ nitrite
 
 ## Special Words  
 
+ingrained, inveterate.  
+
 **sloppy**  
 
 **autograph**  
@@ -75,6 +79,11 @@ nitrite
 
 -------------------------  
 
+Fed, in **subordination** to the Treasure.   
+His attendance record was **spotty**.  
+**fire hydrant**.  
+
+
 ### Week 49  
 
 Did she **usurp** his place in his mother's heart?  
@@ -87,8 +96,6 @@ They would **succumb** before the miners, giving them time to escape.
 
 Benjamin Disraeli,78 as he rose to become one of the greatest prime ministers, learned to give up **vengeance** as a motivation for action, but he did retain some **outlet** for resentment by putting the names of people who wronged him on pieces of paper in a drawer.  
 
-**strife, feud, quarrel, bicker, rowdy**.  
-**skirmish, altercate, brawl, showdown, clash, duel**,   
 
 ### Lughead | Omeleto   
 
@@ -99,6 +106,8 @@ Do I **strike you as being** unreliable?
 When you wife hired me to kill you, I did have my **reservations**.  
 **in your defense**, she doesn't sound like a total bitch.  
 **remarkably uncreative**.  
+
+----------------------  
 
 They think they're so **slick** messing with us, but they don't know that we know that they know.  
 Basketball shoes can be used **in a pinch** for casual skating, but they compromise durability, board feel, and technical performance.  
@@ -111,16 +120,14 @@ How did Marcus Aurelius, the philosopher king, **give way to** Commodus?
 This program will be taught and mentored by ₿OSS contributors that have **stood in your shoes**.  
 The journey to becoming a full-time ₿OSS contributor is long, **winding**, and different for everybody.  
 
-Coming from a sheltered background, I was **blind to** the obvious warnings.  
+Coming from a **sheltered** background, I was **blind to** the obvious warnings.  
 The **puzzle piece** fit was immediate, as immediate as **either of us had ever experienced**.   
 
 **On the shaft**.  
 Often appear **singly** or in small clusters.  
-
 You and dad married for love, but you two are always **bickering**.  
 
 For too long, US been **pushing back against** this industry.   
-
 **burn the candle at both ends**  
 
 That's pretty **steep**.  
@@ -129,10 +136,12 @@ It was **incumbent on** him to say something.
 
 You can tell from my **stature** I played a lot of basketball.  
 It can take 5 days to play but still end up **in a draw**.  
-Would've broken the model, **to the upside**.  
-
+Would've broken the model. - **to the upside**.  
 
 ### Economist Newsletter  
+It’s widely assumed that Valery Zaluzhny, who was **sacked** as commander of Ukraine’s armed forces early in 2024, is eager to become president himself.  
+Observed in the wild: office snackers and **foragers**. From the snack cupboard to the coffee machine.  
+America is foolishly waving goodbye to thousands of Chinese **boffins**. -  
 
 Donald Trump’s **bleak**, incoherent foreign-policy strategy. Allies may panic; **despots** will cheer.  
 America is now the biggest market for international football. Europeans may **scoff**, but it’s all about the soccer.  
@@ -181,6 +190,17 @@ Here are the words I need help with:
 
 ## Words Gallery  
 
+**strife, feud, quarrel, bicker, rowdy**.  
+**skirmish, altercate, brawl, showdown, clash, duel**,   
+
+**hale and hearty, frail, senile**,   
+huff and puff.  
+covet, covetous, coveted, sought-after, enviable.  
+
+**nook and cranny, crevice, crack**,   
+**slum, ghetto**,   
+**phenom, wunderkind, prodigy, gifted**,   
+
 **upend, topple, overturn, oust, dethrone, dismantle**,   
 **delineate, delineation, characterization, contours, clear-cut**.  
 
@@ -188,9 +208,32 @@ Here are the words I need help with:
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
+They think they're so **slick** messing with us, but they don't know that we know that they know.  
+I have that very **evolved** kind of academic stupidity.  
+That's pretty **steep**.  
+
+You can tell from my **stature** I played a lot of basketball.  
+It can take 5 days to play but still end up **in a draw**.  
+Would've broken the model, **to the upside**.  
 
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
+
+
+Did she **usurp** his place in his mother's heart?  
+They would **succumb** before the miners, giving them time to escape.  
+
+The world is a mere **succession** of fortunes made and lost, lessons learned and forgotten and learned again.  
+
+This program will be taught and mentored by ₿OSS contributors that have **stood in your shoes**.  
+The **puzzle piece** fit was immediate, as immediate as **either of us had ever experienced**.   
+
+For too long, US been **pushing back against** this industry.   
+**burn the candle at both ends**  
+
+Pablo's **amour-propre** must have been tested by his short **stature**.  
+It was **incumbent on** him to say something.  
+
 
 
