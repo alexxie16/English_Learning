@@ -1,3 +1,7 @@
+## poor-charlie.md ##  
+book/poor-charlie.md  
+There is one thing sure about all this complexity, including its touches of behavior lacking the full **punctilio** of honor. -  
+
 ## words-Nov-25.md ##  
 words/2025/words-Nov-25.md  
 It's **composite**, like plastic. -  

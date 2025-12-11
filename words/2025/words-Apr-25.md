@@ -59,7 +59,7 @@ Fees and **interdictions** by law enforcement reduce the overall take, but North
 the country is **desperately** poor  
 
 He is **apt** to get angry over **trifles**.  
-Congress is **inert**, but a **deft** Supreme Court might contain him. -  
+Congress is **inert**, but a **deft** Supreme Court might contain him.   
 Donald Trump’s **antics** mean new boldness is needed in UK-EU links.  
 Taiwan **flogs** America drones “not made in China”.  
 The **Mauritius** miracle is losing its **sheen**.  

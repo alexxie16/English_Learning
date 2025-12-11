@@ -158,7 +158,7 @@ A good man does everything in his power to **better** his family's **position**,
 Does that **amuse** you?  
 
 Betting on horses is a **mug's game**-nobody ever wins in the long term.   
-November hasn't brought any **respite** so far as BTC trades only a little above $104,000. -    
+November hasn't brought any **respite** so far as BTC trades only a little above $104,000.   
 He arrives at 8am, leaves at 8pm, and when I asked what he actually did in those twelve hours, he couldn't point to a single **tangible** thing.  
 
 The structures remain. The offices still **gleam**. The meetings still happen. The emails still flow. But the faith that this activity means something, that it's building towards something worthwhile, that it justifies the life hours it consumes, that faith is evaporating.  
