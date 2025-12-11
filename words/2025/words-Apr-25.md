@@ -123,7 +123,7 @@ Brian took a **swig** of his beer.
 **concubine**.  
 
 Music festivals are typically a great excuse for **revellers** to enjoy a bit of drunken **debauchery**.   
-The next issue is that reviewing is generally dull and **vapid**. -  
+The next issue is that reviewing is generally dull and **vapid**.   
 And you can **bestow** love upon things.  
 He is a **fervid** **orator**.  
 

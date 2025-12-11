@@ -151,7 +151,7 @@ The trees are vibrant and **swish** in the gentle breeze.
 
 Dump the **slurry** into the trash (or toilet only if your pipes are good — coffee grounds are usually not recommended for drains).  
 
-There is a lot of **tacit knowledge** in operating a ship that never shows up in documentation. -    
+There is a lot of **tacit knowledge** in operating a ship that never shows up in documentation.   
 Gen 1 felt **gimmicky** so I skipped it. Gen 2 is different. Eight hours of battery. A case that extends it.  
 
 A good man does everything in his power to **better** his family's **position**, regardless of his own selfish desires.   
@@ -274,12 +274,12 @@ Using all manner of dirty tricks to **subvert** demands for change expressed at 
 How long can this go on? With most of Europe **mired in** economic **malaise** and political **turmoil**, a tipping point may soon be reached in Brussels.  
 Let’s tour the Old Continent, highlight the hot spots, and ponder the odds that sweeping political change will **unravel** the current regime.  
 
-A new EU sanctions package being worked on, the 19th since the war started, includes Europe **weaning itself off** what little energy it still imports from Russia. -    
+A new EU sanctions package being worked on, the 19th since the war started, includes Europe **weaning itself off** what little energy it still imports from Russia.   
 But using its frozen assets to both punish the Kremlin and help Ukraine at the same time, if it can be done legally, would be **hunky dory**.  
 
 The industrialisation was **stillborn**, and the collectivisation of farming caused one of the biggest **famines** ever recorded.  
 the Four Pests campaign was taken up with **zeal**.  
-These days the birds are once again a **common sight** **flitting** around both the cities and the countryside. -     
+These days the birds are once again a **common sight** **flitting** around both the cities and the countryside.   
 
 Could Donald Trump become president again in 2028? There is a legal case for a third term—but it is **strewn with** obstacles.  
 Why China is winning the trade war. It has **rebuffed** America and rewritten the norms of global commerce.  
@@ -378,7 +378,7 @@ November hasn't brought any **respite** so far as BTC trades only a little above
 A good man does everything in his power to **better** his family's **position**, regardless of his own selfish desires.   
 Does that **amuse** you?  
 
-We could hear the **swish** and **gurgle** of water against the **hull**. -  
+We could hear the **swish** and **gurgle** of water against the **hull**.  
 
 Men who use **steroids** are motivated by **sheer vanity**.  
 

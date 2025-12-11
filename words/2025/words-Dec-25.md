@@ -79,6 +79,13 @@ ingrained, inveterate.
 
 -------------------------  
 
+**insipid, vapid, bland, dull**,   
+**bloviate, bloviating, bloated, obviate**.  
+**buffoon, boffin, bovine**   
+
+
+**Dismantling** **usury** through Bitcoin. -   
+
 Fed, in **subordination** to the Treasure.   
 His attendance record was **spotty**.  
 **fire hydrant**.  
