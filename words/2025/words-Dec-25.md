@@ -57,7 +57,11 @@ nitrite
 
 ## Special Words  
 
-ingrained, inveterate.  
+**empathetic**  
+
+**guardrails**  
+
+**ingrained, inveterate**.  
 
 **sloppy**  
 
@@ -78,6 +82,15 @@ ingrained, inveterate.
 **pander, pamper**  
 
 -------------------------  
+
+
+Nose, nostril, sinus, nasal, orifice,   
+
+ample, plenty, sufficient, copious, abundant, considerable, substantial.   
+
+A deviated septum happens when the thin wall between the nasal passages, called the nasal septum, is off to one side. The nasal septum being off-center, called deviated, makes one side of the inside of the nose smaller. A deviated septum can block one side of the nose. The reduced airflow can make it hard to breathe.  
+
+
 
 **insipid, vapid, bland, dull**,   
 **bloviate, bloviating, bloated, obviate**.  
