@@ -15,24 +15,6 @@
 
 ### Words with Questions  
 
-covet  
-
-cretin  
-
-pyretic  
-
-bonhomie  
-
-marquee  
-
-vapid  
-
-nappy  
-
-demur  
-
-calumny  
-
 seedy  
 
 fulminant  
@@ -83,26 +65,17 @@ nitrite
 
 -------------------------  
 
+Nearly two **millennia** later, **Goethe** made the prescription a little more specific and practical.  
 
-Nose, nostril, sinus, nasal, orifice,   
-
-ample, plenty, sufficient, copious, abundant, considerable, substantial.   
-
-A deviated septum happens when the thin wall between the nasal passages, called the nasal septum, is off to one side. The nasal septum being off-center, called deviated, makes one side of the inside of the nose smaller. A deviated septum can block one side of the nose. The reduced airflow can make it hard to breathe.  
+Marcus Aurelius says it’s madness to keep being the same person, “mauled and degraded” by a life that isn’t working—one that doesn’t give us what we want.  
 
 
-
-**insipid, vapid, bland, dull**,   
-**bloviate, bloviating, bloated, obviate**.  
-**buffoon, boffin, bovine**   
-
+A **deviated septum** happens when the thin wall between the **nasal passages**, called the **nasal septum**, is off to one side. The nasal septum being off-center, called deviated, makes one side of the inside of the nose smaller. A deviated septum can block one side of the nose. The reduced airflow can make it hard to breathe.  
 
 **Dismantling** **usury** through Bitcoin. -   
-
 Fed, in **subordination** to the Treasure.   
 His attendance record was **spotty**.  
 **fire hydrant**.  
-
 
 ### Week 49  
 
@@ -193,7 +166,7 @@ Which is India’s superstar state? We pit two **heavyweights** against each oth
 
 ## Words Explain   
 
-Can you help me understand the words below? Give me a break down of "Definition", "Common usage", one or two "Examples" and Alternatives, also make sure to mention if the word is commonly used in the "Common usage", thank you!  
+Can you help me understand the words below? Give me a break down of "Definition", "Common usage", one or two "Examples" and Alternative words, also make sure to mention if the word is commonly used in daily life, thank you!  
 
 An example like below for Somber:  
 
@@ -208,7 +181,88 @@ Here are the words I need help with:
 
 -----------------------  
 
+**Covet**  
+   - **Definition**: To desire something belonging to someone else intensely or improperly.  
+   - **Common Usage**: Fairly common when discussing envy or desire, especially in ethical or moral contexts.  
+   - **Examples**:  
+     - She coveted her neighbor’s luxurious car.  
+     - Many covet the lifestyle of the rich and famous.  
+   - **Alternatives**: Desire, envy, yearn for.  
+
+**Cretin**  
+   - **Definition**: Originally a medical term for a person with congenital hypothyroidism, it is now used as an insult to describe someone as being very stupid or foolish.  
+   - **Common Usage**: More common as an insult, considered derogatory and offensive, so should be used with caution.  
+   - **Examples**:  
+     - He acted like a complete cretin at the party.  
+   - **Alternatives**: Idiot, fool, imbecile. *(Note: All of these can also be offensive.)*  
+
+**Pyretic**  
+   - **Definition**: Relating to or producing fever.  
+   - **Common Usage**: Uncommon in everyday conversation, more likely to be used in medical or scientific contexts.  
+   - **Examples**:  
+     - The doctor noted pyretic symptoms in the patient.  
+   - **Alternatives**: Feverish, febrile.  
+
+**Bonhomie**  
+   - **Definition**: Cheerful friendliness; geniality.  
+   - **Common Usage**: Somewhat uncommon in daily conversation, used more in literary or formal contexts.  
+   - **Examples**:  
+     - The bonhomie of the host made everyone feel at ease.  
+     - There was a sense of bonhomie among the teammates.  
+   - **Alternatives**: Geniality, friendliness, amiability.  
+
+**Marquee**  
+   - **Definition**: A large outdoor tent for events; also a sign above a theater or venue displaying the name of the attraction.  
+   - **Common Usage**: Fairly common, especially when referring to event venues or theaters, and in entertainment or sports contexts to describe leading positions or status.  
+   - **Examples**:  
+     - The event was held under a large marquee in the garden.  
+     - His name was on the marquee for the main performance.  
+   - **Alternatives**: Awning, signboard, canopy (for outdoor structure).  
+
+**Vapid**  
+   - **Definition**: Lacking flavor, zest, interest, animation, or spirit; dull or boring.  
+   - **Common Usage**: Commonly used to describe something that is lifeless or uninteresting, whether in terms of conversation, content, or personality.  
+   - **Examples**:  
+     - The lecture was so vapid that several students fell asleep.  
+     - She found the novel too vapid to finish.  
+   - **Alternatives**: Insipid, dull, uninspiring.  
+
+**Nappy**  
+   - **Definition**: In British English, a "nappy" refers to a diaper. In American English, "nappy" can describe hair that is tightly coiled or curly.  
+   - **Common Usage**: In the UK, it's frequently used as the term for a baby's diaper; in the US, it may appear in discussions regarding hair textures.  
+   - **Examples**:  
+     - (UK) The baby needed a nappy change.  
+     - (US) She embraced her natural, nappy hair texture.  
+   - **Alternatives**: Diaper (in the US for babies), kinky (an alternative for tight curls, though context matters as terms can be sensitive).  
+
+**Demur**  
+   - **Definition**: To raise doubts or objections; to show reluctance.  
+   - **Common Usage**: Fairly common in legal or formal contexts; used to indicate polite disagreement or hesitation.  
+   - **Examples**:  
+     - When asked to join the project, she demurred, suggesting she wasn't sure about the commitment.  
+     - He accepted the offer without demur.  
+   - **Alternatives**: Object, hesitate, balk.  
+
+**Calumny**  
+   - **Definition**: The making of false and defamatory statements in order to damage someone's reputation; slander.  
+   - **Common Usage**: More common in legal, formal, or literary contexts; often used to describe unjust or damaging falsehoods.  
+   - **Examples**:  
+     - The politician was a victim of calumny during the election campaign.  
+     - Her reputation suffered due to the calumny spread by her rivals.  
+   - **Alternatives**: Slander, defamation, libel.  
+
+
 ## Words Gallery  
+
+**dispersion, diffusion, scattering, attenuation, propagation**.  
+
+**Nose, nostril, sinus, nasal, orifice**,   
+**ample, plenty, sufficient, copious, abundant, considerable, substantial**.   
+**insipid, vapid, bland, dull**,   
+**bloviate, bloviating, bloated, obviate**.  
+**buffoon, boffin, bovine**   
+
+**mast, stick, pole, rod, shaft, shank**.   
 
 **strife, feud, quarrel, bicker, rowdy**.  
 **skirmish, altercate, brawl, showdown, clash, duel**,   
@@ -240,6 +294,8 @@ Would've broken the model, **to the upside**.
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
 
+
+Fed, in **subordination** to the Treasure.   
 
 Did she **usurp** his place in his mother's heart?  
 They would **succumb** before the miners, giving them time to escape.  
