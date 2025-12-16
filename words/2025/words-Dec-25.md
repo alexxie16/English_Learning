@@ -39,6 +39,10 @@ nitrite
 
 ## Special Words  
 
+**unflagging**  
+
+**meaty**  
+
 **empathetic**  
 
 **guardrails**  
@@ -65,9 +69,35 @@ nitrite
 
 -------------------------  
 
+**blowback, pushback, backlash**   
+
+> Flag: A flag, by its nature, hangs from a pole and is subject to gravity and wind, causing it to droop or sag when the air is still.   
+
+
+### Suit   
+
+The **resemblance** is **uncanny**.  
+Believe me Luis, **the last thing** I want to do is sleep with your sister.  
+So you weren't meeting the governor, you're telling me you were really going to **blow off** the mayor.  
+It was a **throwaway** conversation we had 12 years ago on the way New Jersey.  
+They are going to put you **under oath** and ask you **point blank** if this happened.  
+That's **perjury** and I'm not going to let you do that.  
+Some **white knight** who never **crosses the line** to win?   
+
+> let him do his job   
+
+I was **taken aback** by his rudeness.   
+I was **taken aback** by what I saw.  
+
+### Week 50   
+
+> Our craft is the art of choosing the right compromises—those that maximize sovereignty, minimize trust, and preserve optionality for generations of builders to come.  
+
+The week acts as a **metronome** for creativity.  
+
 Nearly two **millennia** later, **Goethe** made the prescription a little more specific and practical.  
 
-Marcus Aurelius says it’s madness to keep being the same person, “mauled and degraded” by a life that isn’t working—one that doesn’t give us what we want.  
+Marcus Aurelius says it’s madness to keep being the same person, “**mauled and degraded**” by a life that isn't working—one that doesn't give us what we want.  
 
 
 A **deviated septum** happens when the thin wall between the **nasal passages**, called the **nasal septum**, is off to one side. The nasal septum being off-center, called deviated, makes one side of the inside of the nose smaller. A deviated septum can block one side of the nose. The reduced airflow can make it hard to breathe.  
