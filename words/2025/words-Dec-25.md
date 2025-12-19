@@ -107,22 +107,8 @@ nitrite
 ----------------------------  
 
 
-**blowback, pushback, backlash**   
-**whiff, puff, poof, gust**,   
-**sniff/snuff**  
-
-**falter, stumble, totter, wobble, tremble, reeling**,  
-**quiver, waver**   
-**Buckling, Teetering, lurching, on the brink/verge**  
-**hesitant, vacillating, wavering, dithering, indecisive**   
-
-**precarious, tenuous, shaky**,   
-
-**squeak, squeaky, screening**,   
-**Canon, canonize, lionize**.   
-
-**chaperon, debutante, belle, socialite, chauffeur**  
-
+Donald Trump looms over Vladimir Putin’s visit to India.  
+Shut up, or **suck up**? How CEOs are dealing with Donald Trump.  
 **Retreating** from EVs could be hazardous for Western carmakers.  
 
 
@@ -135,8 +121,6 @@ There are so many factors that lots of people **chalk it up** to just timing or 
 **Chalk it up** to his male intuition.  
 
 The **Scourge** of Arial.  
-
-
 He was **prostrated** by illness.  
 The last 50 years have been **stumbling**.  
 
