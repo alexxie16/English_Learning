@@ -15,6 +15,12 @@
 
 ### Words with Questions  
 
+gusto  
+
+klutz  
+
+asunder  
+
 seedy  
 
 fulminant  
@@ -38,6 +44,8 @@ nitrite
 **goad**  
 
 ## Special Words  
+
+**edge**  
 
 **unflagging**  
 
@@ -69,7 +77,75 @@ nitrite
 
 -------------------------  
 
+## Words Gallery  
+
+**dispersion, diffusion, scattering, attenuation, propagation**.  
+
+**Nose, nostril, sinus, nasal, orifice**,   
+**ample, plenty, sufficient, copious, abundant, considerable, substantial**.   
+**insipid, vapid, bland, dull**,   
+**bloviate, bloviating, bloated, obviate**.  
+**buffoon, boffin, bovine**   
+
+**mast, stick, pole, rod, shaft, shank**.   
+
+**strife, feud, quarrel, bicker, rowdy**.  
+**skirmish, altercate, brawl, showdown, clash, duel**,   
+
+**hale and hearty, frail, senile**,   
+**huff and puff**.  
+**covet, covetous, coveted, sought-after, enviable**.  
+
+**nook and cranny, crevice, crack**,   
+**slum, ghetto**,   
+**phenom, wunderkind, prodigy, gifted**,   
+
+**upend, topple, overturn, oust, dethrone, dismantle**,   
+**delineate, delineation, characterization, contours, clear-cut**.  
+
+
+----------------------------  
+
+
 **blowback, pushback, backlash**   
+**whiff, puff, poof, gust**,   
+**sniff/snuff**  
+
+**falter, stumble, totter, wobble, tremble, reeling**,  
+**quiver, waver**   
+**Buckling, Teetering, lurching, on the brink/verge**  
+**hesitant, vacillating, wavering, dithering, indecisive**   
+
+**precarious, tenuous, shaky**,   
+
+**squeak, squeaky, screening**,   
+**Canon, canonize, lionize**.   
+
+**chaperon, debutante, belle, socialite, chauffeur**  
+
+**Retreating** from EVs could be hazardous for Western carmakers.  
+
+
+Many bots and discretionary traders use ADX as a **regime** filter.  
+Bitcoin **wobbled** around $92K after the latest Fed meeting.  
+
+**Barring** some exceptional circumstances, the hashes for two different things should never be the same.  
+
+There are so many factors that lots of people **chalk it up** to just timing or luck.  
+**Chalk it up** to his male intuition.  
+
+The **Scourge** of Arial.  
+
+
+He was **prostrated** by illness.  
+The last 50 years have been **stumbling**.  
+
+Even though they want Russia more **prostrate** than Eastern Europe...   
+
+That's an **integral** part of the country.  
+Practice is an **integral** part of language learning.  
+Making it easier for those not deeply **versed** in ML to experiment with things like neural networks or gradient boosting within their trading logic.  
+
 
 > Flag: A flag, by its nature, hangs from a pole and is subject to gravity and wind, causing it to droop or sag when the air is still.   
 
@@ -280,33 +356,6 @@ Here are the words I need help with:
      - The politician was a victim of calumny during the election campaign.  
      - Her reputation suffered due to the calumny spread by her rivals.  
    - **Alternatives**: Slander, defamation, libel.  
-
-
-## Words Gallery  
-
-**dispersion, diffusion, scattering, attenuation, propagation**.  
-
-**Nose, nostril, sinus, nasal, orifice**,   
-**ample, plenty, sufficient, copious, abundant, considerable, substantial**.   
-**insipid, vapid, bland, dull**,   
-**bloviate, bloviating, bloated, obviate**.  
-**buffoon, boffin, bovine**   
-
-**mast, stick, pole, rod, shaft, shank**.   
-
-**strife, feud, quarrel, bicker, rowdy**.  
-**skirmish, altercate, brawl, showdown, clash, duel**,   
-
-**hale and hearty, frail, senile**,   
-huff and puff.  
-covet, covetous, coveted, sought-after, enviable.  
-
-**nook and cranny, crevice, crack**,   
-**slum, ghetto**,   
-**phenom, wunderkind, prodigy, gifted**,   
-
-**upend, topple, overturn, oust, dethrone, dismantle**,   
-**delineate, delineation, characterization, contours, clear-cut**.  
 
 
 ## Conversation  
