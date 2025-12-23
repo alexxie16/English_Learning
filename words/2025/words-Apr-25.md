@@ -55,7 +55,7 @@ North Korea’s **plunder** is the pay off from a decades-long effort.
 Talented maths students were put into special schools and given **reprieves** from mandatory annual countryside labour.   
 Says Thae Yong Ho, a senior North Korean diplomat who **defected** in 2016.  
 Originally **envisaged** as a tool for espionage and sabotage, North Korea’s cyber-forces began to focus on cybercrime in the mid-2010s.  
-Fees and **interdictions** by law enforcement reduce the overall take, but North Korea can expect to receive “definitely 80%, maybe 90%” of the funds it steals. -    
+Fees and **interdictions** by law enforcement reduce the overall take, but North Korea can expect to receive “definitely 80%, maybe 90%” of the funds it steals.   
 the country is **desperately** poor  
 
 He is **apt** to get angry over **trifles**.  

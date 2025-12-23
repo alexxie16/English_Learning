@@ -251,7 +251,7 @@ A path **strewn with** roses.
 In the Western world, the idea of not being productive is **sacrilege**. Productivity is society’s **gold standard** and it’s almost as if you’re not a good American if you’re not suffering at work.  
 
 There is growing public **disquiet** about the cost of such policing.  
-The White House has been **thwarted** so far in using the shutdown to extend its purge of the federal workforce. -    
+The White House has been **thwarted** so far in using the shutdown to extend its purge of the federal workforce.   
 These **fetish** videos are kind of goofy — I have to admit I even cracked up a little at the centaur one — but overall, it’s an **icky** and somewhat **menacing** feeling seeing a lot of them.  
 This choice betrays a deep conviction: no **dispersion**, no opportunism strategy. It’s not a diversification, it’s an **anchorage**.  
 
