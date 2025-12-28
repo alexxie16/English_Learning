@@ -31,5 +31,3 @@ The usual excuse for India’s **surfeit** of laws and rules is colonialism’s 
 words/2025/words-Jun-25.md  
 Each Bitcoin mined under its **aegis** comes at a **steep cost**. -  
 
-## words-Apr-25.md ##  
-words/2025/words-Apr-25.md  

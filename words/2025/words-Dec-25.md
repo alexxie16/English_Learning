@@ -15,6 +15,10 @@
 
 ### Words with Questions  
 
+prima facie  
+
+fraternize   
+
 gusto  
 
 klutz  
@@ -44,6 +48,10 @@ nitrite
 **goad**  
 
 ## Special Words  
+
+**intriguing**  
+
+**limbo**  
 
 **edge**  
 
@@ -79,6 +87,9 @@ nitrite
 
 ## Words Gallery  
 
+sacrilege, sacrosanct,   
+
+
 **dispersion, diffusion, scattering, attenuation, propagation**.  
 
 **Nose, nostril, sinus, nasal, orifice**,   
@@ -106,11 +117,24 @@ nitrite
 
 ----------------------------  
 
+reptile, riptide, crocodile,  
+pitcher, jug, kettle, canteen, flask,   
+
+exhort, exalt, exult, exultant, exorbitant,   
+prevaricate, equivocate, weasel, sneaky.  
+
+
+since the dawn of civilization--the story of the battle for Troy.  
+
+Her tattered clothes in no way detracted from her beauty.  
+
+
+> Both **vapid** and **insipid** mean dull, lacking spirit, or uninteresting, but insipid leans toward a lack of taste or flavor, while vapid emphasizes a lack of liveliness, force, or substance, often describing things that once had sparkle but lost it (like old champagne) or modern content lacking originality (like reality TV), though they overlap significantly, especially for personalities or ideas.   
+
 
 Donald Trump looms over Vladimir Putin’s visit to India.  
 Shut up, or **suck up**? How CEOs are dealing with Donald Trump.  
 **Retreating** from EVs could be hazardous for Western carmakers.  
-
 
 Many bots and discretionary traders use ADX as a **regime** filter.  
 Bitcoin **wobbled** around $92K after the latest Fed meeting.  
