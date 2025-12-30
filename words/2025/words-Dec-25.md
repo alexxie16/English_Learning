@@ -15,18 +15,6 @@
 
 ### Words with Questions  
 
-prima facie  
-
-fraternize   
-
-gusto  
-
-klutz  
-
-asunder  
-
-seedy  
-
 fulminant  
 
 comport  
@@ -48,6 +36,12 @@ nitrite
 **goad**  
 
 ## Special Words  
+
+**perishable**  
+
+**thorny**  
+
+**flashy**  
 
 **intriguing**  
 
@@ -88,7 +82,12 @@ nitrite
 ## Words Gallery  
 
 sacrilege, sacrosanct,   
+**reptile, riptide, crocodile**,  
+**pitcher, jug, kettle, canteen, flask**   
+exhort, exalt, exult, exultant, exorbitant,   
+**prevaricate, equivocate, weasel, sneaky**.  
 
+**hodgepodge, hedgehog, hedgerow**.  
 
 **dispersion, diffusion, scattering, attenuation, propagation**.  
 
@@ -117,22 +116,20 @@ sacrilege, sacrosanct,
 
 ----------------------------  
 
-reptile, riptide, crocodile,  
-pitcher, jug, kettle, canteen, flask,   
+**floor, low**   
 
-exhort, exalt, exult, exultant, exorbitant,   
-prevaricate, equivocate, weasel, sneaky.  
+klutz, pigheaded, schmuck, bozo,   
+
+Since the **dawn** of civilization--the story of the **battle for Troy**.  
+Her **tattered** clothes **in no way** detracted from her beauty.  
 
 
-since the dawn of civilization--the story of the battle for Troy.  
-
-Her tattered clothes in no way detracted from her beauty.  
-
+### Week 51  
 
 > Both **vapid** and **insipid** mean dull, lacking spirit, or uninteresting, but insipid leans toward a lack of taste or flavor, while vapid emphasizes a lack of liveliness, force, or substance, often describing things that once had sparkle but lost it (like old champagne) or modern content lacking originality (like reality TV), though they overlap significantly, especially for personalities or ideas.   
 
 
-Donald Trump looms over Vladimir Putin’s visit to India.  
+Donald Trump **looms** over Vladimir Putin’s visit to India.  
 Shut up, or **suck up**? How CEOs are dealing with Donald Trump.  
 **Retreating** from EVs could be hazardous for Western carmakers.  
 
@@ -154,8 +151,9 @@ That's an **integral** part of the country.
 Practice is an **integral** part of language learning.  
 Making it easier for those not deeply **versed** in ML to experiment with things like neural networks or gradient boosting within their trading logic.  
 
-
+His enthusiasm was in no way **flagging**.  
 > Flag: A flag, by its nature, hangs from a pole and is subject to gravity and wind, causing it to droop or sag when the air is still.   
+> Flagging comes from the verb to flag, and its core idea is losing strength or momentum, or drawing attention to something. The exact meaning depends on context.  
 
 
 ### Suit   
@@ -269,7 +267,6 @@ America has dumped a messy, **sordid** “peace plan” on Ukraine.
 How do you replace a CEO like Tim Cook or Warren Buffett? Some shoes seem just **too big to fill**.  
 **Vineyards** are disappearing in France. As wine-drinking slows, farmers are **uprooting** vines.  
 
-
 Vladimir Putin has no plan for winning in Ukraine. Fighting will continue, but a **reckoning** is coming.  
 Beware the **scorching** gold rally  
 Only one explanation for the surge makes sense. It will not **reassure** investors.  
@@ -294,6 +291,57 @@ An example like below for Somber:
 Here are the words I need help with:  
 
 -----------------------  
+
+**Prima Facie**  
+   - **Definition**: At first appearance; based on what seems to be true when first seen or heard, without further examination.   
+   - **Common Usage**: Used primarily in legal contexts to describe a case that is sufficient on its face until disproved by evidence.  
+   - **Examples**:  
+     - The evidence presented was prima facie enough to warrant a trial.  
+   - **Alternatives**: At first glance, apparent, self-evident.  
+   - **Common Usage Frequency**: Not commonly used in daily conversation, more prevalent in legal and formal discussions.  
+
+**Fraternize**  
+   - **Definition**: To associate or form a friendship with someone, especially when it is considered inappropriate or forbidden.  
+   - **Common Usage**: Often used in military or workplace contexts where forming certain relationships might be discouraged.  
+   - **Examples**:  
+     - The soldiers were warned not to fraternize with the local population.  
+   - **Alternatives**: Socialize, mingle, associate.  
+   - **Common Usage Frequency**: Moderately common, especially in contexts involving rules or hierarchical boundaries.  
+
+**Gusto**  
+   - **Definition**: Enjoyment or vigor in doing something; zest.  
+   - **Common Usage**: Commonly used to describe how someone approaches an activity with enthusiasm and lively energy.  
+   - **Examples**:  
+     - She danced with such gusto that everyone was inspired to join in.  
+   - **Alternatives**: Enthusiasm, zest, relish.  
+   - **Common Usage Frequency**: Fairly common in both written and spoken language to express enthusiasm.  
+
+**Klutz**  
+   - **Definition**: A clumsy person.  
+   - **Common Usage**: Informal and often used humorously to describe someone who is awkward or uncoordinated.  
+   - **Examples**:  
+     - I'm such a klutz; I tripped over my own feet again!  
+   - **Alternatives**: Clumsy person, bungler, stumblebum.  
+   - **Common Usage Frequency**: Commonly used in casual conversation to describe minor mishaps involving clumsiness.  
+
+**Asunder**  
+   - **Definition**: Apart; divided; into pieces.  
+   - **Common Usage**: Often used in literary contexts or formal speech to describe something that is torn or broken apart.  
+   - **Examples**:  
+     - The storm tore the tree asunder.  
+   - **Alternatives**: Apart, split, disunited.  
+   - **Common Usage Frequency**: Less common in everyday conversation, more frequently found in literary works or formal discourse.  
+
+**Seedy**  
+   - **Definition**: Run-down; shabby; disreputable; unwell.  
+   - **Common Usage**: Used to describe places or situations that appear run-down, or when someone looks unwell.  
+   - **Examples**:  
+     - The seedy motel made her feel uneasy.  
+     - He felt seedy after the long night out.  
+   - **Alternatives**: Shabby, dilapidated, unkempt.  
+   - **Common Usage Frequency**: Commonly used in casual conversation to describe disreputable or unwell appearances.  
+
+---------------------------  
 
 **Covet**  
    - **Definition**: To desire something belonging to someone else intensely or improperly.  
@@ -369,6 +417,7 @@ Here are the words I need help with:
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
+The **resemblance** is **uncanny**.  
 They think they're so **slick** messing with us, but they don't know that we know that they know.  
 I have that very **evolved** kind of academic stupidity.  
 That's pretty **steep**.  
@@ -381,6 +430,9 @@ Would've broken the model, **to the upside**.
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
 
+There are so many factors that lots of people **chalk it up** to just timing or luck.  
+The **Scourge** of Arial.  
+Practice is an **integral** part of language learning.  
 
 Fed, in **subordination** to the Treasure.   
 
