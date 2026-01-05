@@ -15,25 +15,6 @@
 
 ### Words with Questions  
 
-fulminant  
-
-comport  
-
-**aegis**  
-
-abrogate  
-
-hackneyed  
-
-nitrite  
-
-**venal**  
-
-**envisage**   
-
-**supercilious**  
-
-**goad**  
 
 ## Special Words  
 
@@ -66,6 +47,8 @@ nitrite
 **advocate, advocacy**.   
 
 ## Verb Words  
+
+**equate**  
 
 **derail**  
 
@@ -113,16 +96,7 @@ exhort, exalt, exult, exultant, exorbitant,
 **upend, topple, overturn, oust, dethrone, dismantle**,   
 **delineate, delineation, characterization, contours, clear-cut**.  
 
-
 ----------------------------  
-
-**floor, low**   
-
-klutz, pigheaded, schmuck, bozo,   
-
-Since the **dawn** of civilization--the story of the **battle for Troy**.  
-Her **tattered** clothes **in no way** detracted from her beauty.  
-
 
 ### Week 51  
 

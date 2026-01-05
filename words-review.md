@@ -2,6 +2,10 @@
 book/poor-charlie.md  
 There is one thing sure about all this complexity, including its touches of behavior lacking the full **punctilio** of honor. -  
 
+## words-Jan-26.md ##  
+words/2026/words-Jan-26.md  
+Other people had that **glint** in their eye for the work that I dreaded. It clicked: I'll never be one of the best at this over the long-term. --Because I don't like **hitting the ball**. -  
+
 ## words-Dec-25.md ##  
 words/2025/words-Dec-25.md  
 **Dismantling** **usury** through Bitcoin. -  
@@ -10,8 +14,10 @@ America is foolishly waving goodbye to thousands of Chinese **boffins**. -
 ## words-Nov-25.md ##  
 words/2025/words-Nov-25.md  
 It's **composite**, like plastic. -  
+We could hear the **swish** and **gurgle** of water against the **hull**. -  
 By deregistering Scion as an RIA and restructuring as a family office, Burry has escaped this **panopticon**. -  
 A **brash** newcomer disputed the **age-old rules** for **admission** to the club. -  
+Only a human can invent something as **insipid** as love. -  
 
 ## words-Oct-25.md ##  
 words/2025/words-Oct-25.md  
@@ -25,9 +31,9 @@ Smart Brevity isn't **hocus-pocus**—it can be learned and taught. -
 
 ## words-Jul-25.md ##  
 words/2025/words-Jul-25.md  
+Trump sues Wall Street Journal for **libel** over Epstein letter. -  
 The usual excuse for India’s **surfeit** of laws and rules is colonialism’s legacy. -  
 
 ## words-Jun-25.md ##  
 words/2025/words-Jun-25.md  
 Each Bitcoin mined under its **aegis** comes at a **steep cost**. -  
-
