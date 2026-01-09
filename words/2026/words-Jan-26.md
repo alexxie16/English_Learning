@@ -59,20 +59,48 @@ sacred
 
 ## Words Gallery  
 
+**epigraph, epilogue, epitomize**   
+
+**epinephrine, adrenaline**  
+
+**preterm, stillborn, premature, newborn/unborn, miscarriage, gestation**.   
+
+**beam, gleam, glimmer, shimmer, sheen, glossy**,   
+**glisten, glint, twinkle, glitter, glow, glare, sparkle**   
+
+**varmint, vermin, verminous, vagrant**  
+
+**deadbeat, bum, freeloader**   
+
+**Plunder, pillage, loot**  
+**floor, low**   
+**pretext, subtext**  
+**textile, linen, fabric**   
+**klutz, pigheaded, doofus, dimwit, cretin, schmuck, bozo**,   
+**back off, stand back, stand down**.  
+**rift, feud, strife, discord**.  
+**cadet, caddie, cadre**  
+**caustic, corrosive, abrasive, acidic, caustic**   
 
 ----------------------------  
 
+You should **limber up** your wits before the test.  
+A short walk will **limber up** the legs.   
+
+**The bar brawl**.  
+
+She launched into a **tirade** against the policies that ruined her business.   
+
+The snow **glistened** in the dawn light.  
+**Pearls** of **dew** **glistened** on the grass.  
+
+This **scoundrel** is lying to undermine the protests of bitcoiners who are rightfully upset about the elimination of block rewards!  
+Vanderpoole continues to **hurl** two **century-old** insults at you. He calls you a **varmint**, a **rapscallion**, a yellow belly, a **greenhorn**, and more. -    
+Every block has exactly one **preceding** block, but could have more than one next block.  
+
 ### Week 1  
 
-**floor, low**   
-pretext, subtext  
-textile, linen, fabric   
-**klutz, pigheaded, doofus, cretin, schmuck, bozo**,   
-**back off, stand back, stand down**.  
-rift, feud, strife, discord.  
-cadet, caddie, cadre  
-caustic, corrosive, abrasive, acidic, caustic   
-glint,   
+> **Folate** (vitamin B9) is a crucial water-soluble vitamin essential for creating new cells, DNA, and RNA, and for metabolizing amino acids, playing a vital role in rapid growth periods like pregnancy.  
 
 So the only thing people can **hang on** is AI bubble.  
 Holocat chimes in and says a **defector** in BitRey has sent us a list of public keys Vanderpoole commonly uses, maybe he used one of these keys to sign the message.  
@@ -82,7 +110,6 @@ In some other **Anglophone** countries, this might sound odd..
 
 Now, I wanna help you get back into the **swing of things**.  
 Once they're recovered, you can hit them again, but just take this whole process slow. Your body is getting into the **swing of things**.  
-
 
 Bitcoin is an important innovation. We doubt any serious financial professional now **disputes** this.  
 
