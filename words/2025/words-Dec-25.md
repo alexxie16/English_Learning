@@ -1,4 +1,4 @@
-## Regular  
+# Regular  
 
 [Word Review](../../words-review.md) |  
 [Words with Questions](#words-with-questions) |   
@@ -44,7 +44,7 @@
 
 **autograph**  
 
-**advocate, advocacy**.   
+**advocate, advocacy**.  
 
 ## Verb Words  
 

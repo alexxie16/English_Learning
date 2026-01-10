@@ -1,12 +1,20 @@
 
 ## Regular  
 
-[Word Review](../../words-review.md) |  
-[Words with Questions](#words-with-questions) |   
-[Special Words](#special-words) | [Verb Words](#verb-words) |  
-[Convo](#conversation) | [Interesting](#interesting) |  
-[Words Gallery](#words-gallery) | [Words Explain](#words-explain)  
-[Economist Newsletter](#economist-newsletter)  
+📘 **Study**  
+- ✍️ [Word Review](../../words-review.md)  
+- ❓ [Words with Questions](#words-with-questions)  
+
+📚 **Vocabulary**  
+- 🧩 [Special Words](#special-words)  
+- 🔧 [Verb Words](#verb-words)  
+- 🖼️ [Words Gallery](#words-gallery)  
+- 💡 [Words Explain](#words-explain)  
+
+📰 **Reading & Usage**  
+- 💬 [Conversation](#conversation)  
+- ✨ [Interesting](#interesting)  
+- 🏛️ [Economist Newsletter](#economist-newsletter)  
 
 ## AD HOC  
 
@@ -42,14 +50,15 @@ nitrite
 
 ## Special Words  
 
+**dogmatic**, **dogged**   
 
-dogmatic   
-
-sacred   
+**sacred**   
 
 **accelerator**  
 
 ## Verb Words  
+
+**shed**  
 
 **swerve**  
 
@@ -58,6 +67,11 @@ sacred
 -------------------------  
 
 ## Words Gallery  
+
+forethought, foresight, foresee, foreshadow   
+harbinger, herald, usher, vanguard  
+
+lurid   
 
 **epigraph, epilogue, epitomize**   
 
@@ -83,6 +97,23 @@ sacred
 **caustic, corrosive, abrasive, acidic, caustic**   
 
 ----------------------------  
+
+Most diplomats, analysts, and market observers were **taken aback** by the audacity of it all.  
+The raid in **Caracas**, while perhaps surprising in its specific tactics, was the **culmination** of more than two years of **foreshadowing**.  
+**Snatching** Nicolás Maduro and attempting to take control of Venezuela and its oil is an extraordinary display of the new “Donroe doctrine”.  
+Eating fewer calories can **ward off ageing**.  
+
+
+Now is the perfect time to turn your budding knowledge into action though meaningful contribution.  
+
+
+> I realize now that even if I were Satoshi's great-grandson, bitcoin isn't defined by leaders. It's defined by its community. Not even Satoshi could change what bitcoin has become. That has always been what made bitcoin great and why the millions of other coins made in bitcoin's image never lasted.  
+
+The paper gave all the lurid details of the murder.  
+She took care to paint her toe nails a lurid red or orange.  
+
+Although a man of blood and violence, Richard was too impetuous to be either treacherous or habitually cruel.  
+He did what he could to allay his wife's myriad fears.  
 
 You should **limber up** your wits before the test.  
 A short walk will **limber up** the legs.   
@@ -154,6 +185,16 @@ Her **tattered** clothes **in no way** detracted from her beauty.
 
 
 ### Economist Newsletter  
+
+And Lexington pays Donald Trump a **backhanded compliment**. Traditionally, presidents have **extolled** universal values while sometimes selfishly pursuing American interests.  
+Hypocrisy has been called the **tribute vice pays to virtue**, but Mr Trump does not like paying for anything. The world will miss the old hypocrisy.  
+Where should predators hang out if there are no **watering holes**?  
+Venezuela presents a big headache for big oil. It has been decades since the industry relished foreign-policy **entanglements**.  
+Nicolás Maduro is unlikely to **beat his rap**. He has credible legal defences but diplomacy may be his best shot  
+Facing protests at home and threats abroad, the Iranian regime looks **rattled**.  
+A new type of spacecraft is now **orbiting** Earth.  
+**Spore of the moment**: mushrooms are the latest wellness-food trend. They are being mixed into coffee, cocktails and chocolate  
+
 
 ## Words Explain   
 
