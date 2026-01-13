@@ -24,6 +24,8 @@
 
 ### Words with Questions  
 
+countenance  
+
 inimical  
 
 lesion   
@@ -50,6 +52,10 @@ nitrite
 
 ## Special Words  
 
+**petty**  
+
+**Incessant**  
+
 **dogmatic**, **dogged**   
 
 **sacred**   
@@ -57,6 +63,8 @@ nitrite
 **accelerator**  
 
 ## Verb Words  
+
+**applaud**  
 
 **shed**  
 
@@ -68,22 +76,24 @@ nitrite
 
 ## Words Gallery  
 
+**parsimony, stingy, tightwad, thrift**   
+**hinder, impede, hamper, undermine, jeopardize**   
+
+**excoriate, chastise, berate, scold, rebuke**   
+
 forethought, foresight, foresee, foreshadow   
 harbinger, herald, usher, vanguard  
 
 lurid   
 
 **epigraph, epilogue, epitomize**   
-
 **epinephrine, adrenaline**  
-
 **preterm, stillborn, premature, newborn/unborn, miscarriage, gestation**.   
 
 **beam, gleam, glimmer, shimmer, sheen, glossy**,   
 **glisten, glint, twinkle, glitter, glow, glare, sparkle**   
 
 **varmint, vermin, verminous, vagrant**  
-
 **deadbeat, bum, freeloader**   
 
 **Plunder, pillage, loot**  
@@ -97,6 +107,18 @@ lurid
 **caustic, corrosive, abrasive, acidic, caustic**   
 
 ----------------------------  
+
+
+We believe the most likely **middle ground** is that MSCI continues to **grandfather** existing DATCOs already in the Indexes.  
+
+
+
+**crotchety**.  
+He was tired and **crotchety**.  
+Only then did I learn the **unpalatable** truth.  
+
+And these days and plans and unfulfilled potential **pile up**. You **chastise** and **berate** yourself. You start to feel like you’ll never make progress, never be the person you’re meant to be.  
+
 
 Most diplomats, analysts, and market observers were **taken aback** by the audacity of it all.  
 The raid in **Caracas**, while perhaps surprising in its specific tactics, was the **culmination** of more than two years of **foreshadowing**.  
@@ -185,6 +207,17 @@ Her **tattered** clothes **in no way** detracted from her beauty.
 
 
 ### Economist Newsletter  
+
+Binyamin Netanyahu’s plan to win Israeli—and global—**hearts and minds**.  
+Can Thailand **rein in** its “mafia monks”? Lurid scandals have rocked the country’s powerful Buddhist institutions.  
+AI’s true impact will become apparent in the coming year. Will it be **boom, bust or backlash**?  
+A **sham** poll in Myanmar opens a new phase of military rule. The country’s rebels are **on the back foot**.  
+**Incessant** paperwork is driving them mad, as are all the questions patients keep sending them.  
+Wall Street is **drooling over** bank mergers.  
+What a **stiff drink** says about China’s economy. The baijiu business is the latest to be struck by “**involution**”.  
+College campuses are **at the fore** of America’s sports-betting boom.  
+Western armed forces have struggled to **fill their ranks** to deter Russia.  
+A crisis over using frozen Russian assets to help Ukraine. It’s an old-style Euro **punch-up** in a deadly new context.  
 
 And Lexington pays Donald Trump a **backhanded compliment**. Traditionally, presidents have **extolled** universal values while sometimes selfishly pursuing American interests.  
 Hypocrisy has been called the **tribute vice pays to virtue**, but Mr Trump does not like paying for anything. The world will miss the old hypocrisy.  
