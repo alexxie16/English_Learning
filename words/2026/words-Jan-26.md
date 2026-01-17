@@ -24,6 +24,8 @@
 
 ### Words with Questions  
 
+**tirade vs diatribe**??  
+
 countenance  
 
 inimical  
@@ -52,6 +54,8 @@ nitrite
 
 ## Special Words  
 
+**blueprint**  
+
 **petty**  
 
 **Incessant**  
@@ -63,6 +67,14 @@ nitrite
 **accelerator**  
 
 ## Verb Words  
+
+**harbor**  
+
+**conflate**   
+
+**prime, condition, framing**  
+
+**synthesize**  
 
 **applaud**  
 
@@ -76,15 +88,18 @@ nitrite
 
 ## Words Gallery  
 
+emasculate, emaciate, emancipate.  
+strong-minded, strong-willed, small-minded,   
+
 **parsimony, stingy, tightwad, thrift**   
 **hinder, impede, hamper, undermine, jeopardize**   
 
 **excoriate, chastise, berate, scold, rebuke**   
 
-forethought, foresight, foresee, foreshadow   
-harbinger, herald, usher, vanguard  
+**forethought, foresight, foresee, foretell, foreshadow**   
+**harbinger, herald, usher, vanguard**  
 
-lurid   
+**lurid, florid**   
 
 **epigraph, epilogue, epitomize**   
 **epinephrine, adrenaline**  
@@ -100,7 +115,7 @@ lurid
 **floor, low**   
 **pretext, subtext**  
 **textile, linen, fabric**   
-**klutz, pigheaded, doofus, dimwit, cretin, schmuck, bozo**,   
+**klutz, pigheaded, doofus, dimwit, cretin, schmuck, bozo, dork**,   
 **back off, stand back, stand down**.  
 **rift, feud, strife, discord**.  
 **cadet, caddie, cadre**  
@@ -108,10 +123,49 @@ lurid
 
 ----------------------------  
 
+At the same time, I have been also **harping on** the importance of Bitcoin to find meaningfully higher implied volatility level through a sustained fashion, especially towards the upside.  
+the upside vol premium is much higher for IBIT than it is for native BTC when you go out beyond 3+ months and increasingly **pronounced** in longer duration.  
+so net net they **cancel each other out** so sounds like a nothingburger, right.  
+One of the signs I am looking at to see when the next **leg up** would be therefore is to see....   
+
+In 1989 Iran's leader Ayatollah Khomeini declared his novel, "The Satanic Verses," blasphemous, an insult to Islam.  
+Rushdie went into hiding with around the clock police protection for 10 years.   
+Those who subscribe to The Economist are, by definition, members of a notably smart group  
+I suspect you are right, Peter. In an increasingly hostile world, Europeans need to find better ways to stick together.  
+the United States will have no clear idea what to do” about China’s exercise of power.  
+Again, Gervasio, I’m inclined to agree that trouble may **loom**, though I would hope an actual blockade is not **on the cards**.  
+Why China’s **spat** with Japan could still get worse. Officials have held back from encouraging consumer boycotts–for now.  
+How rational is Britons’ **soft spot** for Premium Bonds? It is a matter of class.   
+How China **outplayed** Donald Trump in 2025.  
+Trump's **envoy** secretly met Iran's exiled crown prince.  
+
+They **slit** his throat.  
+Light **shone** through a **slit** under the door. -    
+
+**Recovery agents** had been tormenting him for months and the last message he received from them **tipped him over the edge**.  
+However, in many cases, they have been known to start harassing people just four to six days after **disbursing** the loan. -    
+
+
+**vagus nerve**  
+
+A guard **zapped** him with the **stun gun**. -   
+His **complexion** was **florid** and his hair white. He was a man to attract immediate **sympathy**. -    
+It's the **stout**, **florid** fellows like me, that always go off first.  
+
+> A Bitcoin **descriptor** (or output descriptor) is a standardized, human-readable string that acts as a **blueprint** for a wallet, defining how to generate, import, and spend its Bitcoin addresses by specifying the necessary keys and scripts.  
+
+### Week 2   
+
+> But it’s the possibility of finding joy in this eternal struggle, as Camus would say, that is enough to fill a man’s heart.  
+> From recklessly pursuing the endless practice of actualizing your authentic perspective and self through creative expression.  
+> Secondly, you should understand this: most of us believe being articulate is about being certain in our thinking.  
+
+Don't **sweat over** the remaining background detail – we'll deal with this next.  
+
+Danny, thanks for **taking it on the chin** like a **champ** on our behalf. We all learned a lot through your willingness and humility to listen and learn. Much gratitude to you.  
+It's simple, intuitive, easy to use wallet with no seed phrase to **sweat over**.  
 
 We believe the most likely **middle ground** is that MSCI continues to **grandfather** existing DATCOs already in the Indexes.  
-
-
 
 **crotchety**.  
 He was tired and **crotchety**.  
@@ -119,30 +173,27 @@ Only then did I learn the **unpalatable** truth.
 
 And these days and plans and unfulfilled potential **pile up**. You **chastise** and **berate** yourself. You start to feel like you’ll never make progress, never be the person you’re meant to be.  
 
-
 Most diplomats, analysts, and market observers were **taken aback** by the audacity of it all.  
 The raid in **Caracas**, while perhaps surprising in its specific tactics, was the **culmination** of more than two years of **foreshadowing**.  
 **Snatching** Nicolás Maduro and attempting to take control of Venezuela and its oil is an extraordinary display of the new “Donroe doctrine”.  
 Eating fewer calories can **ward off ageing**.  
 
-
-Now is the perfect time to turn your budding knowledge into action though meaningful contribution.  
-
+Now is the perfect time to turn your **budding knowledge** into action though meaningful contribution.  
 
 > I realize now that even if I were Satoshi's great-grandson, bitcoin isn't defined by leaders. It's defined by its community. Not even Satoshi could change what bitcoin has become. That has always been what made bitcoin great and why the millions of other coins made in bitcoin's image never lasted.  
 
-The paper gave all the lurid details of the murder.  
-She took care to paint her toe nails a lurid red or orange.  
+The paper gave all the **lurid details** of the murder. -    
+She took care to paint her toe nails a **lurid red** or orange. -    
 
-Although a man of blood and violence, Richard was too impetuous to be either treacherous or habitually cruel.  
-He did what he could to allay his wife's myriad fears.  
+Although a man of blood and violence, Richard was too **impetuous** to be either **treacherous** or habitually cruel. -   
+He did what he could to **allay** his wife's **myriad** fears. -    
 
-You should **limber up** your wits before the test.  
+You should **limber up** your wits before the test. -    
 A short walk will **limber up** the legs.   
 
 **The bar brawl**.  
 
-She launched into a **tirade** against the policies that ruined her business.   
+She launched into a **tirade** against the policies that ruined her business. -     
 
 The snow **glistened** in the dawn light.  
 **Pearls** of **dew** **glistened** on the grass.  
@@ -166,35 +217,34 @@ Once they're recovered, you can hit them again, but just take this whole process
 
 Bitcoin is an important innovation. We doubt any serious financial professional now **disputes** this.  
 
-Don't be fooled. Saving Satoshi has a sometimes **silly veneer**, but contains the kinds of coding exercises that will ensure you are ready for the challenges.  
-
+Don't be fooled. Saving Satoshi has a sometimes **silly veneer**, but contains the kinds of coding exercises that will ensure you are ready for the challenges. -    
 
 > In Meditations, Marcus **rebukes** this tendency—not only as lazy, but arrogant and entitled. To act “as if you had endless years ahead of you.” is crazy…and not true.  
 
 
-The monkey **slips** its hand in, grabs the food, and can’t pull its **clenched** fist back out.  
+The monkey **slips** its hand in, grabs the food, and can’t pull its **clenched** fist back out. -    
 
 Other people had that **glint** in their eye for the work that I dreaded. It clicked: I'll never be one of the best at this over the long-term. --Because I don't like **hitting the ball**. -    
 
 > Internet contraband refers to illegal or restricted digital content, data, or activities (like malware, stolen info, fraud schemes, or censored material) that cross borders or evade controls  
 
 There's no **substitute** for that. It's what we call in Bitcoin proof of work.  
-I have **harbored** this secret for a long, long time.  
+I have **harbored** this secret for a long, long time. -    
 
 In the absence of such authority, informed argument exists **alongside** **phony** outrage, **profiteering**, self-**aggrandizement** and saying things for the hell of it. The result is not merely the radicalization that Mr. Buckley feared but a kind of omnidirectional incoherence.  
-I would eat my hat if Alan Dye knew what was wrong and **gross** about this **dialog box**. This is exactly the sort of sweating the **idiomatic** usability details thing that has frequently been wrong in Apple software in the last decade.  
+I would eat my hat if Alan Dye knew what was wrong and **gross** about this **dialog box**. This is exactly the sort of sweating the **idiomatic** usability details thing that has frequently been wrong in Apple software in the last decade. -    
 
 > 👵🏻 Grandmacore: "We're talking about the kind of warm, grounding foods your best imaginary grandma might have made, like sourdough bread, dried apples, sauerkraut and vegetables she canned herself  
 
 
 The Persians could use it to **outflank** us.  
 Old people often **subsist** on very small incomes.  
-She has to get a casual work to **subsist**.  
+She has to get **a casual work** to **subsist**.  
 It's almost like a green **gauze veil**.  
-His head was still **wrapped in gauze**.  
+His head was still **wrapped in gauze**. -    
 
 When there's no **holds barred**, it means no rules.  
-I mean, she wrote a **memoir** that was very kind of **no holds barred**.  
+I mean, she wrote a **memoir** that was very kind of **no holds barred**. -    
 Despite these **quibbles**, Signal remains widely regarded among security professionals as the most secure messenger app that capable of going head-to-head with.  
 
 **preferential treatment**   
@@ -203,7 +253,6 @@ Quitting smoking, taming your temper, being more present at home, getting over y
 
 Since the **dawn** of civilization--the story of the **battle for Troy**.  
 Her **tattered** clothes **in no way** detracted from her beauty.  
-
 
 
 ### Economist Newsletter  
@@ -250,9 +299,14 @@ Here are the words I need help with:
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
+**preferential treatment**   
+Danny, thanks for **taking it on the chin** like a **champ** on our behalf. We all learned a lot through your willingness and humility to listen and learn. Much gratitude to you.  
+It's simple, intuitive, easy to use wallet with no seed phrase to **sweat over**.  
 
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
 
+Since the **dawn** of civilization--the story of the **battle for Troy**.  
+Her **tattered** clothes **in no way** detracted from her beauty.  
 

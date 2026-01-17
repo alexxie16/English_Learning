@@ -192,7 +192,7 @@ If the EU doesn’t **woo** the Western Balkans, Russia or China might, writes a
 Donald Trump has unleashed an M&A **bonanza**.  
 Middle managers, famed for holding meetings that could have been emails, are **on their way out**.  
 South-East Asia is being **swamped with** Chinese goods. It is adding to the pain from Trump’s tariffs.  
-President Donald Trump does not like being criticised when he thinks he should be **feted**. -    
+President Donald Trump does not like being criticised when he thinks he should be **feted**.   
 It should not need saying in the home of the First Amendment, but a craven press leads to rampant corruption, poor government and cynical, **disaffected** voters.  
 
 

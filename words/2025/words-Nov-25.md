@@ -128,7 +128,7 @@ I can’t be everything to everyone. I kind of **made peace** with it years ago.
 > The suffix "-ies" likely served as a **diminutive**, turning "pants" into a new, specific term for women's version.  
 > Usage: While both terms are correct, "panties" allows for more specific conversation about women's underwear, just as "briefs" or "boxers" are used to describe specific styles of men's underwear.  
 
-It's **composite**, like plastic. -  
+It's **composite**, like plastic.   
 Bitcoin’s Academic **Pedigree**.  
 
 law of **diminishing marginal returns**  
@@ -192,7 +192,7 @@ The AI sector is currently **perpetrating** an **Enron-scale** accounting **dist
 And when the crisis finally arrived and he collected $100 million personally while his fund returned 489%, he shut everything down. The **vindication** was not worth the cost.  
 The Deregistration **Gambit**.  
 The positions became **spectacle**, and Burry became target.  
-By deregistering Scion as an RIA and restructuring as a family office, Burry has escaped this **panopticon**. -    
+By deregistering Scion as an RIA and restructuring as a family office, Burry has escaped this **panopticon**.   
 The post **dripped with contempt** for institutions that cannot distinguish between exposure and cost, between **headline and substance**.  
 
 
