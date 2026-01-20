@@ -68,6 +68,8 @@ nitrite
 
 ## Verb Words  
 
+**brighten**  
+
 **harbor**  
 
 **conflate**   
@@ -88,8 +90,8 @@ nitrite
 
 ## Words Gallery  
 
-emasculate, emaciate, emancipate.  
-strong-minded, strong-willed, small-minded,   
+**emasculate, emaciate, emancipate**.  
+**strong-minded, strong-willed, small-minded**   
 
 **parsimony, stingy, tightwad, thrift**   
 **hinder, impede, hamper, undermine, jeopardize**   
@@ -109,7 +111,7 @@ strong-minded, strong-willed, small-minded,
 **glisten, glint, twinkle, glitter, glow, glare, sparkle**   
 
 **varmint, vermin, verminous, vagrant**  
-**deadbeat, bum, freeloader**   
+**deadbeat, bum, freeload, mooch**   
 
 **Plunder, pillage, loot**  
 **floor, low**   
@@ -123,28 +125,68 @@ strong-minded, strong-willed, small-minded,
 
 ----------------------------  
 
+**Gallivant, gallant, valiant, dashing**,   
+vial, potion, flask, canister,   
+
+**squabble, spat, quarrel, bicker, strife**.  
+
+**shirk, shun, dodge, sidestep**,  
+**boxy, bulky, stout, dumpy, chunky, stumpy**,   
+**lumpy, clumpy**  
+**slog, toil, ordeal**   
+**exoteric, esoteric**,   
+
+**griddle, girdle**,   
+
+A lot of hardware people are into it. **Biopharma** people are shockingly the most reserved — they’re a little too **deferential** to the F.D.A.  
+We might all be better off if we let the crazy people try the crazy peptides and **filter down** to the rest of us.  
+
+She was forced to **abdicate** the throne of Spain. -   
+
+You're welcome. Now get yourself **off to hospital**.  
+Most people are just 'hungry' after a **tantalising** hand at poker and a near death experience. Bond is....famished!  
+Bond tips the dealer $500,000, dealer doesn't **bat an eyelid**.  
+
+
+These precedents help explain why a parabolic phase can keep running longer than expected, yet still be followed by drawdowns that feel extreme even if the longer term cycle later resumes.  
+> A useful way to interpret the risk level is through relative value rather than dollars alone. The gold-silver ratio expresses how many ounces of silver equal one ounce of gold, and it is widely watched as a gauge of whether silver has outperformed too far or lagged too much versus gold.  
+
+Altcoins also face a trust problem that **weighs on** retail participation.  
+
+> fragging: U.S. military personnel coined the word during the Vietnam War, when such killings were most often committed or attempted with a fragmentation grenade, to make it appear that the killing was accidental or during combat with the enemy. The term fragging now encompasses any deliberate killing of military colleagues.  
+
+### Week  3  
+
+**cease operating, pull the plug**   
+
+The fractional reserve system is **predicated on** this belief you can lever up the money.  
+
+For Google, I presume, that will be Google Keep (which I consider a serviceable, but overall **crummy app** that never seems to have gotten much attention). -    
+
+However, once you've **got the hang** of it you'll find that it's an extremely **versatile** locking script.  
+
+During the **drought** the river dried up.   
+The **drought** did a lot of harm to the crops  
+men in long sexual **drought**.  
+
+He doesn't look like such a **mooch**.  
+You need to get this marriage **annulled** immediately.  
+
+These **souped-up** signatures are also a game changer for smart contracts. -   
+**flash in the pan**.  
+A **taproot** is a large, central, and **dominant** root from which other roots sprout **laterally**.  
+a thick central trunk like a **dandelion** taproot.  
 At the same time, I have been also **harping on** the importance of Bitcoin to find meaningfully higher implied volatility level through a sustained fashion, especially towards the upside.  
 the upside vol premium is much higher for IBIT than it is for native BTC when you go out beyond 3+ months and increasingly **pronounced** in longer duration.  
 so net net they **cancel each other out** so sounds like a nothingburger, right.  
 One of the signs I am looking at to see when the next **leg up** would be therefore is to see....   
 
-In 1989 Iran's leader Ayatollah Khomeini declared his novel, "The Satanic Verses," blasphemous, an insult to Islam.  
-Rushdie went into hiding with around the clock police protection for 10 years.   
-Those who subscribe to The Economist are, by definition, members of a notably smart group  
-I suspect you are right, Peter. In an increasingly hostile world, Europeans need to find better ways to stick together.  
-the United States will have no clear idea what to do” about China’s exercise of power.  
-Again, Gervasio, I’m inclined to agree that trouble may **loom**, though I would hope an actual blockade is not **on the cards**.  
-Why China’s **spat** with Japan could still get worse. Officials have held back from encouraging consumer boycotts–for now.  
-How rational is Britons’ **soft spot** for Premium Bonds? It is a matter of class.   
-How China **outplayed** Donald Trump in 2025.  
-Trump's **envoy** secretly met Iran's exiled crown prince.  
 
 They **slit** his throat.  
 Light **shone** through a **slit** under the door. -    
 
 **Recovery agents** had been tormenting him for months and the last message he received from them **tipped him over the edge**.  
 However, in many cases, they have been known to start harassing people just four to six days after **disbursing** the loan. -    
-
 
 **vagus nerve**  
 
@@ -257,6 +299,28 @@ Her **tattered** clothes **in no way** detracted from her beauty.
 
 ### Economist Newsletter  
 
+How to fix India’s **decrepit** cities. Letting them look after themselves would help a lot. -    
+Can Tokyo’s **charms** be replicated elsewhere?  
+The **back-channeling** between **ideological** **foes** indicates their private communications have been more extensive than previously thought.  
+Two months in, the Gaza ceasefire is **floundering**. The consequences will **ripple** beyond the Middle East.  
+Europe and South America **seal** a trade pact for the Trump era.  
+America’s child-care gender gap is **narrowing** rapidly.  
+
+A glass of wine with friends can **brighten** the **grey days** of January. But in this bleak month—and others—fewer people are indulging.  
+It’s not simply that they are **passing on** wine; they seem to be passing on friends.  
+Falling wine sales reflect a lonelier and more **atomised** world.  
+
+In 1989 Iran's leader Ayatollah **Khomeini** declared his novel, "The **Satanic** Verses," **blasphemous**, an insult to Islam.  
+Rushdie went into hiding with **around the clock** police protection for 10 years.   
+Those who subscribe to The Economist are, by definition, members of a **notably** smart group.  
+I suspect you are right, Peter. In an **increasingly** **hostile** world, Europeans need to find better ways to stick together.  
+the United States will have no clear idea what to do” about China’s **exercise of power**.  
+Again, Gervasio, I’m inclined to agree that trouble may **loom**, though I would hope an actual blockade is not **on the cards**.  
+Why China’s **spat** with Japan could still get worse. Officials have held back from encouraging consumer boycotts–for now.  
+How rational is Britons’ **soft spot** for Premium Bonds? It is a matter of class.   
+How China **outplayed** Donald Trump in 2025.  
+Trump's **envoy** secretly met Iran's exiled crown prince.  
+
 Binyamin Netanyahu’s plan to win Israeli—and global—**hearts and minds**.  
 Can Thailand **rein in** its “mafia monks”? Lurid scandals have rocked the country’s powerful Buddhist institutions.  
 AI’s true impact will become apparent in the coming year. Will it be **boom, bust or backlash**?  
@@ -299,6 +363,8 @@ Here are the words I need help with:
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
+He doesn't look like such a **mooch**.  
+
 **preferential treatment**   
 Danny, thanks for **taking it on the chin** like a **champ** on our behalf. We all learned a lot through your willingness and humility to listen and learn. Much gratitude to you.  
 It's simple, intuitive, easy to use wallet with no seed phrase to **sweat over**.  
@@ -306,6 +372,11 @@ It's simple, intuitive, easy to use wallet with no seed phrase to **sweat over**
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
+
+For Google, I presume, that will be Google Keep (which I consider a serviceable, but overall **crummy app** that never seems to have gotten much attention).  
+
+However, once you've **got the hang** of it you'll find that it's an extremely **versatile** locking script.  
+A **taproot** is a large, central, and **dominant** root from which other roots sprout **laterally**.  
 
 Since the **dawn** of civilization--the story of the **battle for Troy**.  
 Her **tattered** clothes **in no way** detracted from her beauty.  
