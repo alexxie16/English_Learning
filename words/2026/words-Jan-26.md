@@ -24,6 +24,8 @@
 
 ### Words with Questions  
 
+gossamer  
+
 **tirade vs diatribe**??  
 
 countenance  
@@ -90,6 +92,22 @@ nitrite
 
 ## Words Gallery  
 
+**Gallivant, gallant, valiant, dashing**,   
+**vial, potion, flask, canister**   
+
+**squabble, spat, quarrel, bicker, strife**.  
+**shirk, shun, dodge, sidestep**,  
+**boxy, bulky, stout, dumpy, chunky, stumpy**,   
+**lumpy, clumpy**  
+**slog, toil, ordeal**   
+**exoteric, esoteric**,   
+**preface, prelude**,   
+**wallow, wallop**,   
+
+**griddle, girdle**,   
+**septic, aseptic, antiseptic**   
+ligament, tendon, cartilage, hamstring, collagen, gelatin  
+
 **emasculate, emaciate, emancipate**.  
 **strong-minded, strong-willed, small-minded**   
 
@@ -125,18 +143,34 @@ nitrite
 
 ----------------------------  
 
-**Gallivant, gallant, valiant, dashing**,   
-vial, potion, flask, canister,   
+Of course, America did not hear this message immediately. In fact, huge swaths of the population did not want to hear it at all.  
+But we have to keep trying. We can honor his memory and our own potential today by making headway in that battle.  
 
-**squabble, spat, quarrel, bicker, strife**.  
 
-**shirk, shun, dodge, sidestep**,  
-**boxy, bulky, stout, dumpy, chunky, stumpy**,   
-**lumpy, clumpy**  
-**slog, toil, ordeal**   
-**exoteric, esoteric**,   
+**sail through** life.  
 
-**griddle, girdle**,   
+> A **cabal** is a **clique** or secret group, often involved in **plots** or **intrigue**, frequently used to describe political, elite, or **conspiratorial** groups  
+
+House GOP **staves off** **rebuke** to Trump over Venezuela military action.  
+Though Mr Trump switched to a more **conciliatory** tone, suggesting he would not use force against a fellow member of NATO and promising to make some kind of deal, he revealed a **snarling** contempt for Europe.  
+
+I love how animated her face is. Just by moving her eyebrows she can show a different emotion. She really has the face of an actress. I hope she never gets Botox or a facelift.  
+
+
+**ill-advised, but valiant**.  
+
+We should learn to fight with enemy in an **overt and covert** way.  
+**igneous rock**.  
+
+> Anger is just fear in a leather jacket.  
+
+His article is stuffed with **shibboleth**. -     
+
+The battle for Warner Bros is a **prelude** to the real streaming war.  
+Japan’s popular new prime minister gambles on a **snap election**. Will her high approval ratings benefit her **tarnished** party?  
+MAGA wants a **moratorium** on legal migration, too.  
+**Bereft** of legitimacy, the **reeling** regime in Iran **massacres** its own people.  
+
 
 A lot of hardware people are into it. **Biopharma** people are shockingly the most reserved — they’re a little too **deferential** to the F.D.A.  
 We might all be better off if we let the crazy people try the crazy peptides and **filter down** to the rest of us.  
@@ -148,7 +182,7 @@ Most people are just 'hungry' after a **tantalising** hand at poker and a near d
 Bond tips the dealer $500,000, dealer doesn't **bat an eyelid**.  
 
 
-These precedents help explain why a parabolic phase can keep running longer than expected, yet still be followed by drawdowns that feel extreme even if the longer term cycle later resumes.  
+> These **precedents** help explain why a parabolic phase can keep running longer than expected, yet still be followed by drawdowns that feel extreme even if the longer term cycle later resumes.  
 > A useful way to interpret the risk level is through relative value rather than dollars alone. The gold-silver ratio expresses how many ounces of silver equal one ounce of gold, and it is widely watched as a gauge of whether silver has outperformed too far or lagged too much versus gold.  
 
 Altcoins also face a trust problem that **weighs on** retail participation.  
