@@ -24,12 +24,6 @@
 
 ### Words with Questions  
 
-gossamer  
-
-**tirade vs diatribe**??  
-
-countenance  
-
 inimical  
 
 lesion   
@@ -55,6 +49,8 @@ nitrite
 **goad**  
 
 ## Special Words  
+
+**crossroad**  
 
 **blueprint**  
 
@@ -106,7 +102,7 @@ nitrite
 
 **griddle, girdle**,   
 **septic, aseptic, antiseptic**   
-ligament, tendon, cartilage, hamstring, collagen, gelatin  
+**ligament, tendon, cartilage, hamstring, collagen, gelatin**  
 
 **emasculate, emaciate, emancipate**.  
 **strong-minded, strong-willed, small-minded**   
@@ -143,9 +139,34 @@ ligament, tendon, cartilage, hamstring, collagen, gelatin
 
 ----------------------------  
 
+**tiff, spat, quarrel**   
+**clammy, slimy, slippery, icky, gooey**.  
+**fastidious, meticulous, impeccable, immaculate, painstakingly, superb**.  
+**spotless, flawless, pristine**  
+
+**Bread and Circuses**  
+
+The Trump administration’s misleading and hyperbolic rhetoric has been a feature of its siege of Minneapolis, a notional campaign of immigration enforcement whose larger and transparent purpose has been provocation and **political theatre**.  
+Another horrifying shooting by federal agents in Minneapolis. What happens when armed men are given **impunity**.  
+Why Congress won’t restrain Trump’s assault on allies over Greenland. Republicans either fear the president’s **ire**, or want to strengthen his bargaining position.  
+The Academy Award nominees for Best Picture are entertainingly **frantic** and defiantly political.  
+
+Give Someone (Enough) Rope: To allow someone to act freely, often with the intention that they will make a mistake or get into trouble.  
+
+
+Video taken from a nearby business appears to show about a half dozen agents **tackling** a person to the ground, before multiple shots **ring out**.  
+Democrats are lining up in opposition to DHS funding, including three who voted to end the last shutdown.  
+
+
+a degree of perspective is just as valuable as a **sense of awe**.  
+Hiring is weak, consumers lack confidence, and the property market has entered the fifth year of a seemingly **intractable** **slump**.  
+The central bank is worried that lower interest rates will hurt banks’ margins. And the government is reluctant to do whatever it takes to **turn things round**.  
+The longer **gloomy sentiment** persists, the less easy it is to **dispel**.  
+
 Of course, America did not hear this message immediately. In fact, huge swaths of the population did not want to hear it at all.  
 But we have to keep trying. We can honor his memory and our own potential today by making headway in that battle.  
 
+## Week 4  
 
 **sail through** life.  
 
@@ -393,6 +414,41 @@ Here are the words I need help with:
 
 -----------------------  
 
+**Gossamer**  
+- **Definition**: A fine, filmy substance consisting of cobwebs spun by small spiders, seen especially in autumn. It can also describe something very light, thin, and insubstantial or delicate.  
+- **Common Usage**: Uncommon in everyday conversation; often used in poetic or literary descriptions to convey delicacy or lightness.  
+- **Examples**:  
+  - She wore a dress made from gossamer fabric that floated with her every movement.  
+  - The morning mist was like a gossamer curtain threading through the trees.  
+- **Alternatives**: Flimsy, delicate, ethereal.  
+
+---  
+
+**Tirade**  
+- **Definition**: A long, angry speech of criticism or accusation.  
+- **Common Usage**: Commonly used in everyday language to describe a prolonged outburst of anger or criticism.  
+- **Examples**:  
+  - He launched into a tirade against the new company policies.  
+  - After overhearing the argument, it was clear his tirade had upset everyone involved.  
+- **Alternatives**: Rant, outburst, harangue.  
+
+**Diatribe**  
+- **Definition**: A forceful and bitter verbal attack against someone or something.  
+- **Common Usage**: Used in both formal and informal contexts to describe a harsh, critical speech or piece of writing.  
+- **Examples**:  
+  - The editorial was a diatribe against the government's environmental policies.  
+  - She wrote a diatribe on social media criticizing the changes to the education system.  
+- **Alternatives**: Criticism, invective, tirade.  
+
+---  
+
+**Countenance**  
+- **Definition**: A person's face or facial expression. It can also refer to support or approval.  
+- **Common Usage**: Less common in everyday speech when referring to facial expressions, but still used, especially in more formal contexts.  
+- **Examples**:  
+  - His calm countenance hid the anxiety he felt inside.  
+  - The teacher's countenance showed disapproval of the student's behavior.  
+- **Alternatives**: Face, demeanor, expression, support (when used in the context of approval).  
 
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
