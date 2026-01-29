@@ -50,6 +50,8 @@ nitrite
 
 ## Special Words  
 
+**disdain**  
+
 **crossroad**  
 
 **blueprint**  
@@ -65,6 +67,8 @@ nitrite
 **accelerator**  
 
 ## Verb Words  
+
+**abdicate**  
 
 **brighten**  
 
@@ -87,6 +91,13 @@ nitrite
 -------------------------  
 
 ## Words Gallery  
+
+**tiff, spat, quarrel, squabble**   
+**clammy, slimy, slippery, icky, gooey**.  
+**fastidious, meticulous, impeccable, immaculate, painstakingly, superb**.  
+**spotless, flawless, pristine**  
+
+**decadent, decadence, indulgent, opulent, depraved, excesses**   
 
 **Gallivant, gallant, valiant, dashing**,   
 **vial, potion, flask, canister**   
@@ -139,32 +150,46 @@ nitrite
 
 ----------------------------  
 
-**tiff, spat, quarrel**   
-**clammy, slimy, slippery, icky, gooey**.  
-**fastidious, meticulous, impeccable, immaculate, painstakingly, superb**.  
-**spotless, flawless, pristine**  
 
 **Bread and Circuses**  
 
-The Trump administration’s misleading and hyperbolic rhetoric has been a feature of its siege of Minneapolis, a notional campaign of immigration enforcement whose larger and transparent purpose has been provocation and **political theatre**.  
-Another horrifying shooting by federal agents in Minneapolis. What happens when armed men are given **impunity**.  
-Why Congress won’t restrain Trump’s assault on allies over Greenland. Republicans either fear the president’s **ire**, or want to strengthen his bargaining position.  
-The Academy Award nominees for Best Picture are entertainingly **frantic** and defiantly political.  
+> "**Hardscrabble**" originated in the late 18th-century United States, combining "hard" and "scrabble" (a variant of **scramble**, meaning a difficult struggle or scratch) to describe rocky, barren land requiring immense effort to farm.   
+
+> Most individual bad actors are disturbed individuals, so almost by definition their behavior is unpredictable and irrational.  
+
+
+"Humanity is about to be handed almost unimaginable power, and it is deeply unclear whether our social, political, and technological systems possess the maturity to **wield** it."  
+
+He was arrested at the scene Friday and was awaiting **arraignment**. -  
+
+### Daring Fireball   
+
+He lives in an imaginary world that is increasingly **cleaved** from reality. (Norway, it should be pointed out, is not Denmark, the country of which Greenland is a part.)  
+What Trump is threatening with Greenland is simply **bonkers**.  
+Trump, obviously angry that our ostensible allies won’t just **roll over** and **accede** to his madness, is now **petulantly** turning to his favorite word, tariffs. -    
+Signal’s top priority has always been protecting your data from being obtained by others. That’s a **noble idea**, and **central** to Signal’s brand.  
+This post is an **in-depth recount** of exactly what happened and what systems and processes failed.  
+But that simply wasn't possible given Jony Ive's relationship with Sam Altman, LoveFrom’s collaboration with OpenAI with the io project, and Ive’s **utter disdain** for Dye’s talent, leadership, and personality.  
+But there’s a problem that’s been **gnawing** at me ever since the 2.0 Trump Administration began. -    
+We need to assert this rhetoric with urgency, make their names shameful, **lest** the **slur** become our name — “American”. -    
+Makes sense, to be honest, that Anthropic would **object** to naming it a **homonym** for Claude.  
+
+-----   
 
 Give Someone (Enough) Rope: To allow someone to act freely, often with the intention that they will make a mistake or get into trouble.  
 
 
 Video taken from a nearby business appears to show about a half dozen agents **tackling** a person to the ground, before multiple shots **ring out**.  
-Democrats are lining up in opposition to DHS funding, including three who voted to end the last shutdown.  
+Democrats are **lining up in opposition** to DHS funding, including three who voted to end the last shutdown.  
 
 
-a degree of perspective is just as valuable as a **sense of awe**.  
+A degree of perspective is just as valuable as a **sense of awe**.  
 Hiring is weak, consumers lack confidence, and the property market has entered the fifth year of a seemingly **intractable** **slump**.  
 The central bank is worried that lower interest rates will hurt banks’ margins. And the government is reluctant to do whatever it takes to **turn things round**.  
 The longer **gloomy sentiment** persists, the less easy it is to **dispel**.  
 
-Of course, America did not hear this message immediately. In fact, huge swaths of the population did not want to hear it at all.  
-But we have to keep trying. We can honor his memory and our own potential today by making headway in that battle.  
+Of course, America did not hear this message immediately. In fact, huge **swaths** of the population did not want to hear it at all.  
+But we have to keep trying. We can honor his memory and our own potential today by making **headway** in that battle.  
 
 ## Week 4  
 
@@ -353,6 +378,19 @@ Her **tattered** clothes **in no way** detracted from her beauty.
 
 
 ### Economist Newsletter  
+
+His administration has begun to **give ground** in Minneapolis.  
+
+No Wi-Fi, no phone charging and seats that don’t recline. You don’t fly Ryanair for the **frills**. But the tickets are cheap. - The low-cost carrier is flying high.  
+The militia is still a force in Lebanese politics, but its ability to **menace** abroad has been severely weakened. -    
+How Russian **brainrot** became a hit for children.  
+
+The Trump administration’s misleading and **hyperbolic** rhetoric has been a feature of its **siege** of Minneapolis, a notional campaign of immigration enforcement whose larger and transparent purpose has been provocation and **political theatre**.  
+Another horrifying shooting by federal agents in Minneapolis. What happens when armed men are given **impunity**. -    
+Why Congress won’t **restrain** Trump’s assault on allies over Greenland. Republicans either fear the president’s **ire**, or want to strengthen his bargaining position.  
+The Academy Award nominees for Best Picture are entertainingly **frantic** and defiantly political.  
+
+
 
 How to fix India’s **decrepit** cities. Letting them look after themselves would help a lot. -    
 Can Tokyo’s **charms** be replicated elsewhere?  

@@ -4,6 +4,14 @@ There is one thing sure about all this complexity, including its touches of beha
 
 ## words-Jan-26.md ##  
 words/2026/words-Jan-26.md  
+He was arrested at the scene Friday and was awaiting **arraignment**. -  
+Trump, obviously angry that our ostensible allies won’t just **roll over** and **accede** to his madness, is now **petulantly** turning to his favorite word, tariffs. -  
+But there’s a problem that’s been **gnawing** at me ever since the 2.0 Trump Administration began. -  
+We need to assert this rhetoric with urgency, make their names shameful, **lest** the **slur** become our name — “American”. -  
+His article is stuffed with **shibboleth**. -  
+She was forced to **abdicate** the throne of Spain. -  
+For Google, I presume, that will be Google Keep (which I consider a serviceable, but overall **crummy app** that never seems to have gotten much attention). -  
+These **souped-up** signatures are also a game changer for smart contracts. -  
 Light **shone** through a **slit** under the door. -  
 However, in many cases, they have been known to start harassing people just four to six days after **disbursing** the loan. -  
 A guard **zapped** him with the **stun gun**. -  
@@ -22,6 +30,9 @@ I have **harbored** this secret for a long, long time. -
 I would eat my hat if Alan Dye knew what was wrong and **gross** about this **dialog box**. This is exactly the sort of sweating the **idiomatic** usability details thing that has frequently been wrong in Apple software in the last decade. -  
 His head was still **wrapped in gauze**. -  
 I mean, she wrote a **memoir** that was very kind of **no holds barred**. -  
+The militia is still a force in Lebanese politics, but its ability to **menace** abroad has been severely weakened. -  
+Another horrifying shooting by federal agents in Minneapolis. What happens when armed men are given **impunity**. -  
+How to fix India’s **decrepit** cities. Letting them look after themselves would help a lot. -  
 
 ## words-Dec-25.md ##  
 words/2025/words-Dec-25.md  
@@ -31,6 +42,7 @@ America is foolishly waving goodbye to thousands of Chinese **boffins**. -
 ## words-Nov-25.md ##  
 words/2025/words-Nov-25.md  
 We could hear the **swish** and **gurgle** of water against the **hull**. -  
+A **brash** newcomer disputed the **age-old rules** for **admission** to the club. -  
 Only a human can invent something as **insipid** as love. -  
 
 ## words-Oct-25.md ##  
