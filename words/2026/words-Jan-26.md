@@ -150,15 +150,46 @@ nitrite
 
 ----------------------------  
 
+You can charge twice the current rate for that I provide, and your customers would pay it, **hands down**.   
+Warsh has been a sharp critic of the central bank, arguing that it has grown **unwieldy** and is in need of reform.  
+
+that comport with his affordability strategy to help main street america.  
+vestige of history.  
+
+
+overpass, flyover, skywalk, walkway  
+
+He showed his **aptitude** for music when he was a little boy.  
+
+The Telegram, our column on geopolitics, explains why it’s fashionable to pick on Europe, and why the insults say as much about the leaders lobbing them as about the real-life place.  
+Who’s afraid of Tucker Carlson? - The **provocateur**’s story is also the story of America, says a new biography.  
+Yet this 10-million-year love affair is starting to look rocky.  
+The old idea that a daily tipple is good for you looks shaky, but alcohol’s power to strengthen social bonds may still matter.  
+Strava’s public listing will help it race ahead of competitors. It needs extra financial oomph to expand its coaching offerings.  
+He has suspended his predation of Greenland, but he cannot retract the mistrust it generated.  
+National job stereotypes need updating. Unemployment rates in rich countries are becoming topsy-turvy.  
+The collapse of a Brazilian bank ensnares politicians and judges.  
+Japan’s bond-market tremble reflects a fiscal-monetary **clash**. As investors worry about **budgetary** **laxity**, the central bank prepares for more rate hikes.  
+A new study highlights the brain’s role in immune health. It truly is a question of **mind over matter**.  
+
+Dems **clinch** deal with White House as shutdown **looms**.  
+Five of the six uniformed officers in its high command have been **ousted** since 2022.  
+Two have been accused of **wielding** **unspecified** but “extremely **vile**” influence.  
+
+
+**lymphatic system**.  
+
+Therefore, we're faced with a tradeoff between functionality and scope creep.  
+**screed**: a long **monotonous** **harangue**.  
 
 **Bread and Circuses**  
 
 > "**Hardscrabble**" originated in the late 18th-century United States, combining "hard" and "scrabble" (a variant of **scramble**, meaning a difficult struggle or scratch) to describe rocky, barren land requiring immense effort to farm.   
 
-> Most individual bad actors are disturbed individuals, so almost by definition their behavior is unpredictable and irrational.  
+> Most individual bad actors are **disturbed** individuals, so almost **by definition** their behavior is unpredictable and irrational.  
 
 
-"Humanity is about to be handed almost unimaginable power, and it is deeply unclear whether our social, political, and technological systems possess the maturity to **wield** it."  
+"Humanity is about to be **handed** almost unimaginable power, and it is deeply unclear whether our social, political, and technological systems **possess** the maturity to **wield** it."  
 
 He was arrested at the scene Friday and was awaiting **arraignment**. -  
 
