@@ -4,6 +4,7 @@ There is one thing sure about all this complexity, including its touches of beha
 
 ## words-Jan-26.md ##  
 words/2026/words-Jan-26.md  
+She's wearing a **slinky** black mini-skirt. -  
 He was arrested at the scene Friday and was awaiting **arraignment**. -  
 Trump, obviously angry that our ostensible allies won’t just **roll over** and **accede** to his madness, is now **petulantly** turning to his favorite word, tariffs. -  
 But there’s a problem that’s been **gnawing** at me ever since the 2.0 Trump Administration began. -  
@@ -11,6 +12,7 @@ We need to assert this rhetoric with urgency, make their names shameful, **lest*
 His article is stuffed with **shibboleth**. -  
 She was forced to **abdicate** the throne of Spain. -  
 For Google, I presume, that will be Google Keep (which I consider a serviceable, but overall **crummy app** that never seems to have gotten much attention). -  
+You need to get this marriage **annulled** immediately. -  
 These **souped-up** signatures are also a game changer for smart contracts. -  
 Light **shone** through a **slit** under the door. -  
 However, in many cases, they have been known to start harassing people just four to six days after **disbursing** the loan. -  
@@ -33,6 +35,7 @@ I mean, she wrote a **memoir** that was very kind of **no holds barred**. -
 The militia is still a force in Lebanese politics, but its ability to **menace** abroad has been severely weakened. -  
 Another horrifying shooting by federal agents in Minneapolis. What happens when armed men are given **impunity**. -  
 How to fix India’s **decrepit** cities. Letting them look after themselves would help a lot. -  
+His **complexion** was **florid** and his hair white. He was a man to attract immediate **sympathy**. -  
 
 ## words-Dec-25.md ##  
 words/2025/words-Dec-25.md  

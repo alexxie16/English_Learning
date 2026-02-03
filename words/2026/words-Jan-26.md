@@ -18,37 +18,22 @@
 
 ## AD HOC  
 
-[Week 1](#week-1) |  
+[Week 1](#week-1) | [Week 2](#week-2) | [Week 3](#week-3) | [Week 4](#week-4) | [Week 5](#week-5)  
+
+[Daring Fireball](#daring-fireball)  
+
+[007 Movie](#007-Movie)  
+
 
 ------------------  
 
 ### Words with Questions  
 
-inimical  
-
-lesion   
-
-fulminant  
-
-comport  
-
-**aegis**  
-
-abrogate  
-
-hackneyed  
-
-nitrite  
-
-**venal**  
-
-**envisage**   
-
-**supercilious**  
-
-**goad**  
+NA  
 
 ## Special Words  
+
+**timeless**  
 
 **disdain**  
 
@@ -150,38 +135,28 @@ nitrite
 
 ----------------------------  
 
+## Week 5  
+
+> terrestrial: of or relating to or inhabiting the land as opposed to the sea or air  
+
+
+She's wearing a **slinky** black mini-skirt. -    
+
 You can charge twice the current rate for that I provide, and your customers would pay it, **hands down**.   
 Warsh has been a sharp critic of the central bank, arguing that it has grown **unwieldy** and is in need of reform.  
 
-that comport with his affordability strategy to help main street america.  
-vestige of history.  
-
-
-overpass, flyover, skywalk, walkway  
+that **comport** with his affordability strategy to help main street America.  
+**vestige** of history.  
 
 He showed his **aptitude** for music when he was a little boy.  
-
-The Telegram, our column on geopolitics, explains why it’s fashionable to pick on Europe, and why the insults say as much about the leaders lobbing them as about the real-life place.  
-Who’s afraid of Tucker Carlson? - The **provocateur**’s story is also the story of America, says a new biography.  
-Yet this 10-million-year love affair is starting to look rocky.  
-The old idea that a daily tipple is good for you looks shaky, but alcohol’s power to strengthen social bonds may still matter.  
-Strava’s public listing will help it race ahead of competitors. It needs extra financial oomph to expand its coaching offerings.  
-He has suspended his predation of Greenland, but he cannot retract the mistrust it generated.  
-National job stereotypes need updating. Unemployment rates in rich countries are becoming topsy-turvy.  
-The collapse of a Brazilian bank ensnares politicians and judges.  
-Japan’s bond-market tremble reflects a fiscal-monetary **clash**. As investors worry about **budgetary** **laxity**, the central bank prepares for more rate hikes.  
-A new study highlights the brain’s role in immune health. It truly is a question of **mind over matter**.  
 
 Dems **clinch** deal with White House as shutdown **looms**.  
 Five of the six uniformed officers in its high command have been **ousted** since 2022.  
 Two have been accused of **wielding** **unspecified** but “extremely **vile**” influence.  
 
-
 **lymphatic system**.  
-
-Therefore, we're faced with a tradeoff between functionality and scope creep.  
+Therefore, we're faced with a **tradeoff** between functionality and **scope creep**.  
 **screed**: a long **monotonous** **harangue**.  
-
 **Bread and Circuses**  
 
 > "**Hardscrabble**" originated in the late 18th-century United States, combining "hard" and "scrabble" (a variant of **scramble**, meaning a difficult struggle or scratch) to describe rocky, barren land requiring immense effort to farm.   
@@ -207,12 +182,10 @@ Makes sense, to be honest, that Anthropic would **object** to naming it a **homo
 
 -----   
 
-Give Someone (Enough) Rope: To allow someone to act freely, often with the intention that they will make a mistake or get into trouble.  
-
+> **Give Someone (Enough) Rope**: To allow someone to act freely, often with the intention that they will make a mistake or get into trouble.  
 
 Video taken from a nearby business appears to show about a half dozen agents **tackling** a person to the ground, before multiple shots **ring out**.  
 Democrats are **lining up in opposition** to DHS funding, including three who voted to end the last shutdown.  
-
 
 A degree of perspective is just as valuable as a **sense of awe**.  
 Hiring is weak, consumers lack confidence, and the property market has entered the fifth year of a seemingly **intractable** **slump**.  
@@ -231,8 +204,7 @@ But we have to keep trying. We can honor his memory and our own potential today 
 House GOP **staves off** **rebuke** to Trump over Venezuela military action.  
 Though Mr Trump switched to a more **conciliatory** tone, suggesting he would not use force against a fellow member of NATO and promising to make some kind of deal, he revealed a **snarling** contempt for Europe.  
 
-I love how animated her face is. Just by moving her eyebrows she can show a different emotion. She really has the face of an actress. I hope she never gets Botox or a facelift.  
-
+I love how **animated** her face is. Just by moving her **eyebrows** she can show a different emotion. She really has the face of an actress. I hope she never gets **Botox** or a **facelift**.  
 
 **ill-advised, but valiant**.  
 
@@ -248,11 +220,12 @@ Japan’s popular new prime minister gambles on a **snap election**. Will her hi
 MAGA wants a **moratorium** on legal migration, too.  
 **Bereft** of legitimacy, the **reeling** regime in Iran **massacres** its own people.  
 
-
 A lot of hardware people are into it. **Biopharma** people are shockingly the most reserved — they’re a little too **deferential** to the F.D.A.  
 We might all be better off if we let the crazy people try the crazy peptides and **filter down** to the rest of us.  
 
 She was forced to **abdicate** the throne of Spain. -   
+
+### 007 Movie  
 
 You're welcome. Now get yourself **off to hospital**.  
 Most people are just 'hungry' after a **tantalising** hand at poker and a near death experience. Bond is....famished!  
@@ -281,7 +254,7 @@ The **drought** did a lot of harm to the crops
 men in long sexual **drought**.  
 
 He doesn't look like such a **mooch**.  
-You need to get this marriage **annulled** immediately.  
+You need to get this marriage **annulled** immediately. -    
 
 These **souped-up** signatures are also a game changer for smart contracts. -   
 **flash in the pan**.  
@@ -291,7 +264,6 @@ At the same time, I have been also **harping on** the importance of Bitcoin to f
 the upside vol premium is much higher for IBIT than it is for native BTC when you go out beyond 3+ months and increasingly **pronounced** in longer duration.  
 so net net they **cancel each other out** so sounds like a nothingburger, right.  
 One of the signs I am looking at to see when the next **leg up** would be therefore is to see....   
-
 
 They **slit** his throat.  
 Light **shone** through a **slit** under the door. -    
@@ -410,6 +382,17 @@ Her **tattered** clothes **in no way** detracted from her beauty.
 
 ### Economist Newsletter  
 
+The Telegram, our column on geopolitics, explains why it’s fashionable to **pick on** Europe, and why the insults say as much about the leaders **lobbing** them as about the real-life place.  
+Who’s afraid of Tucker Carlson? - The **provocateur**’s story is also the story of America, says a new biography.  
+Yet this 10-million-year **love affair** is starting to look **rocky**.  
+The old idea that a daily **tipple** is good for you looks **shaky**, but alcohol’s power to strengthen social bonds may still matter.  
+Strava’s public listing will help it race ahead of competitors. It needs extra financial **oomph** to expand its coaching offerings.  
+He has suspended his **predation** of Greenland, but he cannot **retract** the mistrust it generated.  
+National job stereotypes need updating. Unemployment rates in rich countries are becoming **topsy-turvy**.  
+The collapse of a Brazilian bank **ensnares** politicians and judges.  
+Japan’s bond-market tremble reflects a fiscal-monetary **clash**. As investors worry about **budgetary** **laxity**, the central bank prepares for more rate hikes.  
+A new study highlights the brain’s role in immune health. It truly is a question of **mind over matter**.  
+
 His administration has begun to **give ground** in Minneapolis.  
 
 No Wi-Fi, no phone charging and seats that don’t recline. You don’t fly Ryanair for the **frills**. But the tickets are cheap. - The low-cost carrier is flying high.  
@@ -420,8 +403,6 @@ The Trump administration’s misleading and **hyperbolic** rhetoric has been a f
 Another horrifying shooting by federal agents in Minneapolis. What happens when armed men are given **impunity**. -    
 Why Congress won’t **restrain** Trump’s assault on allies over Greenland. Republicans either fear the president’s **ire**, or want to strengthen his bargaining position.  
 The Academy Award nominees for Best Picture are entertainingly **frantic** and defiantly political.  
-
-
 
 How to fix India’s **decrepit** cities. Letting them look after themselves would help a lot. -    
 Can Tokyo’s **charms** be replicated elsewhere?  
@@ -522,6 +503,12 @@ Here are the words I need help with:
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
+The fractional reserve system is **predicated on** this belief you can lever up the money.  
+
+
+**ill-advised, but valiant**.  
+> Anger is just fear in a leather jacket.  
+
 He doesn't look like such a **mooch**.  
 
 **preferential treatment**   
@@ -531,6 +518,16 @@ It's simple, intuitive, easy to use wallet with no seed phrase to **sweat over**
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
+
+But we have to keep trying. We can honor his memory and our own potential today by making **headway** in that battle.  
+
+a thick central trunk like a **dandelion** taproot.  
+**vagus nerve**  
+His **complexion** was **florid** and his hair white. He was a man to attract immediate **sympathy**. -    
+
+We should learn to fight with enemy in an **overt and covert** way.  
+
+I love how **animated** her face is. Just by moving her **eyebrows** she can show a different emotion. She really has the face of an actress. I hope she never gets **Botox** or a **facelift**.  
 
 For Google, I presume, that will be Google Keep (which I consider a serviceable, but overall **crummy app** that never seems to have gotten much attention).  
 
