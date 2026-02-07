@@ -2,6 +2,11 @@
 book/poor-charlie.md  
 There is one thing sure about all this complexity, including its touches of behavior lacking the full **punctilio** of honor. -  
 
+## words-Feb-26.md ##  
+words/2026/words-Feb-26.md  
+The next prime minister could **abrogate** the treaty. -  
+Male models are not always so **vacuous** as they are made out to be. -  
+
 ## words-Jan-26.md ##  
 words/2026/words-Jan-26.md  
 She's wearing a **slinky** black mini-skirt. -  

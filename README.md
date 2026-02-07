@@ -10,7 +10,7 @@ Improving English vocabulary for a non native-speaker is taxing and time-consumi
 [Words Review](./words-review.md)
 
 ## 2026
-[Jan](./words/2026/words-Jan-26.md)
+[Jan](./words/2026/words-Jan-26.md) | [Feb](./words/2026/words-Feb-26.md)
 
 
 ## 2025
