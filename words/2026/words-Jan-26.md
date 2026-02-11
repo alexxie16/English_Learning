@@ -313,7 +313,7 @@ She took care to paint her toe nails a **lurid red** or orange. -
 Although a man of blood and violence, Richard was too **impetuous** to be either **treacherous** or habitually cruel. -   
 He did what he could to **allay** his wife's **myriad** fears. -    
 
-You should **limber up** your wits before the test. -    
+You should **limber up** your wits before the test.   
 A short walk will **limber up** the legs.   
 
 **The bar brawl**.  
@@ -354,7 +354,7 @@ Other people had that **glint** in their eye for the work that I dreaded. It cli
 > Internet contraband refers to illegal or restricted digital content, data, or activities (like malware, stolen info, fraud schemes, or censored material) that cross borders or evade controls  
 
 There's no **substitute** for that. It's what we call in Bitcoin proof of work.  
-I have **harbored** this secret for a long, long time. -    
+I have **harbored** this secret for a long, long time.   
 
 In the absence of such authority, informed argument exists **alongside** **phony** outrage, **profiteering**, self-**aggrandizement** and saying things for the hell of it. The result is not merely the radicalization that Mr. Buckley feared but a kind of omnidirectional incoherence.  
 I would eat my hat if Alan Dye knew what was wrong and **gross** about this **dialog box**. This is exactly the sort of sweating the **idiomatic** usability details thing that has frequently been wrong in Apple software in the last decade. -    
@@ -369,7 +369,7 @@ It's almost like a green **gauze veil**.
 His head was still **wrapped in gauze**. -    
 
 When there's no **holds barred**, it means no rules.  
-I mean, she wrote a **memoir** that was very kind of **no holds barred**. -    
+I mean, she wrote a **memoir** that was very kind of **no holds barred**.   
 Despite these **quibbles**, Signal remains widely regarded among security professionals as the most secure messenger app that capable of going head-to-head with.  
 
 **preferential treatment**   
@@ -400,7 +400,7 @@ The militia is still a force in Lebanese politics, but its ability to **menace**
 How Russian **brainrot** became a hit for children.  
 
 The Trump administration’s misleading and **hyperbolic** rhetoric has been a feature of its **siege** of Minneapolis, a notional campaign of immigration enforcement whose larger and transparent purpose has been provocation and **political theatre**.  
-Another horrifying shooting by federal agents in Minneapolis. What happens when armed men are given **impunity**. -    
+Another horrifying shooting by federal agents in Minneapolis. What happens when armed men are given **impunity**.   
 Why Congress won’t **restrain** Trump’s assault on allies over Greenland. Republicans either fear the president’s **ire**, or want to strengthen his bargaining position.  
 The Academy Award nominees for Best Picture are entertainingly **frantic** and defiantly political.  
 

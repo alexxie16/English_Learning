@@ -146,7 +146,7 @@ In fact, all meat contains tryptophan. So, consuming turkey at Thanksgiving shou
 Men who use **steroids** are motivated by **sheer vanity**.  
 Her sarcasm wounded his **vanity**.  
 
-We could hear the **swish** and **gurgle** of water against the **hull**. -  
+We could hear the **swish** and **gurgle** of water against the **hull**.   
 The trees are vibrant and **swish** in the gentle breeze.  
 
 Dump the **slurry** into the trash (or toilet only if your pipes are good — coffee grounds are usually not recommended for drains).  
@@ -204,7 +204,7 @@ So you have to be a bit more **discerning** and a bit more **attentive**.
 You have the remotest **inkling** what that means?  
 He gave me an **inkling** of what was to come.  
 
-Only a human can invent something as **insipid** as love. -  
+Only a human can invent something as **insipid** as love.   
 Putting aside the **political slant** of Grokipedia, a 1,300-word article being better than a 7,000-word one **exemplifies** the current shortcomings of LLMs as creative engines.  
 
 **beige book**.   

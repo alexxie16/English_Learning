@@ -194,7 +194,7 @@ He may say he is **emanating**—in effect nominating another adult to be recogn
 The coach effect captures how we can **marshal** motivation by offering the encouragement to others that we need for ourselves.  
 After failing to reach the summit of Mount Everest in 2002, Alison couldn't get the **naysayers** **out of her head**.  
 
-Trump sues Wall Street Journal for **libel** over Epstein letter. -    
+Trump sues Wall Street Journal for **libel** over Epstein letter.     
 In the same way that science fiction is not just about **whiz-bang** **gadgetry** or **swooping** starships but also about engaging with **mind-boggling** ideas and thought experiments.   
 
 A nearly 10-hour **standoff** over combining a trio of crypto bills into a single package was resolved Wednesday night, putting the GENIUS Act on a **glide** path to President Trump's desk.  

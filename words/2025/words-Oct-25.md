@@ -188,7 +188,7 @@ Many observers (The Economist included) worried about the global economy when Do
 A **posthumous** memoir by Virginia Giuffre, a sex-trafficking victim who said she was made to sleep with the prince while just 17, promises new revelations.   
 Nobody knows for sure whether a really painful downturn is **on the way**, **let alone** when.  
 Savage drone warfare **engulfs** Ukraine’s front line. Casualties litter the Donbas amid a bloody Kremlin push.  
-If the EU doesn’t **woo** the Western Balkans, Russia or China might, writes a diplomat. -    
+If the EU doesn’t **woo** the Western Balkans, Russia or China might, writes a diplomat.   
 Donald Trump has unleashed an M&A **bonanza**.  
 Middle managers, famed for holding meetings that could have been emails, are **on their way out**.  
 South-East Asia is being **swamped with** Chinese goods. It is adding to the pain from Trump’s tariffs.  

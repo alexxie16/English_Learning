@@ -158,7 +158,7 @@ Marcus Aurelius says it’s madness to keep being the same person, “**mauled a
 
 A **deviated septum** happens when the thin wall between the **nasal passages**, called the **nasal septum**, is off to one side. The nasal septum being off-center, called deviated, makes one side of the inside of the nose smaller. A deviated septum can block one side of the nose. The reduced airflow can make it hard to breathe.  
 
-**Dismantling** **usury** through Bitcoin. -   
+**Dismantling** **usury** through Bitcoin.   
 Fed, in **subordination** to the Treasure.   
 His attendance record was **spotty**.  
 **fire hydrant**.  

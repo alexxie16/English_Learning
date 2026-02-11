@@ -53,6 +53,10 @@ nitrite
 
 ## Special Words  
 
+**sparingly**  
+
+**antithesis**  
+
 **overly**  
 
 **monomaniacal**  
@@ -76,6 +80,12 @@ amplify
 **belittle**  
 
 -------------------------  
+
+It’s a bit on the upper bound of my budget,   
+My finger dexterity isn't quite ready for such acrobatics.  
+
+Tempted to escape from unremittingly grim news? You’re not alone.  
+Usually I'd say, take them to the curb,   
 
 ## Words Gallery  
 
@@ -109,6 +119,7 @@ amplify
 ----------------------------  
 
 **Sycophant**  
+elf, goblins, smurf,   
 
 **Ape, gorilla, chimpanzee, primate**,   
 **decrepit, dilapidated, desolate**  
@@ -117,11 +128,27 @@ amplify
 **blow up, blow over, blow off**,   
 **buckle up, buckle down**.   
 
+
+You could argue the whole religious tradition is a technology designed to inculpate people with empathy.   
+
+You can stand the ups and downs, and the vagaries of being wrong, I think it's a great area.  
+
+
+> I would not take a no for answer.  
+
+> Crypto is now old enough, large enough, and used enough that its economics are no longer theoretical. The data is no longer sparse. Consequently, the most valuable exercise is not to project stories forward, but to reconcile reality backward.  
+
+Value disproportionately accrues where users are aggregated and where offramps are controlled.  
+
+> Value predictably migrates toward user-facing aggregators. Meanwhile, demand and revenue remain tightly levered to macro conditions, making the system more cyclical than many expect.  
+
+Regulatory **plumbing** matters as well. Developments such as the Federal Reserve’s Skinny Master Account proposal warrant close attention.  
+
+
 **rogue**: a **deceitful** and unreliable scoundrel.  
 Harry felt a huge **jolt of excitement**.  
 Her angry words **jolted** him out of the belief that she loved him.  
 The plane landed with a **jolt**.  
-
 
 ### The Adolescence of Technology  
 
