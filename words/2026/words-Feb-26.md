@@ -25,14 +25,6 @@
 
 ### Words with Questions  
 
-paltry   
-
-inimical  
-
-lesion   
-
-fulminant  
-
 comport  
 
 **aegis**  
@@ -53,6 +45,16 @@ nitrite
 
 ## Special Words  
 
+**myopic**  
+
+**Tiered**  
+
+**saccharine**  
+
+**inexcusable**  
+
+**imperative**  
+
 **sparingly**  
 
 **antithesis**  
@@ -69,11 +71,17 @@ nitrite
 
 ## Verb Words  
 
+**curate**  
+
+**outweigh**  
+
+**checkmate**  
+
 **plant**  
 
 **derail**  
 
-amplify   
+**amplify**   
 
 **dissipate**  
 
@@ -81,13 +89,21 @@ amplify
 
 -------------------------  
 
-It’s a bit on the upper bound of my budget,   
-My finger dexterity isn't quite ready for such acrobatics.  
-
-Tempted to escape from unremittingly grim news? You’re not alone.  
-Usually I'd say, take them to the curb,   
 
 ## Words Gallery  
+
+Imperative, paramount, crucial/vital, first and foremost,   
+salient, prominent, pivotal,   
+
+elf, goblins, smurf,   
+**Ape, gorilla, chimpanzee, primate**,   
+**decrepit, dilapidated, desolate**  
+
+**derogatory, disparage, slur**   
+**blow up, blow over, blow off**,   
+**buckle up, buckle down**.   
+
+**cede, intercede, accede, recede**.  
 
 **bogus, spurious, erroneous**  
 
@@ -116,34 +132,67 @@ Usually I'd say, take them to the curb,
 
 **covet, overt, covert, coward**   
 
+**Sycophant**  
+
+exonerate,   
+
 ----------------------------  
 
-**Sycophant**  
-elf, goblins, smurf,   
+**Paltry, meanly, meager, modest, dismal**  
+scuffle, brawl, rowdy,   
 
-**Ape, gorilla, chimpanzee, primate**,   
-**decrepit, dilapidated, desolate**  
+TUN inspects more packets. On modern Apple Silicon Macs, the overhead is small. You probably won’t notice unless you...  
 
-**derogatory, disparage, slur**   
-**blow up, blow over, blow off**,   
-**buckle up, buckle down**.   
+Satoshi is clearly being explicitly deferential to the wishes of users, and in the context of a critical and foundational decision like the blocksize limit.  
 
 
-You could argue the whole religious tradition is a technology designed to inculpate people with empathy.   
 
-You can stand the ups and downs, and the vagaries of being wrong, I think it's a great area.  
+**shoot from hip**.  
+
+Use your circustance to become even better than otherwise would be, and revel in your success when you achieve it.  
+
+**A grand gesture**.  
+
+One federal officier was injured in that scuffle.  
+
+You're the captain of the Titanic, laughing off that little piece of ice jutting out from the surface of the water, only to realize your mistake when you crash into the reality that lies beneath it.  
+
+Cautious and **conscientious**.  
+The authorities were in **hot water**.  
+
+**Tiered** Compute: Using smaller, faster models for things like basic classification and routing, while reserving frontier models for complex reasoning.  
+
+This **subdued** profitability underscores a structurally fragile environment, where upside momentum may struggle to sustain without meaningful demand expansion.  
+
+
+> Pressure is a beautiful thing.  
+> I gave him a stairwell pitch.   
+
+We should want the USD to remain the world reserve currency status, it's **imperative**.  
+
+> It's easy to interrupt and to **scold**, to insult. You want to know what is hard?   
+
+My finger **dexterity** isn't quite ready for such **acrobatics**.  
+
+Tempted to escape from **unremittingly** **grim news**? You’re not alone.  
+Usually I'd say, **take them to the curb**   
+
+> In the ring, our opponents can **gouge** us with their nails or **butt** us with their heads and leave a bruise, but we don’t denounce them for it or get upset with them or regard them from then on as violent types  
+
+You could argue the whole religious tradition is a technology designed to **inculpate** people with empathy. -   
+
+You can stand the ups and downs, and the **vagaries** of being wrong, I think it's a great area.  
 
 
 > I would not take a no for answer.  
 
-> Crypto is now old enough, large enough, and used enough that its economics are no longer theoretical. The data is no longer sparse. Consequently, the most valuable exercise is not to project stories forward, but to reconcile reality backward.  
+> Crypto is now old enough, large enough, and used enough that its economics are no longer **theoretical**. The data is no longer **sparse**. Consequently, the most valuable exercise is not to project stories forward, but to reconcile reality backward.  
 
-Value disproportionately accrues where users are aggregated and where offramps are controlled.  
+> Value disproportionately **accrues** where users are aggregated and where offramps are controlled.  
 
 > Value predictably migrates toward user-facing aggregators. Meanwhile, demand and revenue remain tightly levered to macro conditions, making the system more cyclical than many expect.  
 
 Regulatory **plumbing** matters as well. Developments such as the Federal Reserve’s Skinny Master Account proposal warrant close attention.  
-
 
 **rogue**: a **deceitful** and unreliable scoundrel.  
 Harry felt a huge **jolt of excitement**.  
@@ -168,10 +217,10 @@ We can try to develop an understanding by correlating the model’s “**neurons
 There is also a genuine risk that **overly** **prescriptive** legislation ends up imposing tests or rules that don’t actually improve safety but that waste a lot of time.  
 those of us who believe in this cause should make our case that these risks are real and that our fellow citizens need to **band** together to protect themselves.   
 
-
-
-**predisposition** toward non‑interventionism.  
+The current admin has a **predisposition** towards non‑interventionism.  
 The **ramifications** of this are significant and disruptive. This time, it is different.  
+
+### Jeff Park article   
 
 China’s growth model faces structural limits that **preclude** a return to prior expansion rates.  
 in his The Adolescence of Technology, the CCP is the most **autocratic** country in the world that has the greatest likelihood of surpassing U.S. capabilities. -    
@@ -183,12 +232,17 @@ After all, the reason China is historically called “the Middle Kingdom” is b
 
 He managed to **croak** a greeting.  
 I had a sore throat and could only **croak**.   
+
+### Pulp Fiction   
+
 If she **croaks on** me, I'm a fucking **green spot**. -  
 I don't mean disrespect, Okay? I respect you, I just don't like people **barking orders** at me, that's all.  
 If I'm **curt** with you, because time is a factor.   
 
 I **resigned** myself to the fact that I probably wouldn't make it home until the following evening.  
 Why it matters: The AI-generated video **depicting** the Obamas as **apes**, which prompted intense backlash.  
+
+### Darking Fireball   
 
 He **eschews** **hackneyed** metaphors. He uses the active, not passive, voice — for the most part.  
 The list is long, the stories **searing**. But Cook mentions nothing more specific than “everyone that’s been affected”.  
@@ -199,8 +253,8 @@ The post **roiled** the White House. Staffers **reflexively** defended the clip,
 **Corporal** punishment in public schools is forbidden.  
 This is yet another **slur** on the integrity of the police.   
 
-He received a **paltry** annuity of $100.  
-In their pages Americans were often portrayed as **crass**, loud, **bumptious**.  
+He received a **paltry** annuity of $100. -    
+In their pages Americans were often portrayed as **crass**, loud, **bumptious**. -    
 She's a bit **woozy** but the baby's fine.  
 I'd better **buckle down** to those reports.  
 Alright, time to **buckle down** and study for that test next week.  
@@ -216,7 +270,6 @@ The next prime minister could **abrogate** the treaty. -
 VC-Backed Startups are **Low Status**.  
 Choose any path in life **closes off** other paths.  
 **critical mass**.  
-
 
 A new nuclear arms race is **in the offing**.  
 In America science-**sceptics** are now in charge.  
@@ -242,6 +295,8 @@ Male models are not always so **vacuous** as they are made out to be. -
 
 ### Economist Newsletter  
 
+The Epstein files are **sullying** Norway’s squeaky-clean image.   
+
 
 ## Words Explain   
 
@@ -260,11 +315,63 @@ Here are the words I need help with:
 
 -----------------------  
 
+**Paltry**  
+   - **Definition**: (of an amount) small or meager; (of a person or thing) petty, trivial, or worthless.  
+   - **Common Usage**: Moderately common, especially when describing amounts of money, opportunities, or efforts. It's used to convey a sense of insignificance or meagerness.  
+   - **Examples**:  
+     - He was insulted by the paltry raise he received after all his hard work.  
+     - The city council offered only a paltry sum to help the displaced families.  
+   - **Alternatives**: Meager, trivial, insignificant, negligible, paltry.  
+
+---  
+
+**Inimical**  
+   - **Definition**: Tending to obstruct or harm; unfriendly or hostile.  
+   - **Common Usage**: Less common in everyday conversation, it's more typically found in formal writing, academic discussions, or legal contexts. It describes something that is actively harmful or adverse.  
+   - **Examples**:  
+     - Excessive pollution creates an inimical environment for wildlife.  
+     - Their political views were inimical to the very principles of democracy.  
+   - **Alternatives**: Hostile, detrimental, adverse, harmful, antagonistic.  
+
+---  
+
+**Lesion**  
+   - **Definition**: A region in an organ or tissue which has suffered damage through injury or disease, such as a wound, ulcer, abscess, or tumor.  
+   - **Common Usage**: Fairly common, especially in medical, scientific, or healthcare contexts. While not an everyday word, people understand it when discussing injuries or disease.  
+   - **Examples**:  
+     - The doctor found a small lesion on the patient's lung during the biopsy.  
+     - A skin lesion can sometimes be a sign of a more serious underlying condition.  
+   - **Alternatives**: Wound, injury, abnormality, damage, sore.  
+
+---  
+
+**Fulminant**  
+   - **Definition**: Severe and sudden in onset; developing suddenly and intensely. Often used in a medical context.  
+   - **Common Usage**: Not common in daily life. It is almost exclusively used in medical and scientific discourse to describe conditions that develop very rapidly and aggressively.  
+   - **Examples**:  
+     - The patient developed fulminant liver failure, requiring an immediate transplant.  
+     - Fulminant infections can lead to a rapid decline in health if not treated quickly.  
+   - **Alternatives**: Acute, sudden, rapid, explosive, virulent (when describing a disease).  
+
 
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
+We should want the USD to remain the world reserve currency status, it's **imperative**.  
+Usually I'd say, **take them to the curb**   
+You could argue the whole religious tradition is a technology designed to **inculpate** people with empathy.   
+
+> I would not take a no for answer.  
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
+
+Buy bitcoin when a lot of nocoiners are posting red screenshot and **gloating** on Twitter.   
+
+The current admin has a **predisposition** towards non‑interventionism.  
+
+Value disproportionately **accrues** where users are aggregated and where offramps are controlled.  
+
+My finger **dexterity** isn't quite ready for such **acrobatics**.  
+Tempted to escape from **unremittingly** **grim news**? You’re not alone.  
 
