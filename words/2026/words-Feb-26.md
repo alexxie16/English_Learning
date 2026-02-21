@@ -71,6 +71,8 @@ nitrite
 
 ## Verb Words  
 
+**clarify**  
+
 **curate**  
 
 **outweigh**  
@@ -92,10 +94,10 @@ nitrite
 
 ## Words Gallery  
 
-Imperative, paramount, crucial/vital, first and foremost,   
-salient, prominent, pivotal,   
+**Imperative, paramount, crucial/vital, first and foremost**,   
+**salient, prominent, pivotal**   
 
-elf, goblins, smurf,   
+**elf, goblins, smurf**,   
 **Ape, gorilla, chimpanzee, primate**,   
 **decrepit, dilapidated, desolate**  
 
@@ -139,21 +141,33 @@ exonerate,
 ----------------------------  
 
 **Paltry, meanly, meager, modest, dismal**  
-scuffle, brawl, rowdy,   
+**scuffle, brawl, rowdy**   
+burn, char, scorch  
+
+
+When people talk about Bitcoin, they lump Bitcoin with crypto.  
+
+
+
+**ambient noise**  
+
+
+Toast the dried chiles in a hot pan until they start to singe.  
+The iron's too hot, you'll singe the dress.  
+
+
+Who **wrangled** the best trade deal from Donald Trump?  
 
 TUN inspects more packets. On modern Apple Silicon Macs, the overhead is small. You probably won’t notice unless you...  
-
-Satoshi is clearly being explicitly deferential to the wishes of users, and in the context of a critical and foundational decision like the blocksize limit.  
-
-
+Satoshi is clearly being explicitly deferential to the wishes of users, and in the context of a critical and foundational dcision like the blocksize limit.  
 
 **shoot from hip**.  
 
-Use your circustance to become even better than otherwise would be, and revel in your success when you achieve it.  
+Use your circumstance to become even better than otherwise would be, and revel in your success when you achieve it.  
 
 **A grand gesture**.  
 
-One federal officier was injured in that scuffle.  
+One federal officer was injured in that **scuffle**.  
 
 You're the captain of the Titanic, laughing off that little piece of ice jutting out from the surface of the water, only to realize your mistake when you crash into the reality that lies beneath it.  
 
@@ -220,6 +234,9 @@ those of us who believe in this cause should make our case that these risks are 
 The current admin has a **predisposition** towards non‑interventionism.  
 The **ramifications** of this are significant and disruptive. This time, it is different.  
 
+I **resigned** myself to the fact that I probably wouldn't make it home until the following evening.  
+Why it matters: The AI-generated video **depicting** the Obamas as **apes**, which prompted intense backlash.  
+
 ### Jeff Park article   
 
 China’s growth model faces structural limits that **preclude** a return to prior expansion rates.  
@@ -230,6 +247,8 @@ Even more important than scale is **doctrine**. The PLA has moved away from rigi
 More stories will likely emerge in the near future, some planted by CCP **psyops** and some by U.S. agents, to push a narrative that will **straddle** between two truths...   
 After all, the reason China is historically called “the Middle Kingdom” is because it operated under a wide **vassalage** system for centuries, for the deep mistrust of the military was a constant feature of its sprawling empire **ingrained** since its founding history.  
 
+--------------  
+
 He managed to **croak** a greeting.  
 I had a sore throat and could only **croak**.   
 
@@ -239,8 +258,7 @@ If she **croaks on** me, I'm a fucking **green spot**. -
 I don't mean disrespect, Okay? I respect you, I just don't like people **barking orders** at me, that's all.  
 If I'm **curt** with you, because time is a factor.   
 
-I **resigned** myself to the fact that I probably wouldn't make it home until the following evening.  
-Why it matters: The AI-generated video **depicting** the Obamas as **apes**, which prompted intense backlash.  
+---------------  
 
 ### Darking Fireball   
 
