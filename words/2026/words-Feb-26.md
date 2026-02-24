@@ -47,6 +47,10 @@ nitrite
 
 ## Special Words  
 
+foresight  
+
+**slant, slanted**  
+
 **purveyor**  
 
 **merits**  
@@ -77,6 +81,10 @@ nitrite
 
 ## Verb Words  
 
+**grapple**  
+
+**fleeting, flitting**  
+
 **clarify**  
 
 **curate**  
@@ -100,7 +108,11 @@ nitrite
 
 ## Words Gallery  
 
-big-hearted, open-handed,   
+**Paltry, meanly, meager, modest, dismal**  
+**scuffle, brawl, rowdy**   
+burn, char, scorch  
+
+**big-hearted, open-handed**   
 
 **Imperative, paramount, crucial/vital, first and foremost**,   
 **salient, prominent, pivotal**   
@@ -148,17 +160,56 @@ exonerate,
 
 ----------------------------  
 
-**Paltry, meanly, meager, modest, dismal**  
-**scuffle, brawl, rowdy**   
-burn, char, scorch  
 
-I miss you like a hog miss the slop, like baby miss mammy's titty.  
+This is a corollary to this, which at first glance might seem contradictory, but which reinforces the ability to deal unambiguously with a given data structure: don’t pretend different data structures are the same thing. We see this mistake in JavaScript, where Arrays are actually a special type of Object.  
+
+For this reason, Nostr’s core protocol entirely punts on the problem — the created_at timestamp on events is supplied unilaterally by the event author, who can falsify the timestamp with no real constraints.  
 
 
-The president blasted the court for not releasing a decision sooner, and he accused justices of being swayed by foreign interests.  
-But the authority he mentioned is limited to 150 days and would require Congress to keep the levies in place.  
-Businesses seem to be the big winners, but they aren't out of the woods yet.  
 
+What are the popular apps build on Nostr? How are they different from the rest of world?   
+
+
+
+cognitive dissonance.  
+
+He had a shifty face and previous convictions.  
+
+
+> I’m a gift giver. While some people find shopping for their loved ones to be a difficult task, I enjoy it immensely and even **revel** in the challenge sometimes.  
+
+Yeah, these chicks latched on and won't let go.  
+She always latches on to the latest craze.   
+That’s using reason to temper our impulses and our emotions.  
+As Epictetus said, it’s about putting our impressions up to the test.  
+The Stoics knew about tyranny. They knew about exile and torture and duress.  
+> They possessed freedom of choice and they had to use it. They had to **hold out**. They should not give up, out of fear or anticipation, **prematurely**. They should not **hand over** their focus or their freedom until the tyrant actually made them.  
+
+Agent security is woefully underdeveloped. Email access alone can enable full account takeover.  
+**blast radius**.  
+
+Some tools can feel productive while not actually creating **tangible value**.  
+
+### Week 9   
+
+Instead of treating beauty as an **airy** abstraction, to be either **blathered** about or avoided depending on how one feels about airy abstractions.  
+
+Quick **preliminary** guidance.  
+**eat crow**.  
+
+a **whiff** of insolvency.  
+
+I want to know your **slant** on the problem.  
+The editorial had an anti-union **slant**.  
+
+
+Kiwi **mediation** if things go wrong.  
+I miss you like a **hog** miss the **slop**, like baby miss mammy's **titty**.  
+One Important Question Before Final **Verdict**.  
+
+The president **blasted** the court for not releasing a decision sooner, and he accused justices of being **swayed** by foreign interests.  
+But the authority he mentioned is limited to 150 days and would require Congress to keep the **levies** in place.  
+Businesses seem to be the big winners, but they aren't **out of the woods** yet.  
 
 When people talk about Bitcoin, they **lump Bitcoin with** crypto.  
 This is a particularly damning problem in a social media era where it’s easy to plug into the 24/7 IV drip of information that’s just noise masquerading as signal.  
@@ -170,25 +221,22 @@ Matt Odell **Maligning** BIP-110.
 
 **ambient noise**  
 
-
-Toast the dried chiles in a hot pan until they start to singe.  
-The iron's too hot, you'll singe the dress.  
-
-
+Toast the dried chiles in a hot pan until they start to **singe**.  
+The iron's too hot, you'll **singe** the dress.  
 Who **wrangled** the best trade deal from Donald Trump?  
 
-TUN inspects more packets. On modern Apple Silicon Macs, the overhead is small. You probably won’t notice unless you...  
-Satoshi is clearly being explicitly deferential to the wishes of users, and in the context of a critical and foundational dcision like the blocksize limit.  
+TUN inspects more packets. On modern Apple Silicon Macs, the **overhead** is small. You probably won’t notice unless you...  
+Satoshi is clearly being explicitly **deferential** to the wishes of users, and in the context of a critical and foundational decision like the blocksize limit.  
 
 **shoot from hip**.  
 
-Use your circumstance to become even better than otherwise would be, and revel in your success when you achieve it.  
+Use your **circumstance** to become even better than otherwise would be, and **revel** in your success when you achieve it.  
 
 **A grand gesture**.  
 
 One federal officer was injured in that **scuffle**.  
 
-You're the captain of the Titanic, laughing off that little piece of ice jutting out from the surface of the water, only to realize your mistake when you crash into the reality that lies beneath it.  
+You're the captain of the Titanic, **laughing off** that little piece of ice **jutting out** from the surface of the water, only to realize your mistake when you crash into the reality that **lies beneath** it.  
 
 Cautious and **conscientious**.  
 The authorities were in **hot water**.  
@@ -197,6 +245,7 @@ The authorities were in **hot water**.
 
 This **subdued** profitability underscores a structurally fragile environment, where upside momentum may struggle to sustain without meaningful demand expansion.  
 
+## Week 8   
 
 > Pressure is a beautiful thing.  
 > I gave him a stairwell pitch.   
