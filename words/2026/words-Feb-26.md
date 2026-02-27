@@ -47,7 +47,9 @@ nitrite
 
 ## Special Words  
 
-foresight  
+**opportunist**  
+
+**foresight**  
 
 **slant, slanted**  
 
@@ -108,6 +110,11 @@ foresight
 
 ## Words Gallery  
 
+**nylon, polyester, polyethylene(PE), resin**,   
+**ethylene, ethanol, methanol, hydrogen, nitrogen, methane, ammonia**.  
+**subterfuge, pretext, pretense, ploy, ruse**,   
+**mace, sarin, mustard**,  
+
 **Paltry, meanly, meager, modest, dismal**  
 **scuffle, brawl, rowdy**   
 burn, char, scorch  
@@ -160,39 +167,48 @@ exonerate,
 
 ----------------------------  
 
+government is quired to give you all the evidence they have against you, whether that's good evidence or bad evidence. It's called exculpatory evidence.  
 
-This is a corollary to this, which at first glance might seem contradictory, but which reinforces the ability to deal unambiguously with a given data structure: don’t pretend different data structures are the same thing. We see this mistake in JavaScript, where Arrays are actually a special type of Object.  
+> The alternative is far worse.  
 
-For this reason, Nostr’s core protocol entirely punts on the problem — the created_at timestamp on events is supplied unilaterally by the event author, who can falsify the timestamp with no real constraints.  
-
-
-
-What are the popular apps build on Nostr? How are they different from the rest of world?   
+But when Jason got “**rascally**” regarding MacOS 26 Tahoe in this one, I wanted to reach out and **strangle** him.  
 
 
+While the stock **cratered**, Bailey was cycling through lenders like a gambler working the floor.  
+The 21M cap is now functionally irrelevant because Jane Street can generate unlimited **phantom** exposure to Bitcoin through derivatives that never touch the base layer and never appear in any public filing.  
 
-cognitive dissonance.  
+My top priority, each day, is to move my body and **break a sweat**.  
+You had to be technically **astute** to operate the ham radio.   
 
-He had a shifty face and previous convictions.  
+BIP-110 is one of the first attempts to **enshrine** strict data limits into the consensus rules to defend that monetary focus.  
+Ordinals & Inscriptions Bring Data Storage to the **Fore**.  
 
+> This is a **corollary** to this, which at first glance might seem contradictory, but which reinforces the ability to deal unambiguously with a given data structure: don’t pretend different data structures are the same thing. We see this mistake in JavaScript, where Arrays are actually a special type of Object.  
+
+For this reason, Nostr’s core protocol entirely **punts on** the problem — the created_at timestamp on events is supplied unilaterally by the event author, who can falsify the timestamp with no real constraints.  
+
+**cognitive dissonance**.  
+
+He had a **shifty** face and previous **convictions**.  
 
 > I’m a gift giver. While some people find shopping for their loved ones to be a difficult task, I enjoy it immensely and even **revel** in the challenge sometimes.  
 
-Yeah, these chicks latched on and won't let go.  
-She always latches on to the latest craze.   
-That’s using reason to temper our impulses and our emotions.  
-As Epictetus said, it’s about putting our impressions up to the test.  
-The Stoics knew about tyranny. They knew about exile and torture and duress.  
-> They possessed freedom of choice and they had to use it. They had to **hold out**. They should not give up, out of fear or anticipation, **prematurely**. They should not **hand over** their focus or their freedom until the tyrant actually made them.  
+Yeah, these chicks **latched on** and won't let go.  
+She always **latches on** to the latest craze.   
+That’s using reason to **temper** our impulses and our emotions.  
+As Epictetus said, it’s about putting our impressions **up to the test**.  
+The Stoics knew about tyranny. They knew about exile and torture and **duress**.  
 
-Agent security is woefully underdeveloped. Email access alone can enable full account takeover.  
+> They possessed freedom of choice and they had to use it. They had to **hold out**. They should not give up, out of fear or anticipation, **prematurely**. They should not **hand over** their focus or their freedom until the tyrant actually **made them**.  
+
+Agent security is **woefully** underdeveloped. Email access alone can enable full account takeover.  
 **blast radius**.  
 
 Some tools can feel productive while not actually creating **tangible value**.  
 
-### Week 9   
+### Week 8   
 
-Instead of treating beauty as an **airy** abstraction, to be either **blathered** about or avoided depending on how one feels about airy abstractions.  
+Instead of treating beauty as an **airy** abstraction, to be either **blathered** about or avoided depending on how one feels about airy abstractions....  
 
 Quick **preliminary** guidance.  
 **eat crow**.  
@@ -201,7 +217,6 @@ a **whiff** of insolvency.
 
 I want to know your **slant** on the problem.  
 The editorial had an anti-union **slant**.  
-
 
 Kiwi **mediation** if things go wrong.  
 I miss you like a **hog** miss the **slop**, like baby miss mammy's **titty**.  
@@ -212,9 +227,8 @@ But the authority he mentioned is limited to 150 days and would require Congress
 Businesses seem to be the big winners, but they aren't **out of the woods** yet.  
 
 When people talk about Bitcoin, they **lump Bitcoin with** crypto.  
-This is a particularly damning problem in a social media era where it’s easy to plug into the 24/7 IV drip of information that’s just noise masquerading as signal.  
-As a purveyor of ideas, I think the Noise Bottleneck provides a helpful lens through which to evaluate and establish a bar for what I share.  
-
+This is a particularly **damning** problem in a social media era where it’s easy to plug into the 24/7 **IV drip** of information that’s just noise **masquerading** as signal. -    
+As a **purveyor** of ideas, I think the Noise Bottleneck provides a helpful **lens** through which to evaluate and establish a bar for what I share.  
 
 Do you like **making less of** people?   
 Matt Odell **Maligning** BIP-110.  
@@ -230,7 +244,7 @@ Satoshi is clearly being explicitly **deferential** to the wishes of users, and 
 
 **shoot from hip**.  
 
-Use your **circumstance** to become even better than otherwise would be, and **revel** in your success when you achieve it.  
+Use your **circumstance** to become even better than otherwise would be, and **revel** in your success when you achieve it. -    
 
 **A grand gesture**.  
 
@@ -245,10 +259,10 @@ The authorities were in **hot water**.
 
 This **subdued** profitability underscores a structurally fragile environment, where upside momentum may struggle to sustain without meaningful demand expansion.  
 
-## Week 8   
+## Week 7   
 
 > Pressure is a beautiful thing.  
-> I gave him a stairwell pitch.   
+> I gave him a **stairwell** pitch.   
 
 We should want the USD to remain the world reserve currency status, it's **imperative**.  
 
@@ -381,6 +395,21 @@ Male models are not always so **vacuous** as they are made out to be. -
 
 ### Economist Newsletter  
 
+China’s humanoids are **dazzling** the world. Who will buy them?  
+Will investing in Russia really bring America a $12trn **bonanza**?  
+We've also been looking at another **facet** of inequality: that between the sexes.  
+Donald Trump’s schemes to **juice** the economy.  
+After four years of war against Ukraine, Russia’s economy is **ailing**.  
+Prediction markets are **rife** with insider betting. That does not mean regulators should **stamp it out**.   
+And Bad Bunny’s halftime performance at tonight’s Super Bowl may give the impression Spanish in America is **inexorably** rising.  
+He showed up at a cafe without an **entourage** or bodyguards, answered all my questions in flawless English, then politely excused himself after an hour to go to his next appointment.  
+Using 80 years of data from roughly 180 countries, our data team show that a constriction of press freedom is a strong predictor of a future increase in **graft**.   
+Typically these **spasms** follow some shocking announcement from Donald Trump’s administration, such as the unveiling of his “Liberation Day” tariffs.  
+Can emerging markets’ **stellar run** continue?  
+How democracies are using **autocratic** tools to **muzzle** journalism. As scrutiny of government **withers**, corruption thrives.  
+Replace purged generals with **subservient** Yes men.   
+**Off screen**, that sort of **cougar-cub** relationship is much **rarer**.  
+
 The Epstein files are **sullying** Norway’s squeaky-clean image.   
 
 
@@ -443,6 +472,10 @@ Here are the words I need help with:
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
+I miss you like a **hog** miss the **slop**, like baby miss mammy's **titty**.  
+When people talk about Bitcoin, they **lump Bitcoin with** crypto.  
+
+
 We should want the USD to remain the world reserve currency status, it's **imperative**.  
 Usually I'd say, **take them to the curb**   
 You could argue the whole religious tradition is a technology designed to **inculpate** people with empathy.   
@@ -451,6 +484,23 @@ You could argue the whole religious tradition is a technology designed to **incu
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
+
+As a **purveyor** of ideas, I think the Noise Bottleneck provides a helpful **lens** through which to evaluate and establish a bar for what I share.  
+One federal officer was injured in that **scuffle**.  
+Cautious and **conscientious**.  
+The authorities were in **hot water**.  
+
+My finger **dexterity** isn't quite ready for such **acrobatics**.  
+
+> Value disproportionately **accrues** where users are aggregated and where offramps are controlled.  
+
+
+My top priority, each day, is to move my body and **break a sweat**.  
+You had to be technically **astute** to operate the ham radio.   
+He had a **shifty** face and previous **convictions**.  
+Some tools can feel productive while not actually creating **tangible value**.  
+I want to know your **slant** on the problem.  
+Kiwi **mediation** if things go wrong.  
 
 Buy bitcoin when a lot of nocoiners are posting red screenshot and **gloating** on Twitter.   
 

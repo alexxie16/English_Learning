@@ -202,7 +202,7 @@ In the talk, he attacks the accepted and practiced **orthodoxy** of his audience
 Charlie has a deep and **abiding** belief in philanthropy, as is demonstrated by his own generous giving, and he seeks here to save the **philanthropic** community from itself.  
 If Charlie can emerge from that state successfully, he seems to be saying, so can the **wayward** foundation managers in his audience.  
 
-There is one thing sure about all this complexity, including its touches of behavior lacking the full **punctilio** of honor. -  
+There is one thing sure about all this complexity, including its touches of behavior lacking the full **punctilio** of honor.   
 easily reach 3 percent of foundation net worth per **annum**  
 
 > And people who are successfully selling something, as investment counselors do, make Swedish drivers sound like depressives. Virtually every investment expert’s public assessment is that he is above average, no matter what the evidence to the contrary.  

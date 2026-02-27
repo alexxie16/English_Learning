@@ -166,7 +166,7 @@ Therefore, we're faced with a **tradeoff** between functionality and **scope cre
 
 "Humanity is about to be **handed** almost unimaginable power, and it is deeply unclear whether our social, political, and technological systems **possess** the maturity to **wield** it."  
 
-He was arrested at the scene Friday and was awaiting **arraignment**. -  
+He was arrested at the scene Friday and was awaiting **arraignment**.   
 
 ### Daring Fireball   
 
@@ -176,8 +176,8 @@ Trump, obviously angry that our ostensible allies won’t just **roll over** and
 Signal’s top priority has always been protecting your data from being obtained by others. That’s a **noble idea**, and **central** to Signal’s brand.  
 This post is an **in-depth recount** of exactly what happened and what systems and processes failed.  
 But that simply wasn't possible given Jony Ive's relationship with Sam Altman, LoveFrom’s collaboration with OpenAI with the io project, and Ive’s **utter disdain** for Dye’s talent, leadership, and personality.  
-But there’s a problem that’s been **gnawing** at me ever since the 2.0 Trump Administration began. -    
-We need to assert this rhetoric with urgency, make their names shameful, **lest** the **slur** become our name — “American”. -    
+But there’s a problem that’s been **gnawing** at me ever since the 2.0 Trump Administration began.   
+We need to assert this rhetoric with urgency, make their names shameful, **lest** the **slur** become our name — “American”.   
 Makes sense, to be honest, that Anthropic would **object** to naming it a **homonym** for Claude.  
 
 -----   
@@ -223,7 +223,7 @@ MAGA wants a **moratorium** on legal migration, too.
 A lot of hardware people are into it. **Biopharma** people are shockingly the most reserved — they’re a little too **deferential** to the F.D.A.  
 We might all be better off if we let the crazy people try the crazy peptides and **filter down** to the rest of us.  
 
-She was forced to **abdicate** the throne of Spain. -   
+She was forced to **abdicate** the throne of Spain.   
 
 ### 007 Movie  
 
@@ -273,7 +273,7 @@ However, in many cases, they have been known to start harassing people just four
 
 **vagus nerve**  
 
-A guard **zapped** him with the **stun gun**. -   
+A guard **zapped** him with the **stun gun**.   
 His **complexion** was **florid** and his hair white. He was a man to attract immediate **sympathy**. -    
 It's the **stout**, **florid** fellows like me, that always go off first.  
 
@@ -308,7 +308,7 @@ Now is the perfect time to turn your **budding knowledge** into action though me
 > I realize now that even if I were Satoshi's great-grandson, bitcoin isn't defined by leaders. It's defined by its community. Not even Satoshi could change what bitcoin has become. That has always been what made bitcoin great and why the millions of other coins made in bitcoin's image never lasted.  
 
 The paper gave all the **lurid details** of the murder. -    
-She took care to paint her toe nails a **lurid red** or orange. -    
+She took care to paint her toe nails a **lurid red** or orange.   
 
 Although a man of blood and violence, Richard was too **impetuous** to be either **treacherous** or habitually cruel. -   
 He did what he could to **allay** his wife's **myriad** fears. -    
@@ -347,7 +347,7 @@ Don't be fooled. Saving Satoshi has a sometimes **silly veneer**, but contains t
 > In Meditations, Marcus **rebukes** this tendency—not only as lazy, but arrogant and entitled. To act “as if you had endless years ahead of you.” is crazy…and not true.  
 
 
-The monkey **slips** its hand in, grabs the food, and can’t pull its **clenched** fist back out. -    
+The monkey **slips** its hand in, grabs the food, and can’t pull its **clenched** fist back out.   
 
 Other people had that **glint** in their eye for the work that I dreaded. It clicked: I'll never be one of the best at this over the long-term. --Because I don't like **hitting the ball**. -    
 
@@ -523,7 +523,7 @@ But we have to keep trying. We can honor his memory and our own potential today 
 
 a thick central trunk like a **dandelion** taproot.  
 **vagus nerve**  
-His **complexion** was **florid** and his hair white. He was a man to attract immediate **sympathy**. -    
+His **complexion** was **florid** and his hair white. He was a man to attract immediate **sympathy**.     
 
 We should learn to fight with enemy in an **overt and covert** way.  
 
