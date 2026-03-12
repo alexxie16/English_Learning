@@ -25,6 +25,12 @@
 
 ### Words with Questions  
 
+deride  
+
+imbroglio  
+
+anodyne  
+
 genial  
 
 comport  
@@ -47,115 +53,27 @@ nitrite
 
 ## Special Words  
 
-**opportunist**  
+**rogue**  
 
-**foresight**  
+**unscathed**  
 
-**slant, slanted**  
+**chronological**  
 
-**purveyor**  
-
-**merits**  
-
-**myopic**  
-
-**Tiered**  
-
-**saccharine**  
-
-**inexcusable**  
-
-**imperative**  
-
-**sparingly**  
-
-**antithesis**  
-
-**overly**  
-
-**monomaniacal**  
-
-**dismissive**  
-
-**phony**  
-
-**brittle**  
+**eclectic**  
 
 ## Verb Words  
 
-**grapple**  
+**weather**  
 
-**fleeting, flitting**  
+**eyeball**  
 
-**clarify**  
-
-**curate**  
-
-**outweigh**  
-
-**checkmate**  
-
-**plant**  
-
-**derail**  
-
-**amplify**   
-
-**dissipate**  
-
-**belittle**  
+**strap**  
 
 -------------------------  
 
 
 ## Words Gallery  
 
-**nylon, polyester, polyethylene(PE), resin**,   
-**ethylene, ethanol, methanol, hydrogen, nitrogen, methane, ammonia**.  
-**subterfuge, pretext, pretense, ploy, ruse**,   
-**mace, sarin, mustard**,  
-
-**Paltry, meanly, meager, modest, dismal**  
-**scuffle, brawl, rowdy**   
-burn, char, scorch  
-
-**big-hearted, open-handed**   
-
-**Imperative, paramount, crucial/vital, first and foremost**,   
-**salient, prominent, pivotal**   
-
-**elf, goblins, smurf**,   
-**Ape, gorilla, chimpanzee, primate**,   
-**decrepit, dilapidated, desolate**  
-
-**derogatory, disparage, slur**   
-**blow up, blow over, blow off**,   
-**buckle up, buckle down**.   
-
-**cede, intercede, accede, recede**.  
-
-**bogus, spurious, erroneous**  
-
-**rhino, manatee, buffalo**  
-**sidestep, circumvent, dodge, divert, bypass**,   
-**teepee, yurt, tent, hut, hammock, tarp**.  
-**hothead, meathead, knucklehead, jughead, empty-headed**,   
-**hardline, hardball, headstrong, strong-minded, bigot, opinionated, cocky**  
-
-**rowdy, obnoxious, brash, pompous**,   
-**lexical, lexicon, lexicographic**  
-
-**lewd, vulgar, profane, scandalous, sordid, crass**   
-
-**woozy, dizzy, giddy, hazy**   
-
-**inveterate, incorrigible, incurable, terminal, wayward**.  
-
-**lilac, lavender, violet**,   
-**negligee, lingerie, camisole**.  
-**Himalayan, Mountain Everest, Alps, Alpine**.  
-**pediatrist, paediatric, podiatrist**  
-**overpass, flyover, skywalk, walkway**  
 
 --- Pronounce   
 
@@ -167,15 +85,44 @@ exonerate,
 
 ----------------------------  
 
+**ramble, discursive, meandering, babble**  
+sanctum, sacred, sanctity, shrine, sacrilege,   
+
+As of April 19, 2017, StarCraft and its **Brood War** expansion, aka the **Anthology**, are free to download and play from Blizzard's website.   
+At the **behest** of those platforms, they can kick us off and we lose our identity, network and data, etc.   
+
+Yes, trying to avoid depending on bitcoin is important. But let's not make that be the **line in the sand**.  
+The waiting period creates poor UX, where someone's account is in **limbo** for a pretty long time.  
+What’s needed is someone to **take charge of** it and build it.  
+Investing in light of the big cycle.   
+
+These are the three attributes they could most **readily** **dispense with**.  
+If you don't have a stomach at war, **scurry** back to Cersei....   
+
+
+Not feeling safe with current nsec losing or compromising,   
+
+What can be done in order to let user not worrying about losing/compromising nsec and it's gone forever? It needs to work with new Nostr users and exisitng users   
+
+
+How to compare opencode, codex and cursor?   
+pasta is made from wheat flour that has been pulverized, diminishing most of  
+the beneficial effects of the whole grains.  
+
+
+The simple fact that governments around the world are conjuring up trillions (with a T) of dollars out of thin air is a testament to how disconnected our monetary system is from reality.  
+
+
+---- Week ??   
+
 You might as well buy a welcome mat, **strap** it to your asshole, say "I'm open for business."  
 
 
-government is quired to give you all the evidence they have against you, whether that's good evidence or bad evidence. It's called exculpatory evidence.  
+Government is required to give you all the evidence they have against you, whether that's good evidence or bad evidence. It's called **exculpatory evidence**. -    
 
 > The alternative is far worse.  
 
 But when Jason got “**rascally**” regarding MacOS 26 Tahoe in this one, I wanted to reach out and **strangle** him.  
-
 
 While the stock **cratered**, Bailey was cycling through lenders like a gambler working the floor.  
 The 21M cap is now functionally irrelevant because Jane Street can generate unlimited **phantom** exposure to Bitcoin through derivatives that never touch the base layer and never appear in any public filing.  
