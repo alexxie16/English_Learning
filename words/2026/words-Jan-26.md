@@ -140,7 +140,7 @@ NA
 > terrestrial: of or relating to or inhabiting the land as opposed to the sea or air  
 
 
-She's wearing a **slinky** black mini-skirt. -    
+She's wearing a **slinky** black mini-skirt.   
 
 You can charge twice the current rate for that I provide, and your customers would pay it, **hands down**.   
 Warsh has been a sharp critic of the central bank, arguing that it has grown **unwieldy** and is in need of reform.  
@@ -342,7 +342,7 @@ Once they're recovered, you can hit them again, but just take this whole process
 
 Bitcoin is an important innovation. We doubt any serious financial professional now **disputes** this.  
 
-Don't be fooled. Saving Satoshi has a sometimes **silly veneer**, but contains the kinds of coding exercises that will ensure you are ready for the challenges. -    
+Don't be fooled. Saving Satoshi has a sometimes **silly veneer**, but contains the kinds of coding exercises that will ensure you are ready for the challenges.   
 
 > In Meditations, Marcus **rebukes** this tendency—not only as lazy, but arrogant and entitled. To act “as if you had endless years ahead of you.” is crazy…and not true.  
 
@@ -396,7 +396,7 @@ A new study highlights the brain’s role in immune health. It truly is a questi
 His administration has begun to **give ground** in Minneapolis.  
 
 No Wi-Fi, no phone charging and seats that don’t recline. You don’t fly Ryanair for the **frills**. But the tickets are cheap. - The low-cost carrier is flying high.  
-The militia is still a force in Lebanese politics, but its ability to **menace** abroad has been severely weakened. -    
+The militia is still a force in Lebanese politics, but its ability to **menace** abroad has been severely weakened.   
 How Russian **brainrot** became a hit for children.  
 
 The Trump administration’s misleading and **hyperbolic** rhetoric has been a feature of its **siege** of Minneapolis, a notional campaign of immigration enforcement whose larger and transparent purpose has been provocation and **political theatre**.  

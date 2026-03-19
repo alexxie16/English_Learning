@@ -325,7 +325,7 @@ Why it matters: The AI-generated video **depicting** the Obamas as **apes**, whi
 ### Jeff Park article   
 
 China’s growth model faces structural limits that **preclude** a return to prior expansion rates.  
-in his The Adolescence of Technology, the CCP is the most **autocratic** country in the world that has the greatest likelihood of surpassing U.S. capabilities. -    
+in his The Adolescence of Technology, the CCP is the most **autocratic** country in the world that has the greatest likelihood of surpassing U.S. capabilities.   
 For Beijing, ensuring Taiwan stays in its **sphere of influence** would deliver both offensive and defensive advantages in AI and advanced‑computing competition.  
 why Zhang’s **ouster** could lead to younger lieutenants, whether more experienced or not, take helm to make Xi’s goal a reality.  
 Even more important than scale is **doctrine**. The PLA has moved away from rigid Soviet-style command toward decentralized **combined-arms** operations that emphasize initiative at lower levels and a shift toward network-centric **warfare**.  

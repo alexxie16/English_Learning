@@ -220,7 +220,7 @@ Would've broken the model. - **to the upside**.
 ### Economist Newsletter  
 It’s widely assumed that Valery Zaluzhny, who was **sacked** as commander of Ukraine’s armed forces early in 2024, is eager to become president himself.  
 Observed in the wild: office snackers and **foragers**. From the snack cupboard to the coffee machine.  
-America is foolishly waving goodbye to thousands of Chinese **boffins**. -  
+America is foolishly waving goodbye to thousands of Chinese **boffins**.   
 
 Donald Trump’s **bleak**, incoherent foreign-policy strategy. Allies may panic; **despots** will cheer.  
 America is now the biggest market for international football. Europeans may **scoff**, but it’s all about the soccer.  
