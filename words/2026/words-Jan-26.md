@@ -245,7 +245,7 @@ Altcoins also face a trust problem that **weighs on** retail participation.
 
 The fractional reserve system is **predicated on** this belief you can lever up the money.  
 
-For Google, I presume, that will be Google Keep (which I consider a serviceable, but overall **crummy app** that never seems to have gotten much attention). -    
+For Google, I presume, that will be Google Keep (which I consider a serviceable, but overall **crummy app** that never seems to have gotten much attention).     
 
 However, once you've **got the hang** of it you'll find that it's an extremely **versatile** locking script.  
 
@@ -357,7 +357,7 @@ There's no **substitute** for that. It's what we call in Bitcoin proof of work.
 I have **harbored** this secret for a long, long time.   
 
 In the absence of such authority, informed argument exists **alongside** **phony** outrage, **profiteering**, self-**aggrandizement** and saying things for the hell of it. The result is not merely the radicalization that Mr. Buckley feared but a kind of omnidirectional incoherence.  
-I would eat my hat if Alan Dye knew what was wrong and **gross** about this **dialog box**. This is exactly the sort of sweating the **idiomatic** usability details thing that has frequently been wrong in Apple software in the last decade. -    
+I would eat my hat if Alan Dye knew what was wrong and **gross** about this **dialog box**. This is exactly the sort of sweating the **idiomatic** usability details thing that has frequently been wrong in Apple software in the last decade.   
 
 > 👵🏻 Grandmacore: "We're talking about the kind of warm, grounding foods your best imaginary grandma might have made, like sourdough bread, dried apples, sauerkraut and vegetables she canned herself  
 
@@ -366,7 +366,7 @@ The Persians could use it to **outflank** us.
 Old people often **subsist** on very small incomes.  
 She has to get **a casual work** to **subsist**.  
 It's almost like a green **gauze veil**.  
-His head was still **wrapped in gauze**. -    
+His head was still **wrapped in gauze**.   
 
 When there's no **holds barred**, it means no rules.  
 I mean, she wrote a **memoir** that was very kind of **no holds barred**.   

@@ -120,7 +120,7 @@ State media and officials still often blame **ordinary** people for using too mu
 many of the “illegal” farms being busted are **small fry**, whereas the biggest power thieves operate under IRGC protection.  
 What began as a creative response to sanctions has **morphed into** a homegrown energy crisis.  
 The IRGC’s crypto operations, though **lucrative** for the regime elite, are effectively **parasitic** on Iran’s economy and infrastructure.  
-Each Bitcoin mined under its **aegis** comes at a **steep cost**. -    
+Each Bitcoin mined under its **aegis** comes at a **steep cost**.   
 Iran’s case is a **cautionary tale**: when crypto mining serves **opaque** power, it doesn't just undermine energy security—it fuels public resentment and brings a nation closer to **breaking point**.  
 
 

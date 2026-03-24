@@ -339,7 +339,7 @@ I had a sore throat and could only **croak**.
 
 ### Pulp Fiction   
 
-If she **croaks on** me, I'm a fucking **green spot**. -  
+If she **croaks on** me, I'm a fucking **green spot**.   
 I don't mean disrespect, Okay? I respect you, I just don't like people **barking orders** at me, that's all.  
 If I'm **curt** with you, because time is a factor.   
 
@@ -356,7 +356,7 @@ The post **roiled** the White House. Staffers **reflexively** defended the clip,
 **Corporal** punishment in public schools is forbidden.  
 This is yet another **slur** on the integrity of the police.   
 
-He received a **paltry** annuity of $100. -    
+He received a **paltry** annuity of $100.   
 In their pages Americans were often portrayed as **crass**, loud, **bumptious**. -    
 She's a bit **woozy** but the baby's fine.  
 I'd better **buckle down** to those reports.  
