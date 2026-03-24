@@ -95,6 +95,15 @@
 
 ## Words Gallery  
 
+**subservient, deferential, submissive, obedient**,   
+
+**depraved, perverted, sadistic, sinful, deranged, deviant, despicable**.  
+
+**cabal, coterie, clique, cadre, faction, clan**,   
+**hamstring, hinder, hamper, obstruct, impede, thwart**  
+
+**poofy, faggy, faggot**.   
+
 **decorum, etiquette, manners, propriety, formality**  
 **civility, decency**.  
 
@@ -106,35 +115,23 @@
 
 --- Pronounce   
 
-**covet, overt, covert, coward**   
-
-**Sycophant**  
-
-**exonerate**,   
 
 ----------------------------  
 
-**subservient, deferential, submissive, obedient**,   
+wheeze, pant   
 
-**depraved, perverted, sadistic, sinful, deranged, deviant, despicable**.  
-
-**cabal, coterie, clique, cadre, faction, clan**,   
-**hamstring, hinder, hamper, obstruct, impede, thwart**  
-
-**poofy, faggy, faggot**.   
 
 wrongheaded, knucklehead, hothead, jughead,  
-
 headlong,   
 
 **out of the woods, off the hook**.  
-
 
 A tax home is generally tied to your main place of business or, if you have no regular place of business, your regular place of **abode** in a real sense.  
 You must sign and date this statement and include a declaration made under **penalties of perjury**.  
 
 Sometimes OTAs compensate when they **drop the ball**.  
 
+### Week 12   
 
 The goods were **consigned** to you by railway.  
 This is a **consignment operation**.  
@@ -142,7 +139,6 @@ This is a **consignment operation**.
 Debian 12 has been **superseded** by Debian 13.  
 
 The **sledge** ran smoothly over the frozen snow.  
-
 
 I didn't take to skiing straight away but now I love it, it's **grown on** me.  
 
@@ -158,7 +154,6 @@ The Neo ships with a measly 20-watt charger in the box.
 The Neo is not a svelte ultralight.  
 I’ll just say it: I think I’m done with iPads. Why bother when Apple is now making a crackerjack Mac laptop that starts at just $600? May the MacBook Neo live so long that its name becomes inapt.  
 The Neo’s citrus is a beguiling colorway. Everyone I’ve shown it to likes it. But is it a green-ish yellow, or a yellow-ish green?  
-
 
 a **cabal** of central banks.  
 
@@ -188,8 +183,6 @@ Investing **in light of** the big cycle.
 These are the three attributes they could most **readily** **dispense with**.  
 If you don't have a stomach at war, **scurry** back to Cersei....   
 
-Not feeling safe with current nsec losing or **compromising**   
-
 What can be done in order to let user not worrying about losing/**compromising** nsec and it's gone forever? It needs to work with new Nostr users and exisitng users   
 **safety net**  
 
@@ -204,10 +197,10 @@ This week we examine the related phenomenon of “trophy wives” (**glamorous**
 A new **ordinance** sets minimum standards for subdivided units, which **outlaw** the city’s notorious “coffin homes”.  
 It's the sharpest public **rebuke** of the Iran war from inside Trump's administration.  
 
+Sexual problems can **wreck** lives. Yet **remedies** are often simple.  
 It may seem that sex is everywhere in modern culture, but frank, realistic discussion of it is still too **rare**. And this matters because **sexual dysfunction** is widespread.  
 It makes people miserable, **wrecks** marriages and is frequently a **predictor** of other health problems, such as diabetes.  
 So here’s a selection of evidence-based writing about one of life’s greatest sources of joy and **angst**.  
-Sexual problems can **wreck** lives. Yet **remedies** are often simple.  
 
 
 
@@ -364,8 +357,17 @@ Here are the words I need help with:
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
+a **cabal** of central banks.  
+Yes, trying to avoid depending on bitcoin is important. But let's not make that be the **line in the sand**.  
+What’s needed is someone to **take charge of** it and build it.  
+
+If you don't have a stomach at war, **scurry** back to Cersei....   
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
+
+As of April 19, 2017, StarCraft and its **Brood War** expansion, aka the **Anthology**, are free to download and play from Blizzard's website.   
+
+Pasta is made from **wheat flour** that has been **pulverized**, diminishing most of the beneficial effects of the whole grains.  
 
 
