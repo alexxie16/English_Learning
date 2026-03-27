@@ -73,6 +73,8 @@
 
 ## Verb Words  
 
+**outstrip**  
+
 **hinder**   
 
 **declutter**  
@@ -95,10 +97,21 @@
 
 ## Words Gallery  
 
+wheeze, pant   
+
+penury, destitute, squalor, scruffy, ragged, shabby,   
+
+slur, blab, babble, chatter, banter,   
+supplant, substitute, supersede, augment.   
+
+wrongheaded, knucklehead, hothead, jughead,  
+arid, desert, barren, desolate, wasteland, wasteland, forsaken,   
+headlong,   
+diatribe, tirade, rant,   
+
+**out of the woods, off the hook**.  
 **subservient, deferential, submissive, obedient**,   
-
 **depraved, perverted, sadistic, sinful, deranged, deviant, despicable**.  
-
 **cabal, coterie, clique, cadre, faction, clan**,   
 **hamstring, hinder, hamper, obstruct, impede, thwart**  
 
@@ -118,13 +131,13 @@
 
 ----------------------------  
 
-wheeze, pant   
+**arid region, arid climate**.  
 
 
-wrongheaded, knucklehead, hothead, jughead,  
-headlong,   
+Use a gentle shampoo, not a harsh **anti-dandruff** or strong **exfoliating** product right before the session unless your doctor specifically wants that.  
 
-**out of the woods, off the hook**.  
+A **stern** warning.  
+
 
 A tax home is generally tied to your main place of business or, if you have no regular place of business, your regular place of **abode** in a real sense.  
 You must sign and date this statement and include a declaration made under **penalties of perjury**.  
@@ -142,20 +155,24 @@ The **sledge** ran smoothly over the frozen snow.
 
 I didn't take to skiing straight away but now I love it, it's **grown on** me.  
 
-After a close friend in the hospital died of a similar infection following an accidental cut while performing an autopsy, it occurred to Semmelweis that the doctors and medical students were often moving straight from working on cadavers to delivering babies.  
-Rather than feel impotent and useless, you must come to terms with the fact that as a human being you are infinitely powerful, and take responsibility for this tremendous power.  
+After a close friend in the hospital died of a similar infection following an accidental cut while performing an **autopsy**, it occurred to Semmelweis that the doctors and medical students were often moving straight from working on **cadavers** to delivering babies.  
+Rather than feel **impotent** and useless, you must **come to terms** with the fact that as a human being you are infinitely powerful, and take responsibility for this tremendous power.  
 
-The divide I’m seeing is that the developers who are craftspeople are elated because their productivity is skyrocketing while their craftsmanship remains unchanged.  
-The industry is riddled with hack developers, because in the last 15-20 years, as the demand for programmers far outstripped the supply of good programmers.  
-But AI code generation tooling is turning it into an expansive gulf.  
-The worst programmers have gone from laying a few turds a day to spewing veritable mountains of hot steaming stinky shit, while beaming with pride at their increased productivity.  
-The MacBook notch has not grown on me, and the Neo’s display bezel doesn’t bother me at all.  
-The Neo ships with a measly 20-watt charger in the box.  
-The Neo is not a svelte ultralight.  
-I’ll just say it: I think I’m done with iPads. Why bother when Apple is now making a crackerjack Mac laptop that starts at just $600? May the MacBook Neo live so long that its name becomes inapt.  
-The Neo’s citrus is a beguiling colorway. Everyone I’ve shown it to likes it. But is it a green-ish yellow, or a yellow-ish green?  
+### Daring Fireball  
 
-a **cabal** of central banks.  
+The divide I’m seeing is that the developers who are **craftspeople** are **elated** because their productivity is **skyrocketing** while their **craftsmanship** remains unchanged.  
+The industry is **riddled** with hack developers, because in the last 15-20 years, as the demand for programmers far **outstripped** the supply of good programmers.  
+But AI code generation tooling is turning it into an **expansive gulf**.  
+The worst programmers have gone from laying a few **turds** a day to **spewing** **veritable** mountains of hot steaming stinky shit, while **beaming** with pride at their increased productivity. -    
+The MacBook notch has not **grown on me**, and the Neo’s display **bezel** doesn’t bother me at all.  
+The Neo ships with a **measly** 20-watt charger in the box.  
+The Neo is not a **svelte** **ultralight**.  
+I’ll just say it: I think I’m done with iPads. Why bother when Apple is now making a **crackerjack** Mac laptop that starts at just $600? May the MacBook Neo live so long that its name becomes **inapt**.  
+The Neo’s **citrus** is a **beguiling** **colorway**. Everyone I've shown it to likes it. But is it a green-ish yellow, or a yellow-ish green?  
+
+---   
+
+a **cabal** of central banks. -   
 
 This is basically Parsley **pesto** and accompanies the large steak you've just ordered.  
 Export tax **rebate** system.  
@@ -192,6 +209,13 @@ The simple fact that governments around the world are **conjuring up** trillions
 
 
 ### Economist Newsletter  
+
+In Ukraine, small **quadcopters** inflict the majority of casualties on the battlefield.  
+If individually **piloted** drones can cause this much damage, what might **a flock of** autonomous ones do? Such swarms are coming, and will change the equation of war.   
+Some expats live it up in non-Western bits of the world, enjoying **balmy** weather or low taxes.  
+Donald Trump’s latest **climbdown** suggests he may want to end the war.  
+Marco Rubio, the **chameleon** in the war room.  
+Beneath the surface, it says that no email can **substitute** for an in-person **encounter**.   
 
 This week we examine the related phenomenon of “trophy wives” (**glamorous** spouses of rich older men). Though the stereotype is **entrenched**, the data suggest that such marriages are becoming rarer.   
 A new **ordinance** sets minimum standards for subdivided units, which **outlaw** the city’s notorious “coffin homes”.  
