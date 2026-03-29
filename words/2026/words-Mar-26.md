@@ -25,6 +25,10 @@
 
 ### Words with Questions  
 
+interminable  
+
+approbate  
+
 **venal**  
 
 **envisage**   
@@ -34,6 +38,10 @@
 **goad**  
 
 ## Special Words  
+
+**parametrized**  
+
+**pronounced**  
 
 **deliberate**  
 
@@ -134,9 +142,16 @@ diatribe, tirade, rant,
 **arid region, arid climate**.  
 
 
+### Week 13, 2026-03-29  
+
+The interest of meaning of life is **coming to the fore**.  
+Now we come to the crux of the matter.  
+
 Use a gentle shampoo, not a harsh **anti-dandruff** or strong **exfoliating** product right before the session unless your doctor specifically wants that.  
 
 A **stern** warning.  
+
+Engross you so much, you'll gladly stay up the whole night, or get up super early in the morning.    
 
 
 A tax home is generally tied to your main place of business or, if you have no regular place of business, your regular place of **abode** in a real sense.  
@@ -377,6 +392,56 @@ Here are the words I need help with:
     *   Researchers are studying the long-term effects of nitrites in cured meats.  
 *   **Alternatives**: (This word is quite specific and doesn't have direct synonyms that capture its exact chemical meaning. You might use descriptive phrases like "food preservative" or "chemical compound used in processed meats" when discussing its function, but these aren't true alternatives.)  
 
+***  
+
+**Replete**  
+
+*   **Definition**: Filled or well-supplied with something.  
+*   **Common Usage**: Moderately common, often used in more formal writing or when describing something abundantly filled. It's not an everyday word for most people, but its meaning is usually understood.  
+*   **Examples**:  
+    *   The book was replete with fascinating historical details.  
+    *   The buffet table was replete with a wide variety of tempting dishes.  
+*   **Alternatives**: Full, filled, brimming, abundant, stocked.  
+
+***  
+
+**Amok**  
+
+*   **Definition**: Behave uncontrollably and wildly.  
+*   **Common Usage**: Not very common in everyday conversation. It's often found in more descriptive or dramatic contexts, or when referring to a specific cultural or historical phenomenon.  
+*   **Examples**:  
+    *   The escaped zoo animals ran amok through the city streets.  
+    *   After the internet went down, the office descended into a state of running amok.  
+*   **Alternatives**: Wildly, uncontrollably, in a frenzy, berserk.  
+
+***  
+
+**Deceit**  
+
+*   **Definition**: The action or practice of deceiving someone by concealing or misrepresenting the truth.  
+*   **Common Usage**: Very common in daily life. It's a fundamental concept in understanding relationships, ethics, and social interactions.  
+*   **Examples**:  
+    *   His elaborate lies were a clear sign of deceit.  
+    *   The con artist relied on deceit to trick people out of their money.  
+*   **Alternatives**: Deception, dishonesty, trickery, fraud, duplicity.  
+
+***  
+
+**Ravish**  
+
+*   **Definition**:  
+    1.  Seize and carry off (someone or something) by force.  
+    2.  Fill (someone) with great delight; enchant.  
+*   **Common Usage**:  
+    *   Definition 1 (seize by force): Less common in modern, casual conversation. It's more likely to be encountered in historical contexts, literature, or legal terminology.  
+    *   Definition 2 (fill with delight): More common, though still somewhat poetic or formal. You might hear it in descriptions of art, music, or intense emotional experiences.  
+*   **Examples**:  
+    *   The invaders threatened to ravish the countryside (Definition 1).  
+    *   The beauty of the sunset was enough to ravish the senses (Definition 2).  
+    *   Her performance on stage was so captivating that it seemed to ravish the entire audience (Definition 2).  
+*   **Alternatives**:  
+    *   For Definition 1: Seize, abduct, plunder, pillage.  
+    *   For Definition 2: Enchant, captivate, enthrall, delight, charm.  
 
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
