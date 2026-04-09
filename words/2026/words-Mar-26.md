@@ -25,21 +25,7 @@
 
 ### Words with Questions  
 
-interminable  
-
-approbate  
-
-**venal**  
-
-**envisage**   
-
-**supercilious**  
-
-**goad**  
-
 ## Special Words  
-
-**parametrized**  
 
 **pronounced**  
 
@@ -80,6 +66,9 @@ approbate
 **eclectic**  
 
 ## Verb Words  
+
+
+**harvest, exploit**,   
 
 **outstrip**  
 
@@ -138,8 +127,6 @@ diatribe, tirade, rant,
 
 
 ----------------------------  
-
-**arid region, arid climate**.  
 
 
 ### Week 13, 2026-03-29  

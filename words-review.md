@@ -1,3 +1,8 @@
+## words-Mar-26.md ##  
+words/2026/words-Mar-26.md  
+The worst programmers have gone from laying a few **turds** a day to **spewing** **veritable** mountains of hot steaming stinky shit, while **beaming** with pride at their increased productivity. -  
+a **cabal** of central banks. -  
+
 ## words-Feb-26.md ##  
 words/2026/words-Feb-26.md  
 This is a particularly **damning** problem in a social media era where it’s easy to plug into the 24/7 **IV drip** of information that’s just noise **masquerading** as signal. -  
@@ -5,17 +10,16 @@ Use your **circumstance** to become even better than otherwise would be, and **r
 You could argue the whole religious tradition is a technology designed to **inculpate** people with empathy. -  
 Or they could draw bizarre **epistemic** conclusions: they could conclude that they are playing a video game and that the goal of the video game is to defeat all other players. -  
 In their pages Americans were often portrayed as **crass**, loud, **bumptious**. -  
-The next prime minister could **abrogate** the treaty. -  
 Male models are not always so **vacuous** as they are made out to be. -  
 
 ## words-Jan-26.md ##  
 words/2026/words-Jan-26.md  
 Trump, obviously angry that our ostensible allies won’t just **roll over** and **accede** to his madness, is now **petulantly** turning to his favorite word, tariffs. -  
 His article is stuffed with **shibboleth**. -  
-You need to get this marriage **annulled** immediately. -  
 These **souped-up** signatures are also a game changer for smart contracts. -  
 Light **shone** through a **slit** under the door. -  
 However, in many cases, they have been known to start harassing people just four to six days after **disbursing** the loan. -  
+His **complexion** was **florid** and his hair white. He was a man to attract immediate **sympathy**. -  
 The paper gave all the **lurid details** of the murder. -  
 Although a man of blood and violence, Richard was too **impetuous** to be either **treacherous** or habitually cruel. -  
 He did what he could to **allay** his wife's **myriad** fears. -  
@@ -38,6 +42,3 @@ Smart Brevity isn't **hocus-pocus**—it can be learned and taught. -
 ## words-Jul-25.md ##  
 words/2025/words-Jul-25.md  
 The usual excuse for India’s **surfeit** of laws and rules is colonialism’s legacy. -  
-
-## words-Jun-25.md ##  
-words/2025/words-Jun-25.md  

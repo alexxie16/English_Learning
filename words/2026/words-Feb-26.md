@@ -368,7 +368,7 @@ I didn't always have cash to buy meaningfully into a sell off but I'd always buy
 Yes, it feels dark out there. Soon the sun will come out again and this will just be another **scar** in the journey.  
 Can you take another 50% fall from here? If not, **lighten up**, even if it feels stupid to do so.  
 
-The next prime minister could **abrogate** the treaty. -    
+The next prime minister could **abrogate** the treaty.   
 
 VC-Backed Startups are **Low Status**.  
 Choose any path in life **closes off** other paths.  

@@ -254,7 +254,7 @@ The **drought** did a lot of harm to the crops
 men in long sexual **drought**.  
 
 He doesn't look like such a **mooch**.  
-You need to get this marriage **annulled** immediately. -    
+You need to get this marriage **annulled** immediately.   
 
 These **souped-up** signatures are also a game changer for smart contracts. -   
 **flash in the pan**.  
