@@ -25,12 +25,6 @@
 
 ### Words with Questions  
 
-gambol  
-
-interminable  
-
-approbate  
-
 **venal**  
 
 **envisage**   
@@ -40,11 +34,18 @@ approbate
 **goad**  
 
 ## Special Words  
+**eclectic**  
+
+pensive  
 
 **wimp**  
 
-
 ## Verb Words  
+		- fiddle vs fudge  
+
+**herald**  
+
+**discern**  
 
 **parametrize**  
 
@@ -53,6 +54,8 @@ approbate
 -------------------------  
 
 ## Words Gallery  
+enervate, castrate, neuter,  
+feminine  
 
 wheeze, pant   
 
@@ -61,11 +64,19 @@ mallet, sledgehammer, axe.
 
 ---  
 
+exhume  
+
+Chronic friction and pressure from eyewear can, in uncommon cases, cause a benign skin lesion called acanthoma fissuratum where the frame presses on the skin.   
 Traffic is everywhere and motorbikes have no **qualms** about riding on the sidewalks. Have to be on the lookout for my kids.  
 
-They could **herald** a new type of computing  
-It **emanates** no cashflows but offers insurance against a blow-up.  
+They could **herald** a new type of computing.   
+It **emanates** no cashflows but offers insurance against a blow-up. -    
 
+they are in constant contact with skin, accumulating sweat, oils, and bacteria that can cause skin irritation and grime buildup  
+She was adept at the fine art of irritating people.  
+He is an adept mechanic.  
+She is adept in music.  
+adapt, versed, inapt  
 
 
 ### Economist Newsletter  
@@ -76,7 +87,6 @@ It is striking, then, that Donald Trump’s latest polling numbers roughly match
 
 America has repeatedly shown a remarkable ability to reinvent itself. By contrast, China is cautious, ageing and **hidebound** by party ideology.  
 There is a future in which America embraces upheaval and China **shuts itself off**. That future may yet belong to America.  
-
 
 ## Words Explain   
 
@@ -93,7 +103,42 @@ An example like below for Somber:
 
 Here are the words I need help with:  
 
------------------------  
+---  
+
+Gambol  
+
+- Definition: To run, jump, or play in a lively, playful way. It can also be used as a noun for playful movement.  
+- Common Usage: Not very common in daily conversation. It is more literary or descriptive, often used for animals or children playing.  
+- Daily Life?: No, not commonly used in everyday speech. Native speakers usually say play, skip, jump around, or frolic.  
+- Examples:  
+  - The puppies gamboled across the grass.  
+  - The children were gamboling in the park.  
+- Alternatives: Frolic, skip, romp, play.  
+
+---  
+
+Interminable  
+- Definition: Seeming to never end; very long and tiring because of how long it lasts.  
+- Common Usage: Fairly common, especially in writing or in speech when complaining about something long or boring.  
+- Daily Life?: Yes, it is used, though it sounds a bit more formal than everyday words like endless or never-ending.  
+- Examples:  
+  - The meeting felt interminable.  
+  - We sat through an interminable delay at the airport.  
+- Alternatives: Endless, never-ending, prolonged, unending.  
+
+---  
+
+Approbate  
+- Definition: To approve officially or express approval of something.  
+- Common Usage: Very uncommon in modern daily English. It is formal and somewhat old-fashioned.  
+- Daily Life?: No, it is rarely used in everyday conversation. Most people would say approve, support, or accept instead.  
+- Examples:  
+  - The committee approbated the proposal.  
+  - His actions were approbated by the board.  
+- Alternatives: Approve, endorse, support, accept.   
+
+----  
+
 
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
