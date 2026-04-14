@@ -25,6 +25,8 @@
 
 ### Words with Questions  
 
+exhume  
+
 **venal**  
 
 **envisage**   
@@ -34,6 +36,9 @@
 **goad**  
 
 ## Special Words  
+
+**outspoken**  
+
 **eclectic**  
 
 pensive  
@@ -63,8 +68,16 @@ wheeze, pant
 mallet, sledgehammer, axe.   
 
 ---  
+**grubby, squalor**   
 
-exhume  
+> We pick speakers who stand for something. Free speech. Personal sovereignty. The right to say what you want even when it makes powerful people uncomfortable.  
+
+
+ordeal, toil, arduous, grind, ordure.  
+tatter, totter,   
+
+Stop romanticizing your **grubby** little fling.  
+
 
 Chronic friction and pressure from eyewear can, in uncommon cases, cause a benign skin lesion called acanthoma fissuratum where the frame presses on the skin.   
 Traffic is everywhere and motorbikes have no **qualms** about riding on the sidewalks. Have to be on the lookout for my kids.  
@@ -81,11 +94,11 @@ adapt, versed, inapt
 
 ### Economist Newsletter  
 
-Donald Trump says the war may end soon. But he is capable of **feints**.  
+Donald Trump says the war may end soon. But he is capable of **feints**. -    
 Between all that chatter, Mr Trump **carved out** time to do something a sitting American president has never done before.  
 It is striking, then, that Donald Trump’s latest polling numbers roughly match Mr Biden’s post-debate **nadir**.  
 
-America has repeatedly shown a remarkable ability to reinvent itself. By contrast, China is cautious, ageing and **hidebound** by party ideology.  
+America has repeatedly shown a remarkable ability to reinvent itself. By contrast, China is cautious, ageing and **hidebound** by party ideology. -    
 There is a future in which America embraces upheaval and China **shuts itself off**. That future may yet belong to America.  
 
 ## Words Explain   

@@ -1,3 +1,9 @@
+## words-Apr-26.md ##  
+words/2026/words-Apr-26.md  
+It **emanates** no cashflows but offers insurance against a blow-up. -  
+Donald Trump says the war may end soon. But he is capable of **feints**. -  
+America has repeatedly shown a remarkable ability to reinvent itself. By contrast, China is cautious, ageing and **hidebound** by party ideology. -  
+
 ## words-Mar-26.md ##  
 words/2026/words-Mar-26.md  
 The worst programmers have gone from laying a few **turds** a day to **spewing** **veritable** mountains of hot steaming stinky shit, while **beaming** with pride at their increased productivity. -  
@@ -30,6 +36,7 @@ How to fix India’s **decrepit** cities. Letting them look after themselves wou
 
 ## words-Nov-25.md ##  
 words/2025/words-Nov-25.md  
+A **brash** newcomer disputed the **age-old rules** for **admission** to the club. -  
 
 ## words-Oct-25.md ##  
 words/2025/words-Oct-25.md  
