@@ -25,8 +25,6 @@
 
 ### Words with Questions  
 
-exhume  
-
 **venal**  
 
 **envisage**   
@@ -37,6 +35,8 @@ exhume
 
 ## Special Words  
 
+**prominent**  
+
 **outspoken**  
 
 **eclectic**  
@@ -46,7 +46,8 @@ pensive
 **wimp**  
 
 ## Verb Words  
-		- fiddle vs fudge  
+
+**fiddle & fudge**  
 
 **herald**  
 
@@ -69,15 +70,15 @@ mallet, sledgehammer, axe.
 
 ---  
 **grubby, squalor**   
+**mumble, ramble, babble, muffled**   
+
+**ordeal, toil, arduous, grind, ordure**.  
+**tatter, totter**,   
+
 
 > We pick speakers who stand for something. Free speech. Personal sovereignty. The right to say what you want even when it makes powerful people uncomfortable.  
 
-
-ordeal, toil, arduous, grind, ordure.  
-tatter, totter,   
-
-Stop romanticizing your **grubby** little fling.  
-
+Stop romanticizing your **grubby** little fling. -    
 
 Chronic friction and pressure from eyewear can, in uncommon cases, cause a benign skin lesion called acanthoma fissuratum where the frame presses on the skin.   
 Traffic is everywhere and motorbikes have no **qualms** about riding on the sidewalks. Have to be on the lookout for my kids.  
@@ -115,6 +116,58 @@ An example like below for Somber:
    - **Alternatives**: Gloomy, solemn, grave.  
 
 Here are the words I need help with:  
+
+---  
+
+**Ornery**  
+
+* Definition: Bad-tempered, irritable, or stubborn; easily annoyed and difficult to deal with.  
+* Common Usage: Fairly common in spoken English, especially in American English. It has a slightly informal, folksy tone.  
+* Examples:  
+    * He gets ornery when he hasn’t had his morning coffee.  
+    * The old dog can be a bit ornery around strangers.  
+* Alternatives: Grumpy, cranky, irritable, stubborn  
+
+👉 Practical take: This one is actually useful. It’s casual and natural in conversation—just know it sounds a bit regional (very American, sometimes Southern).  
+
+---  
+
+**Sojourner**  
+
+* Definition: A person who stays somewhere temporarily; a traveler or visitor (often for a short period).  
+* Common Usage: Not very common in daily conversation. You’ll mostly see it in literature, historical writing, or poetic contexts.  
+* Examples:  
+    * He was a sojourner in the city, staying only a few weeks before moving on.  
+    * The village welcomed sojourners passing through during the summer.  
+* Alternatives: Visitor, traveler, temporary resident, guest  
+
+👉 Practical take: You probably wouldn’t say this in casual speech—“visitor” or “traveler” is what people actually use.  
+
+---   
+
+**Avuncular**  
+
+* Definition: Kind, friendly, and slightly patronizing in a way that resembles an uncle.  
+* Common Usage: Uncommon in everyday speech, but appears in writing, especially when describing someone’s personality.  
+* Examples:  
+    * His avuncular manner made new employees feel at ease.  
+    * The professor had an avuncular tone, guiding students with warmth.  
+* Alternatives: Warm, kindly, fatherly, approachable  
+
+👉 Practical take: This is more of a “writer’s word.” In real life, people would just say “friendly” or “like a mentor.”  
+
+---  
+
+**Exhume**  
+
+* Definition: To dig up something buried, especially a dead body.  
+* Common Usage: Moderately common, but mostly in specific contexts—news, crime, archaeology, or metaphorical use.  
+* Examples:  
+    * Investigators decided to exhume the body for further examination.  
+    * The documentary aimed to exhume long-forgotten truths. (metaphorical)  
+* Alternatives: Dig up, uncover, unearth  
+
+👉 Practical take: You’ll hear this occasionally—especially in news or true crime—but rarely in casual conversation unless used metaphorically.  
 
 ---  
 
