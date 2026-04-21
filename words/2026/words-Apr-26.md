@@ -4,26 +4,27 @@
 📘 **Study**  
 - ✍️ [Word Review](../../words-review.md)  
 - ❓ [Words with Questions](#words-with-questions)  
+- 💡 [New Words to Explain](#words-explain)  
 
 📚 **Vocabulary**  
 - 🧩 [Special Words](#special-words)  
 - 🔧 [Verb Words](#verb-words)  
 - 🖼️ [Words Gallery](#words-gallery)  
-- 💡 [Words Explain](#words-explain)  
 
 📰 **Reading & Usage**  
 - 💬 [Conversation](#conversation)  
 - ✨ [Interesting](#interesting)  
 - 🏛️ [Economist Newsletter](#economist-newsletter)  
 
-## AD HOC  
+## Weeks or Random drop-in  
 
-[Week 6](#week-6)   
-
+[Week 16](#week-16)   
 
 ------------------  
 
 ### Words with Questions  
+
+calumnies  
 
 **venal**  
 
@@ -35,13 +36,15 @@
 
 ## Special Words  
 
+**immaculate**  
+
 **prominent**  
 
 **outspoken**  
 
 **eclectic**  
 
-pensive  
+**pensive**  
 
 **wimp**  
 
@@ -60,8 +63,11 @@ pensive
 -------------------------  
 
 ## Words Gallery  
-enervate, castrate, neuter,  
-feminine  
+
+**imbecile, moron, lunatic, ignorant, clueless**   
+
+**enervate, castrate, neuter**,  
+**feminine**  
 
 wheeze, pant   
 
@@ -75,6 +81,10 @@ mallet, sledgehammer, axe.
 **ordeal, toil, arduous, grind, ordure**.  
 **tatter, totter**,   
 
+
+**Non-repudiation**: Authors cant' deny creating the event.   
+
+### Week 16  
 
 > We pick speakers who stand for something. Free speech. Personal sovereignty. The right to say what you want even when it makes powerful people uncomfortable.  
 
@@ -104,18 +114,56 @@ There is a future in which America embraces upheaval and China **shuts itself of
 
 ## Words Explain   
 
-Can you help me understand the words below? Give me a break down of "Definition", "Common usage", one or two "Examples" and Alternative words, also make sure to mention if the word is commonly used in daily life, thank you!  
+**Crass**  
 
-An example like below for Somber:  
+* Definition: Lacking sensitivity, refinement, or intelligence; offensively rude or insensitive.  
+* Common Usage: Quite common, especially in writing and educated speech.  
+* Examples:  
+  * His crass remarks offended everyone at the table.  
+  * Making jokes about that situation felt crass and inappropriate.  
+* Alternatives: Rude, tactless, vulgar, insensitive  
 
-**Somber**  
-   - **Definition**: Dark or dull in tone; gloomy; serious or grave in mood.  
-   - **Common Usage**: Fairly common in contexts describing mood, atmosphere, or color.  
-   - **Examples**:   
-     - The somber atmosphere of the funeral made everyone reflective.  
-   - **Alternatives**: Gloomy, solemn, grave.  
+👉 Practical take: Worth knowing and using. It’s sharper than just “rude.”  
 
-Here are the words I need help with:  
+---  
+
+**Loutish**  
+
+* Definition: Behaving in a rude, aggressive, or uncivilized way.  
+* Common Usage: Uncommon in everyday speech; more literary or formal.  
+* Examples:  
+  * His loutish behavior at the party embarrassed his friends.  
+  * The group of fans became loud and loutish after the game.  
+* Alternatives: Boorish, uncouth, crude, rowdy  
+
+👉 Practical take: You’ll almost never say this out loud—people just say “rude” or “a jerk.”  
+
+---   
+
+**Contumacious**  
+
+* Definition: Stubbornly or willfully disobedient to authority.  
+* Common Usage: Very rare—mostly legal or highly formal writing.  
+* Examples:  
+  * The court warned the contumacious witness about the consequences of refusal.  
+  * His contumacious attitude made cooperation impossible.  
+* Alternatives: Defiant, rebellious, insubordinate  
+
+👉 Practical take: This is basically vocabulary flex territory. Recognize it, don’t use it.  
+
+---  
+
+**Contrite**  
+
+* Definition: Feeling or expressing sincere remorse or guilt.  
+* Common Usage: Fairly common, especially in writing or formal speech.  
+* Examples:  
+  * She sounded genuinely contrite after realizing her mistake.  
+  * He gave a contrite apology to the team.  
+* Alternatives: Remorseful, apologetic, regretful  
+
+👉 Practical take: This one is useful and natural, especially when describing tone (e.g., in emails, reports, or narratives).  
+
 
 ---  
 
