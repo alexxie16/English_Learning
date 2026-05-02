@@ -24,7 +24,11 @@
 
 ### Words with Questions  
 
-calumnies  
+**clammy**  
+
+**upbraid**  
+
+**calumnies**  
 
 **venal**  
 
@@ -35,6 +39,8 @@ calumnies
 **goad**  
 
 ## Special Words  
+
+**empirical**  
 
 **immaculate**  
 
@@ -64,25 +70,35 @@ calumnies
 
 ## Words Gallery  
 
-**imbecile, moron, lunatic, ignorant, clueless**   
+**Exhume, excavate, quarry**   
+**masticate, pulverize, nibble, graze**  
+**canopy, awning, gazebo**.  
 
-**enervate, castrate, neuter**,  
-**feminine**  
-
-wheeze, pant   
-
-**arid region, arid climate**.  
-mallet, sledgehammer, axe.   
-
----  
 **grubby, squalor**   
 **mumble, ramble, babble, muffled**   
 
 **ordeal, toil, arduous, grind, ordure**.  
 **tatter, totter**,   
 
+**imbecile, moron, lunatic, ignorant, clueless**   
 
+**enervate, castrate, neuter**,  
+**feminine**  
+
+**wheeze, pant**   
+
+**arid region, arid climate**.  
+**mallet, sledgehammer, axe**.   
+
+nisus  
+
+-----------  
+
+
+
+She was outspoken in her criticism of the plan.  
 **Non-repudiation**: Authors cant' deny creating the event.   
+
 
 ### Week 16  
 
@@ -105,6 +121,8 @@ adapt, versed, inapt
 
 ### Economist Newsletter  
 
+America is vulnerable to electoral **vandalism**. Too many no longer believe elections are fair.  
+
 Donald Trump says the war may end soon. But he is capable of **feints**. -    
 Between all that chatter, Mr Trump **carved out** time to do something a sitting American president has never done before.  
 It is striking, then, that Donald Trump’s latest polling numbers roughly match Mr Biden’s post-debate **nadir**.  
@@ -113,6 +131,51 @@ America has repeatedly shown a remarkable ability to reinvent itself. By contras
 There is a future in which America embraces upheaval and China **shuts itself off**. That future may yet belong to America.  
 
 ## Words Explain   
+
+---  
+
+**Upbraid**  
+
+* Definition: To criticize or scold someone strongly, usually for doing something wrong.  
+* Common Usage: Not common in everyday conversation, but you’ll see it in books, articles, or more formal writing. Native speakers usually choose simpler words in speech.  
+* Examples:  
+    * She upbraided him for forgetting their anniversary.  
+    * The coach upbraided the team for their lack of discipline.  
+* Alternatives: Scold, reprimand, criticize, rebuke  
+
+👉 Practical take: Useful to recognize, but in real life people usually say “He got scolded,” “My boss chewed me out,” or “She reprimanded him.”  
+
+---   
+
+**De jure**  
+
+* Common Usage: Uncommon in daily life unless you work around law, policy, government, history, or academia.  
+
+A common pair is:  
+
+* De jure = officially/by law  
+* De facto = in practice/in reality  
+* Examples:  
+    * The country was de jure independent, though another power still influenced it.  
+    * English is not the de jure official language of some countries, even if it’s widely spoken.  
+* Alternatives: Legally, officially, by law  
+
+👉 Practical take: Worth knowing, especially because de facto / de jure comes up in history, politics, business, and sometimes Bitcoin governance discussions.  
+
+---   
+
+**Lectin**  
+
+* Definition: A type of protein found in many plants (especially beans, grains, seeds, and some vegetables) that can bind to carbohydrates. Some lectins can cause digestive issues if foods are eaten raw or undercooked.  
+* Common Usage: Not common in everyday conversation, but fairly common in nutrition, health podcasts, biohacking circles, and diet discussions.  
+* Examples:  
+    * Raw kidney beans contain lectins that can make people sick if not cooked properly.  
+    * Some diets recommend reducing lectin-rich foods, though the science is debated.  
+* Alternatives / Related Words: Plant protein, antinutrient (related concept), phytonutrient (not the same thing)  
+
+👉 Practical take: Since you’re into fitness, nutrition, and things like intermittent fasting, you may actually run into this more than most people—especially in discussions around beans, quinoa, grains, or “gut health.”  
+
+---  
 
 **Crass**  
 

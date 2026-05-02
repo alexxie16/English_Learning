@@ -213,7 +213,7 @@ We should learn to fight with enemy in an **overt and covert** way.
 
 > Anger is just fear in a leather jacket.  
 
-His article is stuffed with **shibboleth**. -     
+His article is stuffed with **shibboleth**.   
 
 The battle for Warner Bros is a **prelude** to the real streaming war.  
 Japan’s popular new prime minister gambles on a **snap election**. Will her high approval ratings benefit her **tarnished** party?  
@@ -266,7 +266,7 @@ so net net they **cancel each other out** so sounds like a nothingburger, right.
 One of the signs I am looking at to see when the next **leg up** would be therefore is to see....   
 
 They **slit** his throat.  
-Light **shone** through a **slit** under the door. -    
+Light **shone** through a **slit** under the door.   
 
 **Recovery agents** had been tormenting him for months and the last message he received from them **tipped him over the edge**.  
 However, in many cases, they have been known to start harassing people just four to six days after **disbursing** the loan. -    
@@ -324,7 +324,7 @@ The snow **glistened** in the dawn light.
 **Pearls** of **dew** **glistened** on the grass.  
 
 This **scoundrel** is lying to undermine the protests of bitcoiners who are rightfully upset about the elimination of block rewards!  
-Vanderpoole continues to **hurl** two **century-old** insults at you. He calls you a **varmint**, a **rapscallion**, a yellow belly, a **greenhorn**, and more. -    
+Vanderpoole continues to **hurl** two **century-old** insults at you. He calls you a **varmint**, a **rapscallion**, a yellow belly, a **greenhorn**, and more.   
 Every block has exactly one **preceding** block, but could have more than one next block.  
 
 ### Week 1  
