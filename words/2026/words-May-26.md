@@ -73,6 +73,19 @@ diffuse,
 
 -----------  
 
+I can't get that tune out of my head.   
+Children rapidly tune out if you go beyond them.  
+
+Distressingly, it is becoming easier and easier for a person with bad intentions and no scientific training to create a lethal **pathogen**.  
+Asia’s **stranded** **seafarers** suffer as the Iran war drags on. - In a more dangerous world, **unsung** **mariners** are under increasing threat.  
+Why young men are souring on Donald Trump.  
+Even before the 2024 election—when 49% of men aged 18-29 voted for Donald Trump—books and think pieces sought to unpack the apparent crisis.  
+Mr Trump’s **braggadocious** appeals to the male id certainly helped him draw support.  
+
+
+> **Braggadocious** (adjective) describes someone who is boastful, arrogant, and excessively proud, often in an informal, noisy, or insincere way.   
+
+
 
 Too much reviews or restrictions **enervate** attempting developers.   
 
