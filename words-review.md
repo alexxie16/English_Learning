@@ -1,5 +1,6 @@
 ## words-Apr-26.md ##  
 words/2026/words-Apr-26.md  
+Stop romanticizing your **grubby** little fling. -  
 It **emanates** no cashflows but offers insurance against a blow-up. -  
 Donald Trump says the war may end soon. But he is capable of **feints**. -  
 America has repeatedly shown a remarkable ability to reinvent itself. By contrast, China is cautious, ageing and **hidebound** by party ideology. -  
@@ -30,9 +31,6 @@ He did what he could to **allay** his wife's **myriad** fears. -
 She launched into a **tirade** against the policies that ruined her business. -  
 Other people had that **glint** in their eye for the work that I dreaded. It clicked: I'll never be one of the best at this over the long-term. --Because I don't like **hitting the ball**. -  
 How to fix India’s **decrepit** cities. Letting them look after themselves would help a lot. -  
-
-## words-Nov-25.md ##  
-words/2025/words-Nov-25.md  
 
 ## words-Oct-25.md ##  
 words/2025/words-Oct-25.md  

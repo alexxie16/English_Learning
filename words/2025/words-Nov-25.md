@@ -198,7 +198,7 @@ The post **dripped with contempt** for institutions that cannot distinguish betw
 
 > **Defamation** is the general term for a false statement that harms someone's reputation, while **libel** and **slander** are two **distinct** types of defamation. Libel is written or published defamation, such as in a newspaper or online post, and slander is **spoken defamation**.  
 
-A **brash** newcomer disputed the **age-old rules** for **admission** to the club. -    
+A **brash** newcomer disputed the **age-old rules** for **admission** to the club.     
 
 So you have to be a bit more **discerning** and a bit more **attentive**.  
 You have the remotest **inkling** what that means?  

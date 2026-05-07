@@ -24,19 +24,6 @@
 
 ### Words with Questions  
 
-**clammy**  
-
-**upbraid**  
-
-**calumnies**  
-
-**venal**  
-
-**envisage**   
-
-**supercilious**  
-
-**goad**  
 
 ## Special Words  
 
@@ -70,6 +57,8 @@
 
 ## Words Gallery  
 
+**adapt, versed, apt, inapt**  
+
 **Exhume, excavate, quarry**   
 **masticate, pulverize, nibble, graze**  
 **canopy, awning, gazebo**.  
@@ -90,15 +79,11 @@
 **arid region, arid climate**.  
 **mallet, sledgehammer, axe**.   
 
-nisus  
-
 -----------  
-
 
 
 She was outspoken in her criticism of the plan.  
 **Non-repudiation**: Authors cant' deny creating the event.   
-
 
 ### Week 16  
 
@@ -106,18 +91,16 @@ She was outspoken in her criticism of the plan.
 
 Stop romanticizing your **grubby** little fling. -    
 
-Chronic friction and pressure from eyewear can, in uncommon cases, cause a benign skin lesion called acanthoma fissuratum where the frame presses on the skin.   
+Chronic friction and pressure from eyewear can, in uncommon cases, cause a **benign** skin lesion called acanthoma fissuratum where the frame presses on the skin.   
 Traffic is everywhere and motorbikes have no **qualms** about riding on the sidewalks. Have to be on the lookout for my kids.  
 
 They could **herald** a new type of computing.   
 It **emanates** no cashflows but offers insurance against a blow-up. -    
 
-they are in constant contact with skin, accumulating sweat, oils, and bacteria that can cause skin irritation and grime buildup  
-She was adept at the fine art of irritating people.  
-He is an adept mechanic.  
-She is adept in music.  
-adapt, versed, inapt  
-
+they are in constant contact with skin, accumulating sweat, oils, and bacteria that can cause skin irritation and **grime** **buildup**.    
+She was **adept** at the fine art of irritating people.  
+He is an **adept** mechanic.  
+She is **adept** in music.  
 
 ### Economist Newsletter  
 
