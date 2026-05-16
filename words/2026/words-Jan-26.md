@@ -318,7 +318,7 @@ A short walk will **limber up** the legs.
 
 **The bar brawl**.  
 
-She launched into a **tirade** against the policies that ruined her business. -     
+She launched into a **tirade** against the policies that ruined her business.   
 
 The snow **glistened** in the dawn light.  
 **Pearls** of **dew** **glistened** on the grass.  

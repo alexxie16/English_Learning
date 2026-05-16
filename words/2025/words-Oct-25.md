@@ -176,7 +176,7 @@ We're getting **aggravated**. - Yes, we are.
 
 He lived his life with **reckless abandon**.  
 
-He doesn't care about scandals, slanders, **calumnies**, **aspersions**, or defamation. -    
+He doesn't care about scandals, slanders, **calumnies**, **aspersions**, or defamation.   
 And absolutely no dog jokes, **lest** she **cast aspersions** on Chinese eating habits.  
 
 ### Economist Newsletter  

@@ -16,7 +16,7 @@
 - ✨ [Interesting](#interesting)  
 - 🏛️ [Economist Newsletter](#economist-newsletter)  
 
-## Weeks or Random drop-in  
+## Weeks or Randoms   
 
 [Week 16](#week-16)   
 
@@ -24,9 +24,15 @@
 
 ### Words with Questions  
 
-perspicuity  
+oaf   
 
-**obstinate**  
+parochial  
+
+parsimony  
+
+surfeit  
+
+veracious  
 
 **clammy**  
 
@@ -52,6 +58,10 @@ nisus
 
 ## Verb Words  
 
+**moan**  
+
+**rummage**  
+
 **unpack**  
 
 **deify**  
@@ -68,18 +78,24 @@ nisus
 
 ## Words Gallery  
 
+**wheeze, pant, breathy**   
+
+**commotion, uproar, outcry, outrage, pandemonium**.  
+
 **tatter, totter, tater**.  
 **emanate, emit, radiate, beam**,   
 **diffuse, disperse, dissipate, dispel**,    
 
------------  
+## Regular Recordings  
 
-commotion, uproar, outcry, outrage, pandemonium.  
-bog down.  
 
+> "Be content with what you have; **rejoice** in the way things are. When you realize there is nothing lacking, the whole world belongs to you."  
+
+A good engineer values **perspicuity** in documentation but can become **obstinate** about technical decisions.  
+
+**bog down**  
 
 > keep them on their toes.   
-
 
 Biography must to some extent **delineate** characters.  
 Pumpaa, my **corpulent** **compadre** , it's the crunchy ones that make the meal.  
@@ -92,19 +108,12 @@ The national security tool won't **lapse** Thursday night, but lawmakers are **p
 I can't get that **tune out** of my head.   
 Children rapidly **tune out** if you go beyond them.  
 
-
-
 > **Braggadocious** (adjective) describes someone who is boastful, arrogant, and excessively proud, often in an informal, noisy, or insincere way.   
 
 Too much reviews or restrictions **enervate** attempting developers.   
-
-
 OpenSats was created to provide sustainable funding for those who work on open-source software, especially those who work on projects that help Bitcoin **flourish**.  
 
-The U.S. and Iran may be on the precipice of returning to war after reports of multiple attacks in the Gulf region.  
-Iran ceasefire in peril as UAE says it's under attack.  
-
-crony capitalism, nepotism.  
+**crony capitalism, nepotism**.  
 My hope is that OpenSats will eventually become **obsolete**.  
 
 ## Week 17   
@@ -114,6 +123,16 @@ She was **outspoken** in her criticism of the plan.
 
 ### Economist Newsletter  
 
+Russia is **stumbling** on the battlefield. As **casualties** **soar** in Ukraine, Vladimir Putin looks ever more **beleaguered** at home.  
+The **outbreak** of hantavirus, typically spread by **inhaling** **airborne** particles from rodent **droppings** or urine, is no different.  
+I’d **wager** that more of our readers could now tell me the rough price of a barrel of oil than that of a **pint** of milk.  
+**gather dust**.  
+Everyone **moans** about the length of their commute. Should managers care?  
+Why Swedish schools are going **unplugged**. Nordic pupils are returning to books and pens.  
+
+The U.S. and Iran may be **on the precipice** of returning to war after reports of multiple attacks in the Gulf region.  
+Iran ceasefire **in peril** as UAE says it's under attack.  
+
 Distressingly, it is becoming easier and easier for a person with bad intentions and no scientific training to create a lethal **pathogen**.  
 Asia’s **stranded** **seafarers** suffer as the Iran war drags on. - In a more dangerous world, **unsung** **mariners** are under increasing threat.  
 Why young men are **souring on** Donald Trump.  
@@ -122,6 +141,50 @@ Mr Trump’s **braggadocious** appeals to the male id certainly helped him draw 
 
 
 ## Words Explain   
+
+**Obstinate**  
+
+* Definition: Stubbornly refusing to change your opinion, behavior, or course of action, even when there are good reasons to do so.  
+* Common Usage: Fairly common, especially in writing, education, parenting, workplace feedback, or personality descriptions. Not slang, but definitely alive.  
+* Examples:  
+    * He remained obstinate despite clear evidence that the plan wouldn’t work.  
+    * The child was obstinate and refused to go to bed.  
+* Alternatives: Stubborn, headstrong, inflexible, willful  
+
+👉 Practical take: This is useful. It’s more formal and sharper than “stubborn.”  
+
+---  
+
+**Perspicuity**  
+
+* Definition: Clarity of expression; the quality of being easy to understand, clear, and precise.  
+* Common Usage: Very uncommon in everyday speech. Mostly found in philosophy, rhetoric, academia, literary criticism, or high-level writing.  
+* Examples:  
+    * The book is praised for its perspicuity despite covering difficult ideas.  
+    * His technical writing lacks perspicuity, which makes the documentation hard to follow.  
+* Alternatives: Clarity, lucidity, precision, straightforwardness  
+
+👉 Practical take: This is mostly passive vocabulary—recognize it, but don’t force it into conversation.  
+
+---  
+
+**Rapscallion**  
+
+* Definition: A **mischievous**, dishonest, or playful troublemaker; a **rogue**, rascal, or **scamp**.  
+* Common Usage: Rare in normal daily conversation. It sounds old-fashioned, playful, and a bit theatrical. You’re more likely to see it in novels, movies, fantasy stories, or someone joking around.  
+* Examples:  
+    * That little rapscallion hid my keys again.  
+    * The novel’s hero began as a street rapscallion before becoming a respected captain.  
+* Alternatives: Rascal, rogue, scamp, troublemaker, little devil  
+
+👉 Practical take: This is mostly a fun word, not a practical everyday word. If someone uses it today, it’s usually affectionate or humorous—not a serious insult.  
+
+Closest modern equivalents:  
+* “That kid’s a little **rascal**.” (most natural)  
+* “He’s a bit of a troublemaker.”  
+* “She’s a little **scamp**.” (also slightly old-fashioned but still used)  
+
+---  
 
 **Stolid**  
 

@@ -9,7 +9,7 @@
 
 [Words Gallery](#words-gallery) | [Words Explain](#words-explain)  
 
-[Questions](#Question) 
+[Questions](#Question)   
 
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
@@ -25,9 +25,9 @@
 
 **guardrails**  
 
-**hard-and-fast** 
+**hard-and-fast**   
 
-**crux** 
+**crux**   
 
 **dubious**  
 
@@ -41,7 +41,7 @@
 
 **sneaky**  
 
-**dire**, **dismal**, 
+**dire**, **dismal**,   
 
 **flippant**  
 
@@ -84,7 +84,7 @@
 
 **deviate**  
 
-**hinge** 
+**hinge**   
 
 **oscillate**  
 
@@ -94,7 +94,7 @@
 
 **toss**  
 
-**glamorize** 
+**glamorize**   
 
 -------------------------  
 
@@ -110,13 +110,13 @@ Professor Rogoff, we very much appreciated your **remarks**.” I was thinking, 
 You could either save in a bank account, which gets you a **crummy** interest rate, or in a house. Now they’re going down, so people are **cutting back**.  
 > “austerity” is when you don’t do that. I mean, I think Ezra Klein’s book Abundance actually makes the point that there are costs and benefits to a lot of things.  
 
-By **decrying** this pricing tactic, travel writers may **inadvertently** have done their audiences a **disservice**. 
+By **decrying** this pricing tactic, travel writers may **inadvertently** have done their audiences a **disservice**.   
 It’s fair to say that, right now, Bitcoin appears to be **hurtling towards** a crisis, and a bubble burst is a distinct possibility.  
 Today, Bitcoin is built and programmed by centralized ASIC miners and deployed in a decentralized **manner**, yet it **teeters on** the edge of profitability.  
 So I think the most likely thing will be inflation, which only **lets off** steam.  
 
 **cyclic vs cyclical** ??  
-**ureter, Urinal** 
+**ureter, Urinal**   
 
 So why is it that we love to **pucker up**?  
 
@@ -144,7 +144,7 @@ If the book has a **dust jacket**, you look at the publisher’s **blurb**. Thes
 
 We must find **quarters** before **nightfalls**.  
 
-**blinding factor**. 
+**blinding factor**.   
 There was a lot of **effing and blinding** going on.  
 The reflection of the sun on the glass wall was **blinding**.  
 I woke up with the **blinding** realization that it was time to go.  
@@ -197,13 +197,13 @@ There are always some users who react emotionally to any sort of change, often *
 I’m unsurprised that some people like it, but I am a little **taken aback** by how many people seem to have been fooled by it. It’s not just phony, but to me, transparently **phony**.  
 This whole field is **in nonstop flux**, at least for the **foreseeable** future.  
 
-> A mantra of “we host all views, but don’t promote or endorse all views” 
+> A mantra of “we host all views, but don’t promote or endorse all views”   
 
 
 Some Democrats worry that this limited group might be **complicating** his decision-making process.”  
 > **Axioms** are like street signs: They tell you where you are and where you are going.  
 
-Smart Brevity isn't **hocus-pocus**—it can be learned and taught. -    
+Smart Brevity isn't **hocus-pocus**—it can be learned and taught.   
 Never forget: Most people **tune out** after a few dozen words and skim, **at best**, the rest.  
 
 > As your parting paragraph, just type “Go deeper,” then link to your source material or to a video, podcast, bio, map, excerpts from a book, crosstabs of a poll—anything that lets the reader go down the rabbit hole.  
@@ -243,7 +243,7 @@ That sounds like a **litany** of failure. And compared with the hopes of finding
 Indian firms aim to **gorge** on weight-loss drugs. Domestic demand is surging. And Indian **generics** could make **slimming** cheaper worldwide.  
 Hello Kitty’s owner is **purring** **contentedly**.  
 
-**aperture, orifice** 
+**aperture, orifice**   
 **crevice, nook and cranny, crack, fissure, chap**  
 
 This can be extremely simple, like having acquaintances over for coffee on your **stoop**, or a casual meeting at a pizza place.   
@@ -254,7 +254,7 @@ We’re taught from a young age that books are something you finish. Books are *
 
 August **fares** slightly better but still averages near break-even, with many years showing modest declines of around –2%.  
 
-Don’t feel guilty about **skipping through** a book. 
+Don’t feel guilty about **skipping through** a book.   
 The funny thing about Dayton is, everything on him is small, **except** his belly.  
 
 Narendra Modi and Donald Trump go **head-to-head**. A dispute over tariffs and oil escalates.  
@@ -290,7 +290,7 @@ But at the end of the talk, a simple follow-up question from the audience **stum
 The mother **crooned** her baby to sleep  
 It is important that we **dovetail** our respective interests.   
 
-## Words Explain 
+## Words Explain   
 
 > Can you help me understand the words below? Are they commonly used? If possible, give out few examples and alternatives, thanks!  
 
@@ -301,10 +301,10 @@ It is important that we **dovetail** our respective interests.
 **bungle, botch, fumble, blunder, folly**.  
 **daybreak, nightfall**  
 
-**pangolin, rhino, reptile**, 
-**Swerve, veer, deflect, drift** 
+**pangolin, rhino, reptile**,   
+**Swerve, veer, deflect, drift**   
 **mod, modulo, modulus**.  
-**aseptic, ascetic**. 
+**aseptic, ascetic**.   
 **vindicate, vindicative**.  
 **hooligan, hoodlum, thug, lad, mob**  
 

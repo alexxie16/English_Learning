@@ -1,7 +1,6 @@
 ## words-Apr-26.md ##  
 words/2026/words-Apr-26.md  
 Stop romanticizing your **grubby** little fling. -  
-It **emanates** no cashflows but offers insurance against a blow-up. -  
 Donald Trump says the war may end soon. But he is capable of **feints**. -  
 America has repeatedly shown a remarkable ability to reinvent itself. By contrast, China is cautious, ageing and **hidebound** by party ideology. -  
 
@@ -24,21 +23,12 @@ words/2026/words-Jan-26.md
 Trump, obviously angry that our ostensible allies won’t just **roll over** and **accede** to his madness, is now **petulantly** turning to his favorite word, tariffs. -  
 These **souped-up** signatures are also a game changer for smart contracts. -  
 However, in many cases, they have been known to start harassing people just four to six days after **disbursing** the loan. -  
-His **complexion** was **florid** and his hair white. He was a man to attract immediate **sympathy**. -  
 The paper gave all the **lurid details** of the murder. -  
 Although a man of blood and violence, Richard was too **impetuous** to be either **treacherous** or habitually cruel. -  
 He did what he could to **allay** his wife's **myriad** fears. -  
-She launched into a **tirade** against the policies that ruined her business. -  
 Other people had that **glint** in their eye for the work that I dreaded. It clicked: I'll never be one of the best at this over the long-term. --Because I don't like **hitting the ball**. -  
 How to fix India’s **decrepit** cities. Letting them look after themselves would help a lot. -  
 
-## words-Oct-25.md ##  
-words/2025/words-Oct-25.md  
-He doesn't care about scandals, slanders, **calumnies**, **aspersions**, or defamation. -  
-
-## words-Aug-25.md ##  
-words/2025/words-Aug-25.md  
-Smart Brevity isn't **hocus-pocus**—it can be learned and taught. -  
 
 ## words-Jul-25.md ##  
 words/2025/words-Jul-25.md  

@@ -74,11 +74,8 @@
 **enervate, castrate, neuter**,  
 **feminine**  
 
-**wheeze, pant**   
-
 **arid region, arid climate**.  
 **mallet, sledgehammer, axe**.   
-
 -----------  
 
 
@@ -95,7 +92,7 @@ Chronic friction and pressure from eyewear can, in uncommon cases, cause a **ben
 Traffic is everywhere and motorbikes have no **qualms** about riding on the sidewalks. Have to be on the lookout for my kids.  
 
 They could **herald** a new type of computing.   
-It **emanates** no cashflows but offers insurance against a blow-up. -    
+It **emanates** no cashflows but offers insurance against a blow-up.   
 
 they are in constant contact with skin, accumulating sweat, oils, and bacteria that can cause skin irritation and **grime** **buildup**.    
 She was **adept** at the fine art of irritating people.  
