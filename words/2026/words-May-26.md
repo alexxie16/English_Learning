@@ -24,10 +24,6 @@
 
 ### Words with Questions  
 
-oaf   
-
-parochial  
-
 parsimony  
 
 surfeit  
@@ -58,6 +54,8 @@ nisus
 
 ## Verb Words  
 
+**align, aliggnment**  
+
 **moan**  
 
 **rummage**  
@@ -78,6 +76,8 @@ nisus
 
 ## Words Gallery  
 
+lurid, florid, fluoride, flourish.   
+
 **wheeze, pant, breathy**   
 
 **commotion, uproar, outcry, outrage, pandemonium**.  
@@ -87,6 +87,8 @@ nisus
 **diffuse, disperse, dissipate, dispel**,    
 
 ## Regular Recordings  
+
+chronological, biological, pathological, ideological, neurological.   
 
 
 > "Be content with what you have; **rejoice** in the way things are. When you realize there is nothing lacking, the whole world belongs to you."  
@@ -141,6 +143,43 @@ Mr Trump’s **braggadocious** appeals to the male id certainly helped him draw 
 
 
 ## Words Explain   
+
+**Oaf**  
+
+* Definition:  
+    A clumsy, awkward, or unintelligent person—usually someone physically big, socially awkward, or lacking grace.  
+* Common Usage:  
+    Quite common in spoken and written English, though a little old-fashioned. It’s mildly insulting, often used jokingly.  
+* Used in daily life?  
+    Yes. Native speakers still use it, especially humorously.  
+* Examples:  
+    * He spilled coffee on himself again—sometimes he’s such an oaf.  
+    * Despite looking like a big oaf, he was actually very gentle.  
+* Tone / nuance:  
+    Usually criticizes someone’s awkwardness more than their intelligence. Can sound playful depending on context.  
+* Alternatives:  
+    Clumsy person, buffoon, lout, goofball, awkward guy, brute (stronger), meathead (more insulting)  
+
+---  
+
+**Parochial**  
+
+* Definition:  
+    Having a narrow, limited, or small-minded outlook—especially focused only on local concerns, familiar traditions, or one’s own group, while ignoring the bigger picture.  
+    Historically it comes from “parish” (local church district), which helps explain the “local-only mindset” meaning.  
+* Common Usage:  
+    Fairly common in educated conversation, journalism, politics, business, academia.  
+* Used in daily life?  
+    Not very common in casual daily conversation, but educated native speakers definitely know it.  
+* Examples:  
+    * The company failed because its leadership had a parochial view of the global market.  
+    * Growing up in a small town gave him a somewhat parochial perspective at first.  
+* Tone / nuance:  
+    Usually critical. It suggests someone is too narrow-minded, provincial, or inward-looking.  
+* Alternatives:  
+    Narrow-minded, provincial, insular, small-minded, limited, inward-looking  
+
+---  
 
 **Obstinate**  
 
