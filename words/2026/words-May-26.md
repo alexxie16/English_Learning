@@ -24,8 +24,6 @@
 
 ### Words with Questions  
 
-parsimony  
-
 surfeit  
 
 veracious  
@@ -47,6 +45,10 @@ veracious
 nisus  
 
 ## Special Words  
+
+**parasympathetic**  
+
+**overbearing**  
 
 **composure**  
 
@@ -76,6 +78,9 @@ nisus
 
 ## Words Gallery  
 
+**chronological, biological, pathological, ideological, neurological**.   
+**annal, chronicle**,   
+
 lurid, florid, fluoride, flourish.   
 
 **wheeze, pant, breathy**   
@@ -88,8 +93,8 @@ lurid, florid, fluoride, flourish.
 
 ## Regular Recordings  
 
-chronological, biological, pathological, ideological, neurological.   
 
+Make sure there is tongue, but not **overbearing**.  
 
 > "Be content with what you have; **rejoice** in the way things are. When you realize there is nothing lacking, the whole world belongs to you."  
 
@@ -143,6 +148,74 @@ Mr Trump’s **braggadocious** appeals to the male id certainly helped him draw 
 
 
 ## Words Explain   
+
+**Penury**  
+
+* Definition:  
+    Extreme poverty; severe lack of money or basic resources.  
+* Common Usage:  
+    Mostly literary, formal, or historical writing. Not common in casual speech.  
+* Used in daily life?  
+    Rarely. Most people would simply say “poverty” or “broke.”  
+* Examples:  
+    * After losing his business, he lived in penury for several years.  
+    * Many great artists died in penury despite becoming famous later.  
+* Tone / nuance:  
+    Stronger and more dramatic than just “poor.” It suggests hardship, deprivation, and long-term struggle.  
+* Alternatives:  
+    Poverty, destitution, hardship, impoverishment, want, financial ruin  
+* Memory trick:  
+    Think: “penniless misery” → penury  
+
+---  
+
+**Termagant**  
+
+* Definition:  
+    A harsh, aggressive, bad-tempered woman who constantly argues or nags.  
+* Common Usage:  
+    Very old-fashioned and literary. You’ll mostly encounter it in classic literature or advanced vocabulary lists.  
+* Used in daily life?  
+    Almost never. Most native speakers either don’t know it or never use it.  
+* Examples:  
+    * The novel portrayed the landlord’s wife as a shrill termagant feared by the villagers.  
+    * He described his boss as a termagant who terrorized the office.  
+* Tone / nuance:  
+    Strongly negative and somewhat archaic. Also carries an old-fashioned sexist flavor because it specifically targets women’s behavior.  
+* Alternatives:  
+    Shrew, harridan, nag, scold, battle-axe (informal), tyrant  
+* Historical note:  
+    The word originally came from a fictional violent character in medieval European literature and later became associated with quarrelsome women.  
+
+---  
+
+**Parsimony**  
+
+* Definition:  
+    Extreme unwillingness to spend money or use resources; excessive frugality or stinginess.  
+    In another context (science/philosophy), it can also mean simplicity — choosing the simplest explanation possible.  
+* Common Usage:  
+    Moderately common in formal writing, economics, academia, and intellectual discussions. Less common in casual conversation.  
+* Used in daily life?  
+    Not usually in everyday speech. People more often say “cheap,” “stingy,” or “frugal.”  
+
+
+Meaning 1: Stinginess / extreme frugality  
+
+* Examples:  
+    * His parsimony annoyed his friends because he never contributed to group dinners.  
+    * The company’s excessive parsimony led to outdated equipment and unhappy employees.  
+* Tone / nuance:  
+    Usually negative.  
+    Unlike “frugal,” which can sound wise or disciplined, parsimony often implies being too unwilling to spend.  
+* Alternatives:  
+    Stinginess, cheapness, miserliness, frugality (neutral), thrift (more positive)  
+
+Meaning 2: Simplicity in explanation (important in science/philosophy)  
+
+Pass on this   
+
+---  
 
 **Oaf**  
 
