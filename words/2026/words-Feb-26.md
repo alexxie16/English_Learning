@@ -111,7 +111,6 @@ nitrite
 ## Words Gallery  
 
 **nylon, polyester, polyethylene(PE), resin**,   
-**ethylene, ethanol, methanol, hydrogen, nitrogen, methane, ammonia**.  
 **subterfuge, pretext, pretense, ploy, ruse**,   
 **mace, sarin, mustard**,  
 

@@ -433,6 +433,8 @@ Here are the words I need help with:
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
+This is a **consignment operation**.  
+
 a **cabal** of central banks.  
 Yes, trying to avoid depending on bitcoin is important. But let's not make that be the **line in the sand**.  
 What’s needed is someone to **take charge of** it and build it.  
