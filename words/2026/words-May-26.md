@@ -24,6 +24,8 @@
 
 ### Words with Questions  
 
+upheaval   
+
 throng  
 
 surfeit  
@@ -48,6 +50,8 @@ nisus
 
 ## Special Words  
 
+**opacity**  
+
 **versatile**   
 
 **parasympathetic**  
@@ -60,9 +64,11 @@ nisus
 
 ## Verb Words  
 
+**taint**  
+
 **paint**  
 
-**align, aliggnment**  
+**align, alignment**  
 
 **moan**  
 
@@ -84,6 +90,10 @@ nisus
 
 ## Words Gallery  
 
+**dweeb, oaf**  
+
+**guile, beguile, gullible, deluded, clueless, unsuspecting**,   
+
 **bloated, inflated, swollen, pompous**.  
 
 **ethylene, ethanol, methanol, hydrogen, nitrogen, methane, ammonia**.  
@@ -103,36 +113,43 @@ lurid, florid, fluoride, flourish.
 
 ## Regular Recordings  
 
-upheaval,   
+**fanfare, fuss, buzz**   
+**edict, edifice, edification**.   
 
-dweeb, oaf  
 
-guile, beguile, gullible, deluded, clueless, unsuspecting,   
+History is replete with examples of how governments that have the prerogative to create money out of thin air have almost always abused this privilege by turning it against their own people.  
 
-Trump tells Axios he's "50/50" on Iran deal or bombs, will meet envoys to decide.  
+Use safer, less polemical phrasing that relfects the book's thesis without overstating claims.  
+Affidavit: Suspect high on crystal meth during hit-and-run crash that killed unborn child, Dallas police say.  
 
-Summary of Key DifferencesFeatureCalamityCatastropheCore FocusHuman emotional toll, misery, and deep distress.Physical destruction, structural ruin, and system failure.EtymologyLatin calamitas (damage, loss, affliction).Greek katastrophē (an "overturning" or tragic conclusion).ScopeCan be personal, local, or a prolonged state of hardship.Usually widespread, sudden, and structurally absolute.ToneEmotional, dramatic, and slightly formal.Objective, technical, or final.  
+
+Trump tells Axios he's "50/50" on Iran deal or bombs, will meet **envoys** to decide.  
+
+
+**calamity vs catastrophe**  
+
+> While calamity and catastrophe both describe devastating events, the main difference lies in their focus: a calamity emphasizes the intense personal grief, distress, or ongoing misery caused by an event, whereas a catastrophe emphasizes the massive scale of physical destruction, system failure, or irreversible loss.  
+
 
 **inflated ego**.  
 
-
 I **went to bed** at ten, but I didn't **go to sleep** until midnight.  
-go to bed, hit the hay, hit the sack,   
-To keep early hours is good for health.  
+**go to bed, hit the hay, hit the sack**.     
+To keep **early hours** is good for health.  
 
-Rose is considered as the symbol of love. They have established a strong base in human thoughts and hearts. That's how they mesmerized us with their beauty and appearance.  
+Rose is considered as the symbol of love. They have established a strong base in human thoughts and hearts. That's how they **mesmerized** us with their beauty and appearance.  
 
 
-Let me paint you a picture.  
+Let me **paint** you a picture.  
 
 As bananas **ripen**, they produce and release ethylene gas, which causes the yellow **pigment** in the fruit skin to decay and turn brown.  
 
 
 > You don't resist the marshmallow by trying harder, you resist it by redirecting your attention. That's exactly what meditation trains you to do, thousands of times per session.  
 
-Bitcoin's impact on energy grids and methane mitigation.  
-To be an early adopter of Bitcoin requires a thick skin.  
-Jon Kabat-Zinn's study at the University of Massachusetts found that psoriasis patients who listened to guided meditation during light therapy cleared their skin in roughly half the time of patients who received the same treatment without meditation.  
+Bitcoin's impact on energy grids and **methane** mitigation.  
+To be an early adopter of Bitcoin requires a **thick skin**.  
+Jon Kabat-Zinn's study at the University of Massachusetts found that **psoriasis** patients who listened to guided meditation during light therapy cleared their skin in roughly half the time of patients who received the same treatment without meditation.  
 > The mechanism by which this occurs isn't mysterious. Meditation reduces cortisol. Cortisol drives inflammation. Inflammation drives most chronic skin conditions. When you reduce the cortisol, you cut the inflammation, and the skin heals faster.  
 
 
@@ -193,6 +210,33 @@ Mr Trump’s **braggadocious** appeals to the male id certainly helped him draw 
 
 
 ## Words Explain   
+
+
+---  
+
+**Surfeit**  
+
+* **Definition**: An excessive amount of something; overindulgence or oversupply.  
+* **Common Usage**: More common in formal writing, literature, and commentary than in casual speech. Often used to describe “too much” of something in a negative sense.  
+* Used in Daily Life?: Not very common in everyday conversation, but educated native speakers will recognize it.  
+* Examples:  
+    * There is a surfeit of online content about AI these days.  
+    * After a surfeit of rich food during the holidays, he wanted something lighter.  
+* Alternatives: Excess, overabundance, glut, overload, oversupply.  
+
+---  
+
+**Veracious**  
+
+* **Definition**: Truthful, honest, and accurate in speech or reporting.  
+* **Common Usage**: Formal and literary; more common in journalism, academic writing, or legal contexts than in casual conversation.  
+* **Used in Daily Life**?: Rare in everyday speech. Most people would simply say “truthful” or “honest.”  
+* Examples:  
+    * The reporter was respected for her veracious coverage of political events.  
+    * Historians questioned whether the witness account was fully veracious.  
+* Alternatives: Truthful, honest, accurate, reliable, sincere.  
+
+---  
 
 **Delude**  
 
