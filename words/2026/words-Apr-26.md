@@ -103,7 +103,7 @@ She is **adept** in music.
 
 America is vulnerable to electoral **vandalism**. Too many no longer believe elections are fair.  
 
-Donald Trump says the war may end soon. But he is capable of **feints**. -    
+Donald Trump says the war may end soon. But he is capable of **feints**.   
 Between all that chatter, Mr Trump **carved out** time to do something a sitting American president has never done before.  
 It is striking, then, that Donald Trump’s latest polling numbers roughly match Mr Biden’s post-debate **nadir**.  
 

@@ -256,7 +256,7 @@ men in long sexual **drought**.
 He doesn't look like such a **mooch**.  
 You need to get this marriage **annulled** immediately.   
 
-These **souped-up** signatures are also a game changer for smart contracts. -   
+These **souped-up** signatures are also a game changer for smart contracts.   
 **flash in the pan**.  
 A **taproot** is a large, central, and **dominant** root from which other roots sprout **laterally**.  
 a thick central trunk like a **dandelion** taproot.  
@@ -269,7 +269,7 @@ They **slit** his throat.
 Light **shone** through a **slit** under the door.   
 
 **Recovery agents** had been tormenting him for months and the last message he received from them **tipped him over the edge**.  
-However, in many cases, they have been known to start harassing people just four to six days after **disbursing** the loan. -    
+However, in many cases, they have been known to start harassing people just four to six days after **disbursing** the loan.   
 
 **vagus nerve**  
 
@@ -404,7 +404,7 @@ Another horrifying shooting by federal agents in Minneapolis. What happens when 
 Why Congress won’t **restrain** Trump’s assault on allies over Greenland. Republicans either fear the president’s **ire**, or want to strengthen his bargaining position.  
 The Academy Award nominees for Best Picture are entertainingly **frantic** and defiantly political.  
 
-How to fix India’s **decrepit** cities. Letting them look after themselves would help a lot. -    
+How to fix India’s **decrepit** cities. Letting them look after themselves would help a lot.   
 Can Tokyo’s **charms** be replicated elsewhere?  
 The **back-channeling** between **ideological** **foes** indicates their private communications have been more extensive than previously thought.  
 Two months in, the Gaza ceasefire is **floundering**. The consequences will **ripple** beyond the Middle East.  

@@ -356,7 +356,7 @@ The post **roiled** the White House. Staffers **reflexively** defended the clip,
 This is yet another **slur** on the integrity of the police.   
 
 He received a **paltry** annuity of $100.   
-In their pages Americans were often portrayed as **crass**, loud, **bumptious**. -    
+In their pages Americans were often portrayed as **crass**, loud, **bumptious**.   
 She's a bit **woozy** but the baby's fine.  
 I'd better **buckle down** to those reports.  
 Alright, time to **buckle down** and study for that test next week.  

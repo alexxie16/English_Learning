@@ -24,31 +24,12 @@
 
 ### Words with Questions  
 
-upheaval   
-
-throng  
-
-surfeit  
-
-veracious  
-
-**clammy**  
-
-**upbraid**  
-
-**calumnies**  
-
-**venal**  
-
-**envisage**   
-
-**supercilious**  
-
-**goad**  
-
-nisus  
 
 ## Special Words  
+
+**supreme**  
+
+**rugged**  
 
 **opacity**  
 
@@ -90,7 +71,15 @@ nisus
 
 ## Words Gallery  
 
-**dweeb, oaf**  
+**nefarious, heinous, hideous, despicable, horrendous, atrocious, egregious**,   
+
+**quartz, sapphire, opal, gemstone, emerald, jade**, **turquoise**  
+**fanfare, fuss, buzz**   
+**edict, edifice, edification**.   
+
+**nab, grab, snag, snatch**.  
+
+**dweeb, oaf, lubber**  
 
 **guile, beguile, gullible, deluded, clueless, unsuspecting**,   
 
@@ -101,7 +90,7 @@ nisus
 **chronological, biological, pathological, ideological, neurological**.   
 **annal, chronicle**,   
 
-lurid, florid, fluoride, flourish.   
+**lurid, florid, fluoride, flourish**.   
 
 **wheeze, pant, breathy**   
 
@@ -113,18 +102,18 @@ lurid, florid, fluoride, flourish.
 
 ## Regular Recordings  
 
-**fanfare, fuss, buzz**   
-**edict, edifice, edification**.   
+### Week 21, 22  
 
+They will **stoop to** every **lowdown** trick.  
 
-History is replete with examples of how governments that have the prerogative to create money out of thin air have almost always abused this privilege by turning it against their own people.  
+Please donate whatever you can to xxx. We have to get this **albatross** from **around our neck**. -    
 
-Use safer, less polemical phrasing that relfects the book's thesis without overstating claims.  
-Affidavit: Suspect high on crystal meth during hit-and-run crash that killed unborn child, Dallas police say.  
+History is **replete** with examples of how governments that have the **prerogative** to create money out of thin air have almost always abused this privilege by turning it against their own people.  
 
+Use safer, less **polemical** phrasing that relfects the book's thesis without overstating claims.  
+**Affidavit**: Suspect high on **crystal meth** during hit-and-run crash that killed unborn child, Dallas police say.  
 
 Trump tells Axios he's "50/50" on Iran deal or bombs, will meet **envoys** to decide.  
-
 
 **calamity vs catastrophe**  
 
@@ -139,7 +128,6 @@ To keep **early hours** is good for health.
 
 Rose is considered as the symbol of love. They have established a strong base in human thoughts and hearts. That's how they **mesmerized** us with their beauty and appearance.  
 
-
 Let me **paint** you a picture.  
 
 As bananas **ripen**, they produce and release ethylene gas, which causes the yellow **pigment** in the fruit skin to decay and turn brown.  
@@ -150,8 +138,8 @@ As bananas **ripen**, they produce and release ethylene gas, which causes the ye
 Bitcoin's impact on energy grids and **methane** mitigation.  
 To be an early adopter of Bitcoin requires a **thick skin**.  
 Jon Kabat-Zinn's study at the University of Massachusetts found that **psoriasis** patients who listened to guided meditation during light therapy cleared their skin in roughly half the time of patients who received the same treatment without meditation.  
-> The mechanism by which this occurs isn't mysterious. Meditation reduces cortisol. Cortisol drives inflammation. Inflammation drives most chronic skin conditions. When you reduce the cortisol, you cut the inflammation, and the skin heals faster.  
 
+> The mechanism by which this occurs isn't mysterious. Meditation reduces cortisol. Cortisol drives inflammation. Inflammation drives most chronic skin conditions. When you reduce the cortisol, you cut the inflammation, and the skin heals faster.  
 
 
 Make sure there is tongue, but not **overbearing**.  
@@ -179,7 +167,7 @@ Children rapidly **tune out** if you go beyond them.
 
 > **Braggadocious** (adjective) describes someone who is boastful, arrogant, and excessively proud, often in an informal, noisy, or insincere way.   
 
-Too much reviews or restrictions **enervate** attempting developers.   
+Too much reviews or restrictions **enervate** attempting developers. -    
 OpenSats was created to provide sustainable funding for those who work on open-source software, especially those who work on projects that help Bitcoin **flourish**.  
 
 **crony capitalism, nepotism**.  
@@ -191,6 +179,12 @@ She was **outspoken** in her criticism of the plan.
 **Non-repudiation**: Authors cant' deny creating the event.   
 
 ### Economist Newsletter  
+
+China’s solar industry is notorious for its **busts**. But the current **slump** is of a different order.  
+a **glut** of solar-panel supply and rising protectionism in Western markets.  
+After **blistering** growth, the world’s solar factory faces a **reckoning**.  
+The company’s share price is **down by a third** since the start of the year. We explain how tariffs, budget cuts and the weakening dollar have **sapped** the firm of its **virility**. -    
+Mosquitoes seem to be getting over insect **repellent**.  
 
 Russia is **stumbling** on the battlefield. As **casualties** **soar** in Ukraine, Vladimir Putin looks ever more **beleaguered** at home.  
 The **outbreak** of hantavirus, typically spread by **inhaling** **airborne** particles from rodent **droppings** or urine, is no different.  
@@ -211,6 +205,13 @@ Mr Trump’s **braggadocious** appeals to the male id certainly helped him draw 
 
 ## Words Explain   
 
+---  
+
+**Soup Up**  
+
+* The phrasal verb "soup up" means to modify or upgrade a machine—usually a car engine—to make it faster, more powerful, or better looking than its original specifications.  
+    * Usage: You will often hear it used casually, such as "He spent the weekend souping up his old Camaro."  
+    * Broader use: While most commonly applied to engines, it can also be used figuratively to describe enhancing computers, essays, or athletic shoes.  
 
 ---  
 
@@ -501,8 +502,13 @@ This phrase became deeply embedded in American business and self-help culture.
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
+Please donate whatever you can to xxx. We have to get this **albatross** from **around our neck**.  
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
+
+History is **replete** with examples of how governments that have the **prerogative** to create money out of thin air have almost always abused this privilege by turning it against their own people.  
+
+Rose is considered as the symbol of love. They have established a strong base in human thoughts and hearts. That's how they **mesmerized** us with their beauty and appearance.  
 
 

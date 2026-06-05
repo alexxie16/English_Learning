@@ -31,6 +31,8 @@ export files=(
   "./media/GOT/GOT2.md"
   "./media/GOT/GOT1.md"
   "./book/poor-charlie.md"
+  "./words/2026/words-Jun-26.md"
+  "./words/2026/words-May-26.md"
   "./words/2026/words-Apr-26.md"
   "./words/2026/words-Mar-26.md"
   "./words/2026/words-Feb-26.md"

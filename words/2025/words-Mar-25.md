@@ -9,13 +9,13 @@
 
 [Words Gallery](#words-gallery) | [Words Explain](#words-explain)  
 
-[Questions](#Question) 
+[Questions](#Question)   
 
 [Verb](../../special/2024/verb-24.md) | [Special](../../special/2024/special-words-24.md)  
 
 -------------------------  
 
-### Week 4 
+### Week 4   
 
 Joseph posits that the Federal Reserve is **taking a backseat** to fiscal policies set by the White House.  
 Joseph **draws parallels** between current economic conditions and 2018, where market disruptions led to adjustments in Fed policy.  
@@ -31,7 +31,7 @@ Ukraine’s army escapes Kursk by **the skin of its teeth**.
 Elsewhere, despite our **favourable view** of immigration, we note that arguments against it, **put forward** by J.D. Vance and his **ilk**, have some merit.   
 
 
-**disquiet, discontent, disaffected, unrest**. 
+**disquiet, discontent, disaffected, unrest**.   
 She seemed **outwardly** **composed**.  
 **ravine, cliff, hillside, canyon, gorge, creek, valley**.  
 The deal had the **tacit approval** of the President.  
@@ -63,7 +63,7 @@ We can **curb** juvenile **delinquency** by education.
 **vindicate**.  
 The key of modern enterprise system is **property right** **perspicuity**.   
 **apostate**.  
-> apostate, heathen, heretics. 
+> apostate, heathen, heretics.   
 > No, apostate isn’t commonly used in everyday conversation. It’s more of a formal or literary word, primarily used in religious, political, or ideological contexts to describe someone who has abandoned a belief or allegiance. You might encounter it in historical discussions, religious texts, or academic writing, but it’s not a word you’d hear often in casual speech.  
 
 **remonstrance**  
@@ -97,7 +97,7 @@ Oil the **griddle** with butter, or spray it with non-stick cooking spray.
 **scorn, spurn, contempt**.  
 They have always **looked askance** at the western notion of democracy.   
 
-**shimmer, shimmery, glitter, spark, sheen, shiny**, 
+**shimmer, shimmery, glitter, spark, sheen, shiny**,   
 **matte, glossy, satin, suede**  
 
 Do you think anyone is willing to listen to that **malarkey**?   
@@ -108,11 +108,11 @@ A **shambolic** leak reveals Team Trump’s contempt for allies.
 
 
 The hotel had always been run in a **slipshod** way.  
-**bewitching, bewilding**, 
-**finicky**, 
-**twig, sprouts, bug**, 
-**loin, sirloin**, 
-**teeter, totter** 
+**bewitching, bewilding**,   
+**finicky**,   
+**twig, sprouts, bug**,   
+**loin, sirloin**,   
+**teeter, totter**   
 
 **flippant**.  
 **crotchety, ill-natured**.  
@@ -149,7 +149,7 @@ Her **prose** style is not always **felicitous**; she tends to repetition.
 His first **sortie** into politics was unsuccessful.  
 Her presence was just one more goad to Joanna's **unravelling** nerves.  
 **con artist**.  
-**thud, thump, goad, slam, stomp**, 
+**thud, thump, goad, slam, stomp**,   
 **Prima facie**, there is a strong case against him.  
 There was a **prima facie** case that a contempt of court had been committed.  
 **spinster, spindle**.  
@@ -162,7 +162,7 @@ Texas may not get much of a wildflower show this season as drought conditions th
 
 Currently the club is on **probationary status**.  
 
-**morgue, corpse, autopsy, cemetery**, 
+**morgue, corpse, autopsy, cemetery**,   
 
 Homeless to Lawyer to **Stoic Martinet**.  
 
@@ -172,27 +172,27 @@ Some exports are **well-meaning** and welcomed.
 It is based on a survey by **Gallup**, a **pollster**, where participants are asked to rate their lives out of ten. **Finns** are not known to **gloat** (or, for that matter, smile much).  
 
 You have no reason to **bamboozle** me!  
-**bamboozle, deceive, mislead, ruse, ploy**. 
+**bamboozle, deceive, mislead, ruse, ploy**.   
 How her **silken** robe is rustling!  
 **ominous, portent, portentous**.  
 
 And yes, for months of dark mornings and early sunsets, **trudging through** **slush** and scraping ice off windshields, it's perfectly reasonable to seek shelter in these ways.  
 
-**trudge, trek, slog, wade**. 
+**trudge, trek, slog, wade**.   
 
-**threat modal, threat detection**. 
+**threat modal, threat detection**.   
 
 Microbiological **assay**, colorimetric **assay**.  
 
-**erroneous, unsubstantiated, bogus, dubious, unfounded, untrue** 
+**erroneous, unsubstantiated, bogus, dubious, unfounded, untrue**   
 **unwarranted, misleading, baseless, spurious**.  
 
 These movies seem to **epitomize** the 1950s.   
 Hot steel is **quenched** to harden it.  
-**quench, quell**, 
+**quench, quell**,   
 Who holds the **purse strings** in your house?   
 
-**wacko, lunatic, psycho, loony**, 
+**wacko, lunatic, psycho, loony**,   
 With my **lusty** knowledge of computers, I am learned and able.  
 All lawyers have a responsibility to assist in providing **pro bono** public service.  
 
@@ -206,13 +206,13 @@ The new tax provoked a public **outcry**.
 He **thrashed** the boy with a stick.  
 She started to **blubber** like a child.  
 
-**propitiate, appease, sacrifice, penance, repent, repentance, atonement, confession**. 
+**propitiate, appease, sacrifice, penance, repent, repentance, atonement, confession**.   
 
 **loin, sirloin**  
 
 The door was pulled open with a **creak**.  
 **hombre**.  
-**warble, chirping, beep, whistling, hum, screeching** 
+**warble, chirping, beep, whistling, hum, screeching**   
 
 **make a fuss about/over**.  
 My wife was **fussing over** the food and clothing we were going to take.  
@@ -227,7 +227,7 @@ The village seemed deserted, and when she looked out, the **corral** was empty.
 **corral**: a pen for cattle.  
 The horses were swiftly **corralled**.  
 
-## Week 2 
+## Week 2   
 
 he **riffled through** the pages.  
 there was a slight breeze that **riffled** her hair.  
@@ -238,7 +238,7 @@ In F. Scott Fitzgerald’s **immortal novel**, America’s graft and glory are *
 Books were smuggled on planes, on trains and in baby’s **nappies**.   
 It is just possible, too, that Ukraine’s front lines could suddenly **buckle** and collapse in the face of Russian attacks.   
 Even by his standards the **wallops** that Donald Trump has thrown over the past day are **colossal** ones.  
-Israel’s army adopts a **high-stakes** new strategy: **more terrain**. It remains present inside Syria, Lebanon, Gaza and the West Bank. 
+Israel’s army adopts a **high-stakes** new strategy: **more terrain**. It remains present inside Syria, Lebanon, Gaza and the West Bank.   
 
 **shopping trolley**.  
 **mar**.  
@@ -256,23 +256,23 @@ My favorite gluten-free meals to eat when I'm **short on time**.
 
 The word “**blandish**” is a verb that means to persuade or influence someone using flattery, smooth talk, or gentle coaxing. It often implies excessive or insincere praise meant to manipulate or win favor.  
 > The salesman tried to blandish the customer into buying the expensive car by complimenting his taste.  
-> She blandished her boss with praise, hoping to get a promotion. 
+> She blandished her boss with praise, hoping to get a promotion.   
 > It’s similar to words like coax, cajole, or flatter, but it often has a slightly manipulative or insincere tone.  
 
 “revel” is a verb that means to take great pleasure or delight in something, often in an energetic or enthusiastic way. It can also refer to lively festivities or partying.  
 > He revels in the challenge of solving complex problems.  
-> The crowd revelled in the music and danced all night. 
+> The crowd revelled in the music and danced all night.   
 > The New Year’s Eve revels lasted until dawn.  
 
-**deadbeat, bum** 
+**deadbeat, bum**   
 The bird **perched** on a big branch.  
-**courtier, attender, acolyte**, 
+**courtier, attender, acolyte**,   
 The question is **in abeyance** until we know more about it.  
 Tabloid newspapers **pander to** the lowest **common denominator**.  
 
 His attendance record was **spotty**.  
 The **tadpole** is the **larva** of the frog.   
-**blackguard, rogue, villain, scoundrel** 
+**blackguard, rogue, villain, scoundrel**   
 I wasn't too **keen on** physics and chemistry.  
 He deserted from his **regiment**.  
 
@@ -289,7 +289,7 @@ it **touches my heart** really really hard.
 I've got a **booger** stuck in my nose.  
 This soap **lathers** so nicely.  
 **sudsy**.  
-**locust, grasshopper**. 
+**locust, grasshopper**.   
 **conjugal, marital, spousal, intercourse, coitus,  matrimonial**.  
 A symbol appears in the left upper **quadrant** of the screen.  
 
@@ -300,12 +300,12 @@ I replaced the vase carefully on its **pedestal**.
 A stiff collar may **chafe** your neck.  
 I see him **chafe** and fret at every pore.   
 She was not **privy to** any information contained in the letters.   
-I'm not **privy** to any pending announcement, so calm down. 
+I'm not **privy** to any pending announcement, so calm down.   
 
 I cover up, **slather** on the SPF50 and avoid the midday sun.  
-I can't eat bagels without **slathering** them with cream cheese. 
+I can't eat bagels without **slathering** them with cream cheese.   
 I like to **putter around** in the garden.  
-**putter, stroll, loaf, saunter, loiter** 
+**putter, stroll, loaf, saunter, loiter**   
 Aloe Vera gel is **anti-pyretic** as it reduces heat.  
 
 We have to **ravel** the matter out.   
@@ -313,7 +313,7 @@ Davy had finished **ravelling** out his herring net.
 **rift**.  
 
 Squirrels are **arboreal** creatures.  
-**zeal, zest, zesty** 
+**zeal, zest, zesty**   
 **enjoin**  
 **dissuade, persuade**.  
 
@@ -332,7 +332,7 @@ so calling it unrelated to "ADA scaling" oversimplifies—its **isomorphic** des
 France has become too **effeminate**, etc., etc.  
 **flora and fauna**.  
 
-## Week 1 
+## Week 1   
 
 Iran is the **fulcrum** of an unstable region.   
 
@@ -385,7 +385,7 @@ Asian porcupine quills are more smooth like **bumblebee** quills.  🧐🤓
 **tipple, spirit, liquor**  
 A **pestilence** **overhangs** the country.  
 
-## Words Explain 
+## Words Explain   
 
 1. **Clinch**:  
    - **Meaning**: To clinch means to settle or confirm a deal or argument. It can also refer to holding something tightly or achieving a decisive victory.  
@@ -420,7 +420,7 @@ A **pestilence** **overhangs** the country.
 
 
 **braggart**  
-> braggart isn't commonly used in everyday conversation. People are more likely to say boaster, show-off, or just someone who brags a lot. However, braggart is still understood, especially in written or formal contexts. 
+> braggart isn't commonly used in everyday conversation. People are more likely to say boaster, show-off, or just someone who brags a lot. However, braggart is still understood, especially in written or formal contexts.   
 
 **blotto**  
 > No, blotto is not a commonly used word in everyday conversation. It’s a slang term meaning very drunk and was more popular in the early to mid-20th century. Nowadays, people are more likely to say wasted, hammered, smashed, or plastered instead.  
@@ -487,7 +487,7 @@ We would not **belabor** this point but only wish each to ponder it.
 
 
 ## Words Gallery  
-**dillydally, fritter, dawdle, bum, deadbeat** 
+**dillydally, fritter, dawdle, bum, deadbeat**   
 
 **wayside, sideway, sidewalk, curbside**.  
 
@@ -502,18 +502,16 @@ We would not **belabor** this point but only wish each to ponder it.
 **gypsum, mortar, limestone, plaster, drywall**  
 **granite, sedimentary, marble, masonry, quartz**  
 
-**quartz, sapphire, opal, gemstone, emerald, jade**, **turquoise**  
-
 **embryo, embryonic, fetal, fetus, ovary, uterus, womb, IVF**  
 
-**pilaf, risotto** 
+**pilaf, risotto**   
 
 **doodle, scrabble. scramble**.  
 
 **marina, pier, wharf, harbor, jetty, dock, barge, mast**,  
 **waterfront, lagoon, shipyard, ferry, mooring**.  
 
-**renegade, defector, turncoat, snitch** 
+**renegade, defector, turncoat, snitch**   
 
 **Legume, lentil, beans**.  
 
@@ -538,7 +536,7 @@ We would not **belabor** this point but only wish each to ponder it.
 ## Conversation  
 > Happens in real life or audio/video that I can vivid recall with an imagery.  
 
-**pilaf, risotto** 
+**pilaf, risotto**   
 
 
 ## Interesting  
