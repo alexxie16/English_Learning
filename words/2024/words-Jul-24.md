@@ -276,6 +276,8 @@ I don’t have total **fidelity** to who Andrew is,” says his friend Patrick D
 a man who **expounds** for multiple hours a week on subjects well outside his area of expertise.  
 A spokesperson for Huberman denies **the account of** the **denigration** of women and the dead-baby story and says the hair story was **taken out of context**.  
 
+### Andrew Huberman   
+
 He **puttered** around Huberman’s place, buying a juice, walking through the neighborhood, waiting for him to return.  
 The relationship struck Sarah’s friends **as odd**.  
 he actually enjoys the opportunity to **pull the rug out** from under you.  

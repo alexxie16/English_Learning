@@ -24,6 +24,10 @@
 
 ### Words with Questions  
 
+scamper  
+
+aplomb  
+
 befuddle   
 
 plucky  
@@ -83,6 +87,10 @@ nisus
 
 ## Verb Words  
 
+**fathom**  
+
+**inoculate**  
+
 **hobble**  
 
 **reckon**  
@@ -100,13 +108,24 @@ nisus
 
 **mayhem, mayfly**  
 
+petulant, pompous, bumptious, pretentious, crass, sassy.  
+
 ## Regular Recordings  
 
 **expiate, atone, penance, repent, redemption, salve, salvation**   
 
+**swoon, swoop, stoop**,  
+
+
+Give him our **regards**. With any luck, the **gout** will **abate** with time & he'll be able to walk again.  
+
+We sell 32 BTC to **inoculate** the market.  
+
+Keeping the accounts is **part and parcel** of my job.   
+Is he a slave to the **egoic** state of consciousness? Probably, but that's **part and parcel** of the human condition right now.  
+
 
 > We don't see things as they are, we see things as we are.  
-
 
 
 
@@ -124,8 +143,8 @@ It’s also worth pointing out that although the evidence for mental health bene
 **MSG** enhances the flavor of food by stimulating your taste receptors — it **dials up** the **savory** experience.  
 When fat gets oxidized, for instance, it turns **rancid**.  
 Certain vitamins and **amino acids** can be destroyed by contact with oxygen. **Antioxidants** slow down this process.  
-> Some antioxidants naturally occur, like vitamin C (**ascorbic acid** or E300). Manufacturers often add vitamin C to products for this reason.   
 
+> Some antioxidants naturally occur, like vitamin C (**ascorbic acid** or E300). Manufacturers often add vitamin C to products for this reason.   
 
 
 Why are you **turning on** Saylor  
@@ -140,6 +159,8 @@ His **veneer** of politeness **concealed** a ruthless determination.
 
 
 ### Economist Newsletter  
+
+Even if America and Iran find an **accord**, don’t expect it to **last**. The Donald Trump Show could be **back on air** later this year.  
 
 Seven in ten **reckon** AI will make it harder for people to find work.  
 Prepare for a job **apocalypse**.  
@@ -161,6 +182,9 @@ Or the low-cost Iranian **munitions** that have closed the Strait of Hormuz, **h
 **In a leader**, Shashank explains how these and other developments have changed the **calculus** of war.  
 
 ## Words Explain   
+
+**collected**  
+> Use the adjective collected to describe a person who stays cool and calm, even under pressure. There are certain people who always seem completely **self-possessed** and **unflappable** no matter what is going on around them. You can describe these people as collected.  
 
 ---  
 

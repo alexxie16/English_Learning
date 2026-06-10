@@ -307,7 +307,7 @@ Now is the perfect time to turn your **budding knowledge** into action though me
 
 > I realize now that even if I were Satoshi's great-grandson, bitcoin isn't defined by leaders. It's defined by its community. Not even Satoshi could change what bitcoin has become. That has always been what made bitcoin great and why the millions of other coins made in bitcoin's image never lasted.  
 
-The paper gave all the **lurid details** of the murder. -    
+The paper gave all the **lurid details** of the murder.   
 She took care to paint her toe nails a **lurid red** or orange.   
 
 Although a man of blood and violence, Richard was too **impetuous** to be either **treacherous** or habitually cruel. -   

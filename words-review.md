@@ -26,7 +26,6 @@ Male models are not always so **vacuous** as they are made out to be. -
 words/2026/words-Jan-26.md  
 Trump, obviously angry that our ostensible allies won’t just **roll over** and **accede** to his madness, is now **petulantly** turning to his favorite word, tariffs. -  
 His **complexion** was **florid** and his hair white. He was a man to attract immediate **sympathy**. -  
-The paper gave all the **lurid details** of the murder. -  
 Although a man of blood and violence, Richard was too **impetuous** to be either **treacherous** or habitually cruel. -  
 He did what he could to **allay** his wife's **myriad** fears. -  
 Other people had that **glint** in their eye for the work that I dreaded. It clicked: I'll never be one of the best at this over the long-term. --Because I don't like **hitting the ball**. -  
