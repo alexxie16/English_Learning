@@ -561,7 +561,6 @@ We couldn't stay out there in that **desolation** another day.
 **acetic, acidic, ascetic**.  
 **midget, dwarf**.   
 **wrangle, clash, quarrel, strife**.    
-**hatchet job**, **bury the hatchet**.   
 
 **grimy, slimy, grime, greasy, sleazy, smelly**.  
 **strife, dispute, quarrel**.  

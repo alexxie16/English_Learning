@@ -1,4 +1,3 @@
-
 ## Regular  
 
 📘 **Study**  
@@ -23,12 +22,6 @@
 ------------------  
 
 ### Words with Questions  
-
-scamper  
-
-aplomb  
-
-befuddle   
 
 plucky  
 
@@ -70,6 +63,18 @@ nisus
 
 ## Special Words  
 
+**disputed**  
+
+**sporadic**  
+
+**cozy, cushy**  
+
+**plumbing**  
+
+**autograph**  
+
+**diversion**  
+
 **atlas**  
 
 **calculus**  
@@ -84,8 +89,11 @@ nisus
 
 **overhaul**  
 
-
 ## Verb Words  
+
+**scrub**  
+
+**contaminate**  
 
 **fathom**  
 
@@ -103,20 +111,118 @@ nisus
 
 ## Words Gallery  
 
+**enthrall, enamored, engross, preoccupy**   
+**crescendo, crescent, triangular**   
+
+**autograph, autobiography, autophagy, autodidact, autopsy, tautology**  
+
+**expiate, atone, penance, repent, redemption, salve, salvation**   
+**swoon, swoop, stoop**,  
+
+**intrusive, nonintrusive, unobtrusive, discreet, unassuming**.  
+
+**butler, maid, chauffeur, housekeeper, valet**   
+
 **pergola, gazebo, patio, awning, pavilion, atrium**.  
 **emasculate, incapacitate, cripple, neutralize**,   
 
 **mayhem, mayfly**  
-
-petulant, pompous, bumptious, pretentious, crass, sassy.  
+**petulant, pompous, bumptious, pretentious, crass, sassy**.  
 
 ## Regular Recordings  
 
-**expiate, atone, penance, repent, redemption, salve, salvation**   
+**price gouge, the gauges**.  
+**jibe, gibe, jive**   
+**schmuck, muck, schmaltz**  
 
-**swoon, swoop, stoop**,  
+**scamper, romp**   
+
+China also doesn’t have a **credible** pension system, so this large generation always expected to live off accumulated wealth and they saved **vocariously**.  
+
+My first experience with traditional **battle ropes** was challenging, **to say the least**, yet unexpectedly **cathartic**. There’s something super satisfying about using all your might and frustration to **hurl** a **hefty** rope into the air, followed by a sharp slap when it lands on the ground.  
+The **springs** feel solid and sturdy, and there’s a **reassuring** level of resistance.  
+Because they’re lightweight and compact, I could use them in short 10-minute bursts throughout the day whenever I felt a bit **fidgety** or restless.  
+**defaulting** back to dumbbells for a **no-faff** strength session.  
+They’re quieter, lighter, and far less **grueling** than the gym version.  
+
+### Real knowledge vs Surface knowledge  
+
+I learned that the richest people in the world have full-time security teams whose sole job is to monitor, protect, and **scrub** that personal information from public records and data brokers.  
+But at the end of the talk, a simple follow-up question from the audience **stumped** him.  
+> A **species** of breadth, but no depth.  
+Policymakers with a **flimsy** understanding of the underlying issues they build campaigns around.  
+The **condor** used the least energy to move a kilometer.  
+But, then somebody at Scientific American had the insight to test the efficiency of **locomotion** for a man on a bicycle.  
+So, perhaps our “legs” will **atrophy** with this new motorcycle in our lives. Perhaps there are certain areas where Surface Knowledge will reign supreme.  
+
+The word comes from the **Apocrypha**, a group of books associated with the Bible whose status or authenticity was **disputed**.  
+
+---  
+
+My teenage son has **acquaintances** who experiment with injected **peptides** as part of their gym routine.  
+Peptides themselves are nothing **exotic**.  
+
+> The price of freedom is eternal vigilance  
+
+Emerging-market currency **corridors** are expensive.  
+Leading others(especially newer Bitcoiners) **astray**.  
+Because Bitcoin culture is **upstream** of Bitcoin consensus.  
+If we allow the culture to **rot from within**.  
+
+DTCC: It operates the **plumbing** of the U.S. financial markets, clearing, settling, and safely holding trillions of dollars in assets to ensure transactions are completed securely  
+
+The Washington Post on the EU's DMA **Folly**.   
+
+He delivered the speech with his usual **aplomb**.  
+Many key questions are still **swirling** around the deal: What does Iran actually get? Will Hormuz be truly open? Will Israel comply?  
+
+### Silent sign of intellegence   
+
+So there’s this friend i have, and he is constantly **leaps and bounds** ahead of me.  
+On the surface, they might not look like they’re paying attention, but their brains are actually working **in overdrive**.  
+Their minds work like **steel traps**, a trait that others might find slightly **unsettling**.  
+The person who **struts** about like a peacock talking about their IQ, leading with their resume, etc. those people are usually depriving some village of an idiot.  
+I had a friend named Dave once. He was a sharp guy but he had this **horrendous** habit of trying to **bowl people over** with his amazing use of **verbiage**.  
 
 
+**Well Rounded** is Bad Advice – Anytime education is challenged my ears **perk up**.  
+
+At the sight of her Scarlett stood **transfixed**, leaning against the door.  
+You don't think he's going to be **enamored** by the beauty of Tilikum? -    
+
+## Week 24  
+
+Why do you have to get into every **lost cause**?  
+Hitler had a plan, Trump is just **wining it**.  
+
+**aloof woman**.  
+I was nothing. **Before long**, I will return to nothing.  
+
+The two established a friendly **rapport**, and Chaplin invited Einstein and his wife to the 1931 world premiere of his movie City Lights.  
+
+In the days and weeks that followed, more incredible changes emerged. She regained **urinary continence**, even in the evenings, and began dressing herself.  
+**divine intervention**  
+
+I was clearly **smitten** by xxx.  
+
+It’s a sign of investment banks’ **abasement** before the likes of Elon Musk and the bosses of the AI companies who plan to follow him onto the market.  
+U.S. strikes Iran in response to **downed** helicopter.  
+America’s mayors join the **scrabble** to become influencers. A dispatch from Long Beach, California.  
+**Saint** or sinner: Antoni Gaudí’s polarising style. A hundred years after his death, the Spanish architect is both loved and **reviled**. -    
+
+I do think a lot of the criticism of BTC TCs is just **missing the forest for the trees**. Agree with the **thrust** of your argument here.  
+He **enlivened** his **editorials** with **barbed thrusts** at politicians.  
+Just as President Trump has said, he's been totally **exonerated** on anything relating to Epstein.  
+If she **croaks on** me, I'm a fucking **green spot**.   
+He managed to **croak** a greeting.  
+These resorts remain **unbeatable** **in terms of** price.  
+**hatchet job**, **bury the hatchet**.   
+This is truly a **perversion** of the open source spirit.  
+
+There's a **life-size** **cutout** of Obama on the wall.  
+
+Tom has a very **spotty** face.  
+His attendance record was **spotty**.  
 Give him our **regards**. With any luck, the **gout** will **abate** with time & he'll be able to walk again.  
 
 We sell 32 BTC to **inoculate** the market.  
@@ -126,8 +232,6 @@ Is he a slave to the **egoic** state of consciousness? Probably, but that's **pa
 
 
 > We don't see things as they are, we see things as we are.  
-
-
 
 ## Week 23  
 
@@ -159,6 +263,7 @@ His **veneer** of politeness **concealed** a ruthless determination.
 
 
 ### Economist Newsletter  
+Why **strongmen** are wrong to **loathe** Europe. The leaders of America, China and Russia **scorn** consensual politics. That is a mistake  
 
 Even if America and Iran find an **accord**, don’t expect it to **last**. The Donald Trump Show could be **back on air** later this year.  
 
@@ -183,13 +288,99 @@ Or the low-cost Iranian **munitions** that have closed the Strait of Hormuz, **h
 
 ## Words Explain   
 
+**Apocryphal**  
+
+* Definition: Of doubtful truth or authenticity; widely told as a story, but probably not true.  
+* Common Usage: Fairly common in educated writing, journalism, history, and discussions about famous anecdotes or legends.  
+* Used in Daily Life?: Not very common in casual conversation, but educated native speakers often recognize it.  
+* Examples:  
+    * The story that Isaac Newton discovered gravity because an apple hit his head is probably apocryphal.  
+    * Many apocryphal tales circulate about successful entrepreneurs and how they started their companies.  
+* Alternatives: Legendary, doubtful, unverified, mythical, dubious, hearsay.  
+
+Apocryphal does not necessarily mean “false.”  
+
+It often means:  
+
+“People keep repeating this story, but historians aren’t sure it really happened.”  
+
+For example:  
+
+* “George Washington said, ‘I cannot tell a lie.’” → often considered apocryphal.  
+* “The boiling frog story” → often described as apocryphal.  
+* Many stories about famous investors, founders, and politicians become apocryphal over time.  
+
+---  
+
 **collected**  
 > Use the adjective collected to describe a person who stays cool and calm, even under pressure. There are certain people who always seem completely **self-possessed** and **unflappable** no matter what is going on around them. You can describe these people as collected.  
 
 ---  
 
+**Fash**  
+
+* Definition: To worry, bother, or trouble oneself about something. (Most commonly heard in Scottish English.)  
+* Common Usage: Rare in modern standard English; much more common in Scotland and older literature. Often appears in the phrase “don’t fash yourself.”  
+* Used in Daily Life?: Rare, unless you’re interacting with Scottish speakers or reading older texts.  
+* Examples:  
+    * Don’t fash yourself over such a small mistake.  
+    * She was too tired to fash about what others thought.  
+* Alternatives: Worry, fret, bother, concern oneself.  
+
+⸻  
+
+**Scamper**  
+
+* Definition: To run or move quickly with light, playful steps.  
+* Common Usage: Fairly common, especially when describing children or small animals.  
+* Used in Daily Life?: Yes, though mostly in storytelling and descriptive speech.  
+* Examples:  
+    * The squirrel scampered up the tree.  
+    * The children scampered across the playground.  
+* Alternatives: Dash, scurry, scuttle, run, hurry.  
+
+⸻  
+
+**Aplomb**  
+
+* Definition: Self-confidence, poise, and composure, especially in a difficult or challenging situation.  
+* Common Usage: Common in educated writing and professional contexts; less common in casual conversation.  
+* Used in Daily Life?: Occasionally, particularly when describing someone impressive under pressure.  
+* Examples:  
+    * She handled the tough interview questions with remarkable aplomb.  
+    * Despite the technical failure, he continued the presentation with aplomb.  
+* Alternatives: Poise, confidence, composure, self-assurance, grace.  
+
+⸻  
+
+**Befuddle**  
+
+* Definition: To confuse, puzzle, or make someone unable to think clearly.  
+* Common Usage: Moderately common, often used in a slightly humorous or lighthearted way.  
+* Used in Daily Life?: Yes, though less common than “confuse.”  
+* Examples:  
+    * The complicated instructions completely befuddled me.  
+    * He looked befuddled after trying to understand the tax rules.  
+* Alternatives: Confuse, bewilder, perplex, puzzle, baffle.  
+
+Quick Ranking by Practical Usefulness  
+
+1. Befuddle — Worth knowing and occasionally using.  
+2. Scamper — Common in books, stories, and everyday descriptions.  
+3. Aplomb — Useful in professional, academic, and literary writing.  
+4. Fash — Mostly useful for recognizing in Scottish English or older texts.  
+
+---  
+
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
+
+I was clearly **smitten** by xxx.  
+I was nothing. **Before long**, I will return to nothing.  
+
+We sell 32 BTC to **inoculate** the market.  
+Why do you have to get into every **lost cause**?  
+Hitler had a plan, Trump is just **wining it**.  
 
 Why are you **turning on** Saylor  
 I can **assure** you not for the clicks  
@@ -199,4 +390,5 @@ I can **assure** you not for the clicks
 > Interesting, vivid, absurd, sensational words in sentences.  
 
 
-
+There's a **life-size** **cutout** of Obama on the wall.  
+Policymakers with a **flimsy** understanding of the underlying issues they build campaigns around.  
