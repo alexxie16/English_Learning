@@ -63,6 +63,10 @@ nisus
 
 ## Special Words  
 
+**defeatist**  
+
+**fragmented**  
+
 **disputed**  
 
 **sporadic**  
@@ -111,6 +115,14 @@ nisus
 
 ## Words Gallery  
 
+**mayhem, mayfly**.   
+**price gouge, the gauges**.  
+**jibe, gibe, jive**  
+**schmuck, muck, schmaltz**  
+**scamper, romp**   
+**cartel, cabal, clique, faction, clan, tribe**.  
+**seep, ooze, drip, trickle**  
+
 **enthrall, enamored, engross, preoccupy**   
 **crescendo, crescent, triangular**   
 
@@ -131,12 +143,34 @@ nisus
 
 ## Regular Recordings  
 
-**price gouge, the gauges**.  
-**jibe, gibe, jive**   
-**schmuck, muck, schmaltz**  
+**hard and fast rule**  
 
-**scamper, romp**   
+What caused the great depression--there are **tomes** writing for that.  
 
+## Week 25  
+
+> meaner than a junkyard dog.  
+
+If that's how I **get you off my back**.   
+
+Norms have evolved and **fragmented**.   
+
+Bitcoin is **fragmented consensus**.   
+I need someone to **take the fall**.   
+
+And yet writing **pervades** many jobs, and the more prestigious the job, the more writing it tends to require.  
+**escape valve**.  
+This situation is not unprecedented. In **preindustrial** times most people’s jobs made them strong. Now if you want to be strong, you work out. So there are still strong people, but only those who choose to be.  
+> It will be the same with writing. There will still be smart people, but only those who choose to be.  
+
+
+> Sigma male: The most identifiable personality traits associated with them are independence, self-reliance, and a **penchant** for **solitude**.  
+
+So what I find **gratifying** isn’t that my “language” continues to thrive, because it’s not a language.  
+
+Cancer is in **remission**.  
+
+Different groups are **latching onto** completely different narratives, blaming different people for their problems, and have completely different views of the network.  
 China also doesn’t have a **credible** pension system, so this large generation always expected to live off accumulated wealth and they saved **vocariously**.  
 
 My first experience with traditional **battle ropes** was challenging, **to say the least**, yet unexpectedly **cathartic**. There’s something super satisfying about using all your might and frustration to **hurl** a **hefty** rope into the air, followed by a sharp slap when it lands on the ground.  
@@ -375,6 +409,10 @@ Quick Ranking by Practical Usefulness
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
+**Well Rounded** is Bad Advice – Anytime education is challenged my ears **perk up**.  
+
+If that's how I **get you off my back**.   
+
 I was clearly **smitten** by xxx.  
 I was nothing. **Before long**, I will return to nothing.  
 
@@ -389,6 +427,14 @@ I can **assure** you not for the clicks
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
 
+I had a friend named Dave once. He was a sharp guy but he had this **horrendous** habit of trying to **bowl people over** with his amazing use of **verbiage**.  
+
+Their minds work like **steel traps**, a trait that others might find slightly **unsettling**.  
+
+This situation is not unprecedented. In **preindustrial** times most people’s jobs made them strong. Now if you want to be strong, you work out. So there are still strong people, but only those who choose to be.  
+
+Norms have evolved and **fragmented**.   
+Bitcoin is **fragmented consensus**.   
 
 There's a **life-size** **cutout** of Obama on the wall.  
 Policymakers with a **flimsy** understanding of the underlying issues they build campaigns around.  
