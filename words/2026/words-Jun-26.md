@@ -23,11 +23,6 @@
 
 ### Words with Questions  
 
-plucky  
-
-rueful  
-
-expiate  
 
 valorize  
 
@@ -52,14 +47,6 @@ veracious
 **calumnies**  
 
 **venal**  
-
-**envisage**   
-
-**supercilious**  
-
-**goad**  
-
-nisus  
 
 ## Special Words  
 
@@ -143,6 +130,8 @@ nisus
 
 ## Regular Recordings  
 
+fink, snitch, mole, rat,   
+
 **hard and fast rule**  
 
 What caused the great depression--there are **tomes** writing for that.  
@@ -150,6 +139,8 @@ What caused the great depression--there are **tomes** writing for that.
 ## Week 25  
 
 > meaner than a junkyard dog.  
+
+This is not broken, TLT is broken. --- People get lulled into complecency.  
 
 If that's how I **get you off my back**.   
 
@@ -321,6 +312,90 @@ Or the low-cost Iranian **munitions** that have closed the Strait of Hormuz, **h
 **In a leader**, Shashank explains how these and other developments have changed the **calculus** of war.  
 
 ## Words Explain   
+
+---  
+
+**Plucky**  
+
+* **Definition**: Showing courage, determination, and spirit despite difficulties or challenges.  
+* **Common Usage**: Fairly common, especially when describing someone who is brave in an admirable, underdog-like way.  
+* **Examples**:  
+    * The plucky startup managed to compete against much larger companies.  
+    * Despite her injury, she made a plucky effort to finish the race.  
+* **Alternatives**: Courageous, gutsy, spirited, determined, brave.  
+
+⸻  
+
+**Rueful**  
+
+* **Definition**: Feeling or expressing regret, disappointment, or mild sadness, often with a touch of humor or self-awareness.  
+* **Common Usage**: Moderately common in books, journalism, and descriptive writing. Less common in everyday conversation.  
+* **Examples**:  
+  * He gave a rueful smile when he realized he had missed the train.  
+  * Looking back, she felt rueful about wasting so much time.  
+* **Alternatives**: Regretful, remorseful, wistful, sheepish, apologetic.  
+
+Note: A rueful smile is a very common phrase in literature and articles.  
+
+⸻  
+
+**Expiate**  
+
+* **Definition**: To make amends for a wrongdoing; to atone for or try to make up for a mistake, sin, or offense.  
+* **Common Usage**: Uncommon in daily life. Mostly found in formal, religious, literary, or philosophical contexts. People usually say “make amends,” “atone,” or “make up for.”  
+* **Examples**:  
+  * He tried to expiate his guilt by volunteering in the community.  
+  * The king performed rituals to expiate his past sins.  
+* **Alternatives**: Atone, redeem, make amends, compensate, atone for.  
+
+**Quick Memory Tips**  
+
+* Plucky → brave despite the odds  
+    * “The plucky hero fought on.”  
+* Rueful → regretful, often with a sad smile  
+    * “A rueful smile after making a mistake.”  
+* Expiate → make up for a wrong  
+    * “Expiate a sin or wrongdoing.”  
+
+---  
+
+**Envisage**  
+
+* Definition: To imagine, picture, or think about something as a future possibility.  
+* Common Usage: Somewhat common, especially in formal writing, planning, business, or academic contexts. In daily conversation, people more often say “imagine,” “picture,” or “see.”  
+* Examples:  
+    * I envisage a future where most payments are digital.  
+    * The company envisages expanding into Asia next year.  
+* Alternatives: Imagine, picture, foresee, envision.  
+
+**Supercilious**  
+
+* Definition: Behaving as if you are better, smarter, or more important than other people; arrogant and disdainful.  
+* Common Usage: Not very common in daily life. It is more often seen in literature, essays, or formal criticism. In conversation, people usually say “arrogant,” “snobby,” or “condescending.”  
+* Examples:  
+    * His supercilious attitude made it hard for others to work with him.  
+    * She gave a supercilious smile when she heard their simple question.  
+* Alternatives: Arrogant, haughty, condescending, snobbish.  
+
+**Goad**  
+
+* Definition: To provoke, push, or urge someone into doing something, often by annoying or pressuring them. As a noun, it can also mean something that pushes someone to act.  
+* Common Usage: Fairly common, especially in writing or speech about persuasion, pressure, or provocation. It is usable in daily life, but “push,” “provoke,” or “pressure” are more common.  
+* Examples:  
+    * His friends goaded him into taking the risky bet.  
+    * The criticism acted as a goad, pushing her to work harder.  
+* Alternatives: Provoke, urge, pressure, spur, prod.  
+
+**Nisus**  
+
+* Definition: A strong effort, impulse, or striving toward a goal. It can also refer to a natural tendency or drive.  
+* Common Usage: Very rare in daily life. You will mostly see it in literary, philosophical, biological, or academic writing. Most people would not recognize it in casual conversation.  
+* Examples:  
+    * The artist’s work revealed a nisus toward simplicity and clarity.  
+    * There is a natural nisus in living things to survive and reproduce.  
+* Alternatives: Striving, effort, impulse, drive, tendency.  
+
+---  
 
 **Apocryphal**  
 
