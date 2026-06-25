@@ -23,7 +23,6 @@
 
 ### Words with Questions  
 
-
 valorize  
 
 psoriasis  
@@ -49,6 +48,8 @@ veracious
 **venal**  
 
 ## Special Words  
+
+**lull**  
 
 **defeatist**  
 
@@ -130,7 +131,8 @@ veracious
 
 ## Regular Recordings  
 
-fink, snitch, mole, rat,   
+**fink, snitch, mole, rat**,   
+**grief, grieve, grievous**.  
 
 **hard and fast rule**  
 
@@ -140,7 +142,7 @@ What caused the great depression--there are **tomes** writing for that.
 
 > meaner than a junkyard dog.  
 
-This is not broken, TLT is broken. --- People get lulled into complecency.  
+This is not broken, TLT is broken. --- People get **lulled** into complecency.  
 
 If that's how I **get you off my back**.   
 
@@ -288,6 +290,13 @@ His **veneer** of politeness **concealed** a ruthless determination.
 
 
 ### Economist Newsletter  
+
+Tournament of losers. The World Cup is a festival for corporate **has-beens**.  
+Donald Trump gambles that Iran wants money more than power. The peace deal is **all carrot and no stick**.  
+A new golden age for Japanese banks comes with **a catch**. Smaller lenders are **saddled** with low-return bonds they cannot sell.  
+Philosophy and psychology graduates have **fared** better; perhaps they can help frustrated computer-science grads **cope**.  
+Why the sex in “Rivals” is more than mere **titillation**. In the hit TV drama, back for a second season, a **bonk** is never just a bonk.  
+
 Why **strongmen** are wrong to **loathe** Europe. The leaders of America, China and Russia **scorn** consensual politics. That is a mistake  
 
 Even if America and Iran find an **accord**, don’t expect it to **last**. The Donald Trump Show could be **back on air** later this year.  
