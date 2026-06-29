@@ -20,7 +20,6 @@ This is a particularly **damning** problem in a social media era where it’s ea
 Use your **circumstance** to become even better than otherwise would be, and **revel** in your success when you achieve it. -  
 You could argue the whole religious tradition is a technology designed to **inculpate** people with empathy. -  
 Or they could draw bizarre **epistemic** conclusions: they could conclude that they are playing a video game and that the goal of the video game is to defeat all other players. -  
-Male models are not always so **vacuous** as they are made out to be. -  
 
 ## words-Jan-26.md ##  
 words/2026/words-Jan-26.md  

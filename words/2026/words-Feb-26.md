@@ -393,7 +393,7 @@ The videos and photos include "large quantities" of commercial pornography — n
 the fact that Dario bowed was awesome , he was a man who didn't believe in such things but he was totally **flabbergasted**.  
 
 **Let it loose**.  
-Male models are not always so **vacuous** as they are made out to be. -    
+Male models are not always so **vacuous** as they are made out to be.   
 
 ### Economist Newsletter  
 

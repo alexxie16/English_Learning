@@ -4,7 +4,6 @@
 **set in stone**.  
 **got it right too early**.  
 
-**Churros** (**Mexican fritters**) are very common at **fairs**.  
 
 She finds a **perverse pleasure** in upsetting her parents.  
 These **subsidies** are having **perverse effects**.  

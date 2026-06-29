@@ -23,6 +23,12 @@
 
 ### Words with Questions  
 
+vacuous  
+
+mangy  
+
+broach  
+
 valorize  
 
 psoriasis  
@@ -48,6 +54,10 @@ veracious
 **venal**  
 
 ## Special Words  
+
+**cohesive**  
+
+**fringe**  
 
 **lull**  
 
@@ -103,6 +113,18 @@ veracious
 
 ## Words Gallery  
 
+**fink, snitch, mole, rat**,   
+**grief, grieve, grievous**.  
+
+
+**venerable, venal, venereal**,   
+**decorum, etiquette, manners, propriety, formality**  
+**civility, decency, comity**.  
+
+**gaudy, dandy, tacky**   
+
+**delineate, outline, contour, profile**,   
+
 **mayhem, mayfly**.   
 **price gouge, the gauges**.  
 **jibe, gibe, jive**  
@@ -131,10 +153,30 @@ veracious
 
 ## Regular Recordings  
 
-**fink, snitch, mole, rat**,   
-**grief, grieve, grievous**.  
+The horse's **hooves** left deep **indentations** in the mud. -    
+
+That's because we had a bit of falling out.    
+
+
+
+
+
+## Week 26  
 
 **hard and fast rule**  
+**Churros** (**Mexican fritters**) are very common at **fairs**.  
+
+He was **dogged** by his misfortune.  
+He achieved success through **dogged** persistence.  
+
+The nuance is **whitewashed**.  
+
+
+Dude, **lay off** the hater-ade. This channel used to be educational and enjoyable.  
+
+The wealthy widow is a victim for the **confidence man**.  
+He is tough, a **man's man**.  
+Don't expect he'll side with you. He's a **company man**.  
 
 What caused the great depression--there are **tomes** writing for that.  
 

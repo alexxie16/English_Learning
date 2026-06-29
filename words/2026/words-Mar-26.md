@@ -114,9 +114,6 @@ diatribe, tirade, rant,
 
 **poofy, faggy, faggot**.   
 
-**decorum, etiquette, manners, propriety, formality**  
-**civility, decency**.  
-
 **goo, gooey, gunk, goon, mushy**.  
 
 **ramble, discursive, meandering, babble**  
