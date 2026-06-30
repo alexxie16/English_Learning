@@ -23,11 +23,9 @@
 
 ### Words with Questions  
 
-ornery  
+addle  
 
-vacuous  
-
-mangy  
+mendacious  
 
 broach  
 
@@ -56,6 +54,8 @@ veracious
 **venal**  
 
 ## Special Words  
+
+**sweeping**  
 
 **cohesive**  
 
@@ -155,11 +155,17 @@ veracious
 
 ## Regular Recordings  
 
-Don't rub it in.  
-You can't have it both ways.  
+**castrate, geld, neuter**,   
 
-Token reckoning. Companies are scrambling to curtail soaring AI costs.  
-The company is mobilizing quickly to make amends with the Trump administration, after safety concerns resulted in sweeping export controls on its most powerful models.  
+Oh you haven't found out? Still using those muscles, except those matter.  
+
+When they **castrated** you, did they take the **pillar** with stones?  
+
+**Don't rub it in**.  
+You can't **have it both ways**.  
+
+Token reckoning. Companies are scrambling to **curtail** soaring AI costs.  
+The company is mobilizing quickly to **make amends** with the Trump administration, after safety concerns resulted in **sweeping** export controls on its most powerful models.  
 
 The horse's **hooves** left deep **indentations** in the mud. -    
 That's because we had a bit of falling out.    
@@ -369,6 +375,50 @@ Or the low-cost Iranian **munitions** that have closed the Strait of Hormuz, **h
 
 ---  
 
+**Ornery** (pronounced: OR-nuh-ree)  
+
+* Definition: Bad-tempered, stubborn, or difficult to deal with; often used to describe someone who is grumpy or cantankerous.  
+* Common Usage: Fairly common in American English, especially in the Southern and Midwestern U.S. It’s less common in British English. It often has a slightly humorous or affectionate tone.  
+* Examples:  
+    * My grandfather gets a little ornery when he hasn’t had his morning coffee.  
+    * The ornery mule refused to move no matter what we tried.  
+* Alternatives: Grumpy, cantankerous, stubborn, irritable, grouchy.  
+
+⸻  
+
+**Vacuous** (pronounced: VAK-yoo-us)  
+
+* Definition: Lacking thought, intelligence, or meaningful content; empty or mindless. It can also literally mean “empty.”  
+* Common Usage: Moderately common in formal writing, reviews, and criticism. In everyday conversation, people are more likely to say “shallow,” “empty,” or “mindless.”  
+* Examples:  
+    * The movie looked beautiful, but its story was completely vacuous.  
+    * He stared at the television with a vacuous expression.  
+* Alternatives: Empty, shallow, mindless, unintelligent, hollow.  
+
+Note: A vacuous smile/stare/expression is a common collocation, describing someone who looks blank or unintelligent.  
+
+⸻  
+
+**Mangy** (pronounced: MAYN-jee)  
+
+* Definition: In poor condition, dirty, shabby, or covered with patches of missing fur due to disease (especially referring to animals). It can also be used figuratively to describe something worn-out or pathetic.  
+* Common Usage: Fairly common, especially when describing stray animals. It is also used figuratively in a humorous or insulting way.  
+* Examples:  
+    * A mangy dog wandered through the alley looking for food.  
+    * He lived in a mangy little apartment that desperately needed repairs.  
+* Alternatives: Scruffy, shabby, ragged, filthy, bedraggled.  
+
+Quick Memory Tips  
+
+* Ornery → grumpy and difficult.  
+    * “An ornery old man who complains about everything.”  
+* Vacuous → empty-headed or lacking substance.  
+    * “A vacuous social media influencer with nothing meaningful to say.”  
+* Mangy → scruffy, shabby, or diseased-looking.  
+    * “A mangy stray cat.”  
+
+---  
+
 **Plucky**  
 
 * **Definition**: Showing courage, determination, and spirit despite difficulties or challenges.  
@@ -537,6 +587,8 @@ Quick Ranking by Practical Usefulness
 
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
+
+Oh you haven't found out? Still using those muscles, except those matter.  
 
 **Well Rounded** is Bad Advice – Anytime education is challenged my ears **perk up**.  
 

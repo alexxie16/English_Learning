@@ -1,150 +1,149 @@
 
 
-* enough vs suffice
-* proclivity vs propensity
-* motto, adage, aphorism, proverb, axiom 
+* enough vs suffice  
+* proclivity vs propensity  
+* motto, adage, aphorism, proverb, axiom   
 
-* emblematic vs symbolic 
+* emblematic vs symbolic   
 
-* banal, banalities, cliche, platitudes
+* banal, banalities, cliche, platitudes  
 
-* taxing, laborous, tedious etc 
+* taxing, laborous, tedious etc   
 
-* Bumble vs bunble vs botch 
+* Bumble vs bunble vs botch   
 
 **acidic** vs **sour** vs tart/tartaric  
-* seclusive vs reclusive 
-* sour vs tart 
-* concilliate vs reconcile 
-* Stalwart vs adamant vs staunch 
+* seclusive vs reclusive   
+* sour vs tart   
+* concilliate vs reconcile   
+* Stalwart vs adamant vs staunch   
 
-* quash vs quell 
+* quash vs quell   
 
-* Sea change
+* Sea change  
 * ensconce  
 
-* Plaudit 
+* Plaudit   
 * fetid  
 
-* unqualified
-* prebiotic
+* unqualified  
+* prebiotic  
 
-* broach 
-* seeth 
+* broach   
+* seeth   
 * behoove  
-* oaf 
-* sluice 
+* oaf   
+* sluice   
 * parfait  
-* risotto 
+* risotto   
 
-* inexorable vs inevitable 
-* subterfuge vs excuse 
-* gleam, glint 
-* heterogeneity
-* empressement vs sincere 
-* beset vs beleaguer
+* inexorable vs inevitable   
+* subterfuge vs excuse   
+* gleam, glint   
+* heterogeneity  
+* empressement vs sincere   
+* beset vs beleaguer  
 
-* groovy
-* sedulous
+* groovy  
+* sedulous  
 * queasy vs nauseous  
-* encumber
+* encumber  
 
-* dweeb, bozo, dork, dummy 
-* propensity vs proclivity, inclination, tendency
-* gravel, rubble, cobble, pebble
-* famished vs starving 
-* white-knuckle
-* pliable, pliant
-* abnegate vs abstain 
+* dweeb, bozo, dork, dummy   
+* propensity vs proclivity, inclination, tendency  
+* gravel, rubble, cobble, pebble  
+* famished vs starving   
+* white-knuckle  
+* pliable, pliant  
+* abnegate vs abstain   
 * quandary vs dilemma vs predicament   
-* faze vs fray 
-* raunchy vs squalid vs squalor 
+* faze vs fray   
+* raunchy vs squalid vs squalor   
 * fastidious, picky, finicky, cavil  
 * barf vs vomit  
-* ecstatic vs exultant vs elated 
-* Buckle up vs Buckle down 
-* disdain, scorn, despise, spurn
-* sardonic, sarcastic 
-* besides vs except 
-* sly vs furtive vs skulk 
-* inane vs insane 
-* romp vs frolic 
-* broil vs roast 
-* amenable
-* reprimand vs punish 
-* trope vs metaphor 
+* ecstatic vs exultant vs elated   
+* Buckle up vs Buckle down   
+* disdain, scorn, despise, spurn  
+* sardonic, sarcastic   
+* besides vs except   
+* sly vs furtive vs skulk   
+* inane vs insane   
+* romp vs frolic   
+* broil vs roast   
+* amenable  
+* reprimand vs punish   
+* trope vs metaphor   
 * grumpy vs grouchy vs crabby vs cantankerous  
-* undulations, fluctuation
-* faze, frazzle
-* vacillate, oscillate
-* I always wanted 
-* I never did 
-* propitious vs auspicious 
-* penalize vs punish
-* finicky
-* except vs besides 
-* sleazy vs tacky 
-* genuflected
-* extraneous vs superfluous
+* undulations, fluctuation  
+* faze, frazzle  
+* vacillate, oscillate  
+* I always wanted   
+* I never did   
+* propitious vs auspicious   
+* penalize vs punish  
+* finicky  
+* except vs besides   
+* sleazy vs tacky   
+* genuflected  
+* extraneous vs superfluous  
 * dyke  
-* tacky 
-* revenge vs reprisal
-* Helen of Troy
+* tacky   
+* revenge vs reprisal  
+* Helen of Troy  
 * Motto vs maxim  
-* contemplate 
-* superfluous vs redundant 
-* Asphyxia vs suffocate 
-* proclivity vs inclination 
-* it was great meeting you -- You too 
-* geld
-* particularly vs specially 
-* shim
+* contemplate   
+* superfluous vs redundant   
+* Asphyxia vs suffocate   
+* proclivity vs inclination   
+* it was great meeting you -- You too   
+* particularly vs specially   
+* shim  
 * indisposed  
-* eminent & preeminent 
-* thrilled vs pumped 
-* crave vs long 
-* spar vs squabble vs brawl 
+* eminent & preeminent   
+* thrilled vs pumped   
+* crave vs long   
+* spar vs squabble vs brawl   
 * cheesy  
-* intrusive vs invasive 
+* intrusive vs invasive   
 * spatter vs sputter  
-* squibs
-* Arroyo vs creek 
-* mendacity vs lie O 
-* in the offing
-* marooned
-* onus vs responsibility, obligation 
-* discern
-* silver lining
-* stretch goal 
-* seat of the pants
-* anabolic steroids
+* squibs  
+* Arroyo vs creek   
+* mendacity vs lie O   
+* in the offing  
+* marooned  
+* onus vs responsibility, obligation   
+* discern  
+* silver lining  
+* stretch goal   
+* seat of the pants  
+* anabolic steroids  
 * soul train  
-* Adam's apple
-* subcutaneous
-* knockoff
+* Adam's apple  
+* subcutaneous  
+* knockoff  
 * off camber  
-* a basket currency
-* ratcheted up, ratcheted down
-* toe to toe
-* hand-over-fist
-* underwriting 
-* mazel tov
-* rip off
-* ad hoc
-* charlatan
-* Incumbent 
-* bugbear
-* clobber
-* meandering
-* obstreperous
-* about-face
-* heuristics
-* druthers
-* bespeak
-* nip and tuck
-* tort 
-* swagger 
-* paltry
-* canny and uncanny 
-* clobber
-* cheesy
+* a basket currency  
+* ratcheted up, ratcheted down  
+* toe to toe  
+* hand-over-fist  
+* underwriting   
+* mazel tov  
+* rip off  
+* ad hoc  
+* charlatan  
+* Incumbent   
+* bugbear  
+* clobber  
+* meandering  
+* obstreperous  
+* about-face  
+* heuristics  
+* druthers  
+* bespeak  
+* nip and tuck  
+* tort   
+* swagger   
+* paltry  
+* canny and uncanny   
+* clobber  
+* cheesy  
