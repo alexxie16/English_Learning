@@ -1,6 +1,6 @@
 # English_Learning
 
-Improving English vocabulary for a non native-speaker is taxing and time-consuming. I try to jot down the **words or phrases** I encounter everyday with minimal context, hope it makes my English learning journey easier and more delight. If it can inspire someone else, that's even better 💖.  
+Improving English vocabulary for a non native-speaker is taxing and time-consuming. I try to jot down the **words or phrases** I encounter everyday with minimal context, hope it makes my English learning journey easier and more delight. If it can help/inspire someone else, that's even better 💖.  
 
 <!-- variable -->
 <!-- Readme -->
@@ -8,6 +8,8 @@ Improving English vocabulary for a non native-speaker is taxing and time-consumi
 ## Word Review
 
 [Words Review](./words-review.md)
+
+[The Blocksize War](./book/blocksize-war.md)
 
 ## 2026
 

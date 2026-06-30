@@ -23,6 +23,8 @@
 
 ### Words with Questions  
 
+ornery  
+
 vacuous  
 
 mangy  
@@ -153,13 +155,14 @@ veracious
 
 ## Regular Recordings  
 
+Don't rub it in.  
+You can't have it both ways.  
+
+Token reckoning. Companies are scrambling to curtail soaring AI costs.  
+The company is mobilizing quickly to make amends with the Trump administration, after safety concerns resulted in sweeping export controls on its most powerful models.  
+
 The horse's **hooves** left deep **indentations** in the mud. -    
-
 That's because we had a bit of falling out.    
-
-
-
-
 
 ## Week 26  
 

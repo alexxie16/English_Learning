@@ -1,3 +1,9 @@
+## words-Jun-26.md ##  
+words/2026/words-Jun-26.md  
+The horse's **hooves** left deep **indentations** in the mud. -  
+You don't think he's going to be **enamored** by the beauty of Tilikum? -  
+**Saint** or sinner: Antoni Gaudí’s polarising style. A hundred years after his death, the Spanish architect is both loved and **reviled**. -  
+
 ## words-May-26.md ##  
 words/2026/words-May-26.md  
 Please donate whatever you can to xxx. We have to get this **albatross** from **around our neck**. -  
