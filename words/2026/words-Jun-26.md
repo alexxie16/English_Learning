@@ -157,7 +157,20 @@ veracious
 
 **castrate, geld, neuter**,   
 
-Oh you haven't found out? Still using those muscles, except those matter.  
+tensile, tensor, tentacle, turnstile  
+
+**trickle down** economics.  
+Emotional **anguish**  
+
+**Voles** are well-known **pests** that eat plant roots, **bark**, and **bulbs**, making them a common topic in landscaping and pest.  
+You will frequently hear it mentioned in wildlife programs, as **voles** are a major food source for predators like owls, foxes, and weasels.  
+
+Iran still maintains a **chokehold** over the Strait of Hormuz and trades fire with America.  
+Hong Kong, once a great place to raise and spend money, is **halfway back**. - **Tighter ties** with the mainland have not always helped.  
+
+You boyfriend just happens to be my best friend, I don't feel **ratting him out**.  
+
+Oh you haven't found out? Still using those muscles, **except** those matter.  
 
 When they **castrated** you, did they take the **pillar** with stones?  
 
@@ -588,7 +601,7 @@ Quick Ranking by Practical Usefulness
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
-Oh you haven't found out? Still using those muscles, except those matter.  
+Oh you haven't found out? Still using those muscles, **except** those matter.  
 
 **Well Rounded** is Bad Advice – Anytime education is challenged my ears **perk up**.  
 

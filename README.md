@@ -13,6 +13,8 @@ Improving English vocabulary for a non native-speaker is taxing and time-consumi
 
 ## 2026
 
+[July](./words/2026/words-Jul-26.md) | 
+
 [June](./words/2026/words-Jun-26.md)| [May](./words/2026/words-May-26.md)  | [April](./words/2026/words-Apr-26.md) | 
 
 [Mar](./words/2026/words-Mar-26.md) | [Feb](./words/2026/words-Feb-26.md) | [Jan](./words/2026/words-Jan-26.md) | 

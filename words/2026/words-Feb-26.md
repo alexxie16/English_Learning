@@ -229,7 +229,7 @@ But the authority he mentioned is limited to 150 days and would require Congress
 Businesses seem to be the big winners, but they aren't **out of the woods** yet.  
 
 When people talk about Bitcoin, they **lump Bitcoin with** crypto.  
-This is a particularly **damning** problem in a social media era where it’s easy to plug into the 24/7 **IV drip** of information that’s just noise **masquerading** as signal. -    
+This is a particularly **damning** problem in a social media era where it’s easy to plug into the 24/7 **IV drip** of information that’s just noise **masquerading** as signal.   
 As a **purveyor** of ideas, I think the Noise Bottleneck provides a helpful **lens** through which to evaluate and establish a bar for what I share.  
 
 Do you like **making less of** people?   

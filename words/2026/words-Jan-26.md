@@ -274,7 +274,7 @@ However, in many cases, they have been known to start harassing people just four
 **vagus nerve**  
 
 A guard **zapped** him with the **stun gun**.   
-His **complexion** was **florid** and his hair white. He was a man to attract immediate **sympathy**. -    
+His **complexion** was **florid** and his hair white. He was a man to attract immediate **sympathy**.     
 It's the **stout**, **florid** fellows like me, that always go off first.  
 
 > A Bitcoin **descriptor** (or output descriptor) is a standardized, human-readable string that acts as a **blueprint** for a wallet, defining how to generate, import, and spend its Bitcoin addresses by specifying the necessary keys and scripts.  
