@@ -23,35 +23,7 @@
 
 ### Words with Questions  
 
-addle  
-
-mendacious  
-
-broach  
-
-valorize  
-
-psoriasis  
-
-coquette  
-
-pillory  
-
-upheaval   
-
-throng  
-
-surfeit  
-
-veracious  
-
-**clammy**  
-
-**upbraid**  
-
-**calumnies**  
-
-**venal**  
+NA  
 
 ## Special Words  
 
@@ -118,8 +90,6 @@ veracious
 **fink, snitch, mole, rat**,   
 **grief, grieve, grievous**.  
 
-
-**venerable, venal, venereal**,   
 **decorum, etiquette, manners, propriety, formality**  
 **civility, decency, comity**.  
 
@@ -128,36 +98,22 @@ veracious
 **delineate, outline, contour, profile**,   
 
 **mayhem, mayfly**.   
-**price gouge, the gauges**.  
 **jibe, gibe, jive**  
 **schmuck, muck, schmaltz**  
-**scamper, romp**   
 **cartel, cabal, clique, faction, clan, tribe**.  
 **seep, ooze, drip, trickle**  
 
-**enthrall, enamored, engross, preoccupy**   
-**crescendo, crescent, triangular**   
-
+**enthrall, enamored, engross, preoccupied**   
 **autograph, autobiography, autophagy, autodidact, autopsy, tautology**  
 
 **expiate, atone, penance, repent, redemption, salve, salvation**   
 **swoon, swoop, stoop**,  
 
 **intrusive, nonintrusive, unobtrusive, discreet, unassuming**.  
-
-**butler, maid, chauffeur, housekeeper, valet**   
-
-**pergola, gazebo, patio, awning, pavilion, atrium**.  
-**emasculate, incapacitate, cripple, neutralize**,   
-
 **mayhem, mayfly**  
 **petulant, pompous, bumptious, pretentious, crass, sassy**.  
 
 ## Regular Recordings  
-
-**castrate, geld, neuter**,   
-
-tensile, tensor, tentacle, turnstile  
 
 **trickle down** economics.  
 Emotional **anguish**  
@@ -279,7 +235,7 @@ I had a friend named Dave once. He was a sharp guy but he had this **horrendous*
 **Well Rounded** is Bad Advice – Anytime education is challenged my ears **perk up**.  
 
 At the sight of her Scarlett stood **transfixed**, leaning against the door.  
-You don't think he's going to be **enamored** by the beauty of Tilikum? -    
+You don't think he's going to be **enamored** by the beauty of Tilikum?   
 
 ## Week 24  
 

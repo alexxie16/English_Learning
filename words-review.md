@@ -1,7 +1,6 @@
 ## words-Jun-26.md ##  
 words/2026/words-Jun-26.md  
 The horse's **hooves** left deep **indentations** in the mud. -  
-You don't think he's going to be **enamored** by the beauty of Tilikum? -  
 **Saint** or sinner: Antoni Gaudí’s polarising style. A hundred years after his death, the Spanish architect is both loved and **reviled**. -  
 
 ## words-May-26.md ##  
@@ -24,7 +23,6 @@ a **cabal** of central banks. -
 words/2026/words-Feb-26.md  
 Use your **circumstance** to become even better than otherwise would be, and **revel** in your success when you achieve it. -  
 You could argue the whole religious tradition is a technology designed to **inculpate** people with empathy. -  
-Or they could draw bizarre **epistemic** conclusions: they could conclude that they are playing a video game and that the goal of the video game is to defeat all other players. -  
 
 ## words-Jan-26.md ##  
 words/2026/words-Jan-26.md  

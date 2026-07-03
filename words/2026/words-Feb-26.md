@@ -307,7 +307,7 @@ While in Machines of Loving Grace I focused on the positive implications of this
 What if the country was in fact built and controlled by an existing powerful actor, such as a dictator or **rogue corporate** actor?  
 Humanity needs to wake up, and this essay is an attempt—a possibly **futile** one, but it’s worth trying—to **jolt** people **awake**.  
 The implicit assumption that AI models are necessarily **monomaniacally** focused on a single, coherent, narrow goal, and that they pursue that goal in a clean, consequentialist manner.  
-Or they could draw bizarre **epistemic** conclusions: they could conclude that they are playing a video game and that the goal of the video game is to defeat all other players. -    
+Or they could draw bizarre **epistemic** conclusions: they could conclude that they are playing a video game and that the goal of the video game is to defeat all other players.   
 Millions of people talk to Claude about an **astonishingly** diverse range of topics...   
 By “looking inside,” I mean analyzing the **soup** of numbers and operations that makes up Claude’s neural net and trying to understand, mechanistically, what they are computing and why.  
 We can try to develop an understanding by correlating the model’s “**neurons**” and “**synapses**” to **stimuli** and behavior.  
