@@ -137,7 +137,7 @@ Token reckoning. Companies are scrambling to **curtail** soaring AI costs.
 The company is mobilizing quickly to **make amends** with the Trump administration, after safety concerns resulted in **sweeping** export controls on its most powerful models.  
 
 The horse's **hooves** left deep **indentations** in the mud. -    
-That's because we had a bit of falling out.    
+That's because we had a bit of **falling out**transfixed.    
 
 ## Week 26  
 
@@ -568,7 +568,7 @@ I was nothing. **Before long**, I will return to nothing.
 
 We sell 32 BTC to **inoculate** the market.  
 Why do you have to get into every **lost cause**?  
-Hitler had a plan, Trump is just **wining it**.  
+Hitler had a plan, Trump is just **winging it**.  
 
 Why are you **turning on** Saylor  
 I can **assure** you not for the clicks  

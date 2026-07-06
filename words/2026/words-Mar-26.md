@@ -343,16 +343,6 @@ Here are the words I need help with:
     *   Her droll wit often caught people off guard with its unexpected cleverness.  
 *   **Alternatives**: Amusing, whimsical, quirky, comical, witty.  
 
----  
-
-**Abrogate**  
-
-*   **Definition**: To repeal or do away with (a law, right, or formal agreement); to evade (a responsibility or duty).  
-*   **Common Usage**: Not commonly used in daily life. It's a more formal, legal, or political term.  
-*   **Examples**:  
-    *   The government decided to abrogate the outdated treaty.  
-    *   He tried to abrogate his responsibilities as a parent, but the court wouldn't allow it.  
-*   **Alternatives**: Repeal, revoke, annul, cancel, nullify, repudiate.  
 
 ---  
 
