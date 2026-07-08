@@ -277,17 +277,6 @@ Here are the words I need help with:
 
 ---  
 
-**Imbroglio**  
-
-*   **Definition**: An extremely confused, complicated, or embarrassing situation. It often refers to a public entanglement or a messy dispute.  
-*   **Common Usage**: Less common in daily conversation. You're more likely to encounter it in news headlines, political commentary, literary works, or when describing complex and messy public affairs or personal conflicts.  
-*   **Examples**:  
-    *   The company found itself in an imbroglio after several top executives were implicated in a financial scandal.  
-    *   Their holiday started off fine, but quickly devolved into an imbroglio involving lost luggage, a hotel booking mix-up, and a language barrier.  
-*   **Alternatives**: Mess, predicament, entanglement, quagmire, kerfuffle (more informal).  
-
----   
-
 **Anodyne**  
 
 *   **Definition**:  

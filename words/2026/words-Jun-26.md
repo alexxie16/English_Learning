@@ -121,11 +121,8 @@ Emotional **anguish**
 **Voles** are well-known **pests** that eat plant roots, **bark**, and **bulbs**, making them a common topic in landscaping and pest.  
 You will frequently hear it mentioned in wildlife programs, as **voles** are a major food source for predators like owls, foxes, and weasels.  
 
-Iran still maintains a **chokehold** over the Strait of Hormuz and trades fire with America.  
-Hong Kong, once a great place to raise and spend money, is **halfway back**. - **Tighter ties** with the mainland have not always helped.  
 
 You boyfriend just happens to be my best friend, I don't feel **ratting him out**.  
-
 Oh you haven't found out? Still using those muscles, **except** those matter.  
 
 When they **castrated** you, did they take the **pillar** with stones?  
@@ -148,8 +145,6 @@ He was **dogged** by his misfortune.
 He achieved success through **dogged** persistence.  
 
 The nuance is **whitewashed**.  
-
-
 Dude, **lay off** the hater-ade. This channel used to be educational and enjoyable.  
 
 The wealthy widow is a victim for the **confidence man**.  
@@ -184,7 +179,7 @@ So what I find **gratifying** isn’t that my “language” continues to thrive
 Cancer is in **remission**.  
 
 Different groups are **latching onto** completely different narratives, blaming different people for their problems, and have completely different views of the network.  
-China also doesn’t have a **credible** pension system, so this large generation always expected to live off accumulated wealth and they saved **vocariously**.  
+China also doesn’t have a **credible** pension system, so this large generation always expected to live off accumulated wealth and they saved **vicariously**.  
 
 My first experience with traditional **battle ropes** was challenging, **to say the least**, yet unexpectedly **cathartic**. There’s something super satisfying about using all your might and frustration to **hurl** a **hefty** rope into the air, followed by a sharp slap when it lands on the ground.  
 The **springs** feel solid and sturdy, and there’s a **reassuring** level of resistance.  
@@ -310,6 +305,9 @@ His **veneer** of politeness **concealed** a ruthless determination.
 
 
 ### Economist Newsletter  
+
+Iran still maintains a **chokehold** over the Strait of Hormuz and trades fire with America.  
+Hong Kong, once a great place to raise and spend money, is **halfway back**. - **Tighter ties** with the mainland have not always helped.  
 
 Tournament of losers. The World Cup is a festival for corporate **has-beens**.  
 Donald Trump gambles that Iran wants money more than power. The peace deal is **all carrot and no stick**.  
@@ -557,7 +555,10 @@ Quick Ranking by Practical Usefulness
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
-Oh you haven't found out? Still using those muscles, **except** those matter.  
+What caused the great depression--there are **tomes** writing for that.  
+This is not broken, TLT is broken. --- People get **lulled** into complecency.  
+
+Oh you haven't found out? Still using the muscles, **except** those matter.  
 
 **Well Rounded** is Bad Advice – Anytime education is challenged my ears **perk up**.  
 
@@ -576,6 +577,13 @@ I can **assure** you not for the clicks
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
+
+And yet writing **pervades** many jobs, and the more prestigious the job, the more writing it tends to require.  
+
+Bitcoin is **fragmented consensus**.   
+I need someone to **take the fall**.   
+
+Dude, **lay off** the hater-ade. This channel used to be educational and enjoyable.  
 
 I had a friend named Dave once. He was a sharp guy but he had this **horrendous** habit of trying to **bowl people over** with his amazing use of **verbiage**.  
 
