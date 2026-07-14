@@ -212,7 +212,7 @@ Sea sponges don’t just **expunge** toxins. They also produce biochemicals that
 
 The central government’s **ardour** for lawmaking and punishment is **infectious**.  
 **beach shack**.  
-The usual excuse for India’s **surfeit** of laws and rules is colonialism’s legacy. -    
+The usual excuse for India’s **surfeit** of laws and rules is colonialism’s legacy.   
 Why follow the rules when everything is **verboten**?   
 A growing body of research suggests creatine may be good for brains as well as **brawn**.   
 The Licence Raj was believed by some to be **hindering** economic growth and preventing the Indian economy from reaching its full potential.  

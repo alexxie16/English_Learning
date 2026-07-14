@@ -1,3 +1,13 @@
+## words-Jul-26.md ##  
+words/2026/words-Jul-26.md  
+Can we **pencil in** some time to discuss the hiring plan. -  
+they glutted the market in order to cause a **shakeout** of their competitors. -  
+A magic **amulet** that will grant her three wishes. -  
+He **espouses** a **fist-thumping** view of Russian “sovereignty” that would dismay its neighbours, were they not already dismayed. -  
+The broader AI story is **unfolding** so rapidly—and provoking such **disquiet** among voters—that we will have to return to it soon. -  
+**We woz** wrong about oil. The market **bested** us. But for The Economist, there is no shame in that. -  
+Yet its national politics have not in living memory been as ugly or as **venal**. -  
+
 ## words-Jun-26.md ##  
 words/2026/words-Jun-26.md  
 The horse's **hooves** left deep **indentations** in the mud. -  
@@ -30,7 +40,3 @@ Trump, obviously angry that our ostensible allies won’t just **roll over** and
 Although a man of blood and violence, Richard was too **impetuous** to be either **treacherous** or habitually cruel. -  
 He did what he could to **allay** his wife's **myriad** fears. -  
 Other people had that **glint** in their eye for the work that I dreaded. It clicked: I'll never be one of the best at this over the long-term. --Because I don't like **hitting the ball**. -  
-
-## words-Jul-25.md ##  
-words/2025/words-Jul-25.md  
-The usual excuse for India’s **surfeit** of laws and rules is colonialism’s legacy. -  
