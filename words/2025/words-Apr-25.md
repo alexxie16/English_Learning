@@ -171,7 +171,6 @@ It's **borderline** reasonable.
 
 This was a **thunderbolt** out of a clear sky.  
 He used to make extremely dull, **turgid** and **frankly** awful speeches.  
-a **menial** job.  
 
 Any country that can’t manufacture its own drones will be a **vassal state**.  
 

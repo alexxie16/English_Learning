@@ -125,6 +125,16 @@ veracious
 
 **hyena, dingo, coyote**,   
 **deliverance, affordance**,   
+scrawny, skinny, slender, slim  
+
+altercat, quarrel, spat, dispute, feud,   
+
+She was of below average height, **petite** and **slender**.  
+
+His favourite opening gambit is: "You are so beautiful, will you be my next wife?"  
+
+
+a **menial** job.  
 
 The demand was there so low there for a while, and prices weren't **budging** because sellers wer just syaing "we don't care if the demand is low..."  
 
@@ -228,14 +238,46 @@ Yet its national politics have not in living memory been as ugly or as **venal**
 
 ## Words Explain   
 
-riffle  
+---  
 
-akimbo  
+**Riffle**  
+   - **Definition**: To turn over or through something lightly and quickly; to shuffle or cause to ripple.  
+   - **Common Usage**: Less common in everyday conversation, often found in literature or specific contexts such as card games or examining papers.  
+   - **Examples**:  
+     - She managed to riffle through the stack of papers until she found the document she needed.  
+     - The breeze caused the water to riffle gently, creating small ripples.  
+   - **Alternatives**: Shuffle, skim, rustle.  
 
-ambit  
+---  
 
-indemnity  
+**Akimbo**  
+   - **Definition**: With hands on the hips and elbows turned outward; a posture that conveys defiance or confidence.  
+   - **Common Usage**: Infrequently used in daily life but recognizable in literature and descriptions of body language.  
+   - **Examples**:  
+     - He stood akimbo, staring at the mess in front of him, contemplating his next move.  
+     - The teacher looked at the class with her arms akimbo, signaling her displeasure.  
+   - **Alternatives**: None commonly used; it is quite unique, but "hips out" may convey a similar posture.  
 
+---  
+
+**Ambit**  
+   - **Definition**: The scope, extent, or bounds of something, often used in legal or formal contexts.  
+   - **Common Usage**: Not commonly used in everyday conversation, more prevalent in formal writing, especially in legal or political discussions.  
+   - **Examples**:  
+     - The law falls within the ambit of state jurisdiction.  
+     - Their research explored topics beyond the ambit of conventional science.  
+   - **Alternatives**: Scope, range, domain.  
+
+---  
+
+**Indemnity**  
+   - **Definition**: Security or protection against a loss or other financial burden; compensation for damage or loss.  
+   - **Common Usage**: Moderately common in legal, insurance, and financial contexts; not frequently used in casual conversation.  
+   - **Examples**:  
+     - The contract includes a clause of indemnity, protecting both parties from unforeseen circumstances.  
+     - He sought indemnity for the damages caused during the incident.  
+   - **Alternatives**: Compensation, restitution, protection.  
+   
 ---  
 
 **Grungy**  
