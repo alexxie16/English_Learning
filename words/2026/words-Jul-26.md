@@ -55,6 +55,20 @@ veracious
 
 ## Special Words  
 
+**upside, downside**  
+
+**hyperbole**  
+
+**disingenuous**  
+
+**prolific**  
+
+**paragon**  
+
+**sulking**  
+
+**vast**  
+
 **exorbitant**  
 
 **myopic, optics**   
@@ -62,6 +76,10 @@ veracious
 **plot**   
 
 ## Verb Words  
+
+**stump**  
+
+**negate**  
 
 **taper**  
 
@@ -125,15 +143,81 @@ veracious
 
 **hyena, dingo, coyote**,   
 **deliverance, affordance**,   
-scrawny, skinny, slender, slim  
+**scrawny, skinny, slender, slim**  
 
-altercat, quarrel, spat, dispute, feud,   
+**altercat, quarrel, spat, dispute, feud**,   
+**immaculate, meticulous, impeccable, exquisite, unbeatable, flawless**.  
+
+
+### Layman's Guide to Bitcoin-110   
+> https://blog.lopp.net/a-laymans-guide-to-bip-110/  
+
+> I won't go so far as to say BIP-110 is an attack on Bitcoin, because that's basically a meaningless claim. I think its (human) supporters genuinely believe they're fighting a righteous war to save Bitcoin from spammers, scammers, and undesirables.  
+
+> If successful, it encourages more reactionary forks to "kick out bad actors" which goes against the ethos of Bitcoin being a neutral network in which enemies can operate without fear of being censored.  
+
+Why, **pray tell**, would a fix for an existential crisis only need to be temporary?  
+
+> "There is nothing more permanent than a temporary solution."  
+
+No one I've spoken with believes that the **puritanical** **fanatics** behind the BIP-110 proposal would be content to simply let it expire after a year.  
+Bitcoin has a **sect** of moral **crusaders** who have been on a relentlessly-increasing purity spiral for many years.  
+Ultimately, the only pure bitcoiner will be a ridiculous **caricature**, as one by one they attempt to "cancel" those who **deviate**.   
+political correctness **run amok**.  
+In order words, it's **blustering** meant to deceive observers into thinking that the signals have strength when they actually don't.  
+
+---  
+
+### BIP-110 - My Notes to Miners  
+
+> https://x.com/wk057/status/2077444826232955365?s=20  
+
+> Something to keep in mind is that mining BIP110 signaling blocks via DATUM on OCEAN carries virtually no risk to the miner up until the fork point at block 961632. The cost is negligible, as you're effectively guaranteed to recoup rental costs, etc.  
+
+If you don’t upgrade to the latest consensus rules, you’re insecure! You’ll lose funds! You’ll mine invalid blocks! You’ll [insert additional **hyperbole** here.  
+While BIP110 has made a **valiant effort** to gain that consensus, it has yet to have any measurable majority at what is now arguably **the 11th hour**.  
+I personally expected something particularly **egregious** to hit the chain almost immediately, and **to the best of my knowledge** that's not yet happened. Could it still happen? Yeah, I suppose.  
+This particular argument for BIP-110 **falls pretty flat** to me at this point.  
+I'm sure I'll catch **flack** from all angles simply for daring to speak my mind on it.  
+Yes, I know, proponents will claim it's not about spam... and will also make **semantic arguments** that it does stop data as well... neither of which appears to be correct.  
+Don't be **gaslit** by either side of the debate, and make your own decisions.  
+Part of the reason for early signaling and lock-in periods is to help coordinate upgrades in a smooth fashion. Waiting until the last minute **negates** that benefit entirely.  
+I see no compelling rationale or **upside** to doing so.  
+Simply **hand waving it away** as if it's nonsense is kind of pointless, and a bit **revealing**.  
+
+
+### Vast as an adjective   
+
+A **vast** expanse of rice fields was laid out before us.  
+The snowstorm swept the **vast expanse** of grassland.  
+A **vast** **funeral procession** is making its way through the Thai capital Bangkok.  
+
+### Ray Dalio, The Tribute System   
+
+Believe me, I understand the **pull**. But I’ve spent over thirty years doing one kind of work, helping people discover what their minds are actually capable of, and it’s taught me something I would stake everything on: There is far more to human potential than any of us were ever told.  
+As Sun Tzu wrote, “to **subdue** the enemy without fighting is the **acme** of skill.” Violent war is a **last resort**. -    
+It also forced Chinese leaders to recognize the independence of Korea (which soon fell under Japanese **domination**) and pay large **indemnities**.  
+Cities were devastated, millions died, and atrocities such as the Nanjing Massacre became **enduring** symbols of national trauma.  
+More precisely, they view it as a **renegade** province that is building up its military with American support in order to remain independent.  
+**cross-strait** reunification  
+We might even see a **veiled threat** to blockade the flow of chips coming from Taiwan  
+
+> Reflecting this is the fact the word “country” in Chinese is made up of two characters—“state” and “family”—so in China, “country” means “state family.”  
+It is based on **filial piety**, which means those who are on top of the hierarchy...   
+In the tribute system, relations are not between equals, but between superiors and **subordinates** that recognize their relative positions in the hierarchy.  
+
+> There is a good chance that the war will be so subtly fought that we won’t see it being fought.  
+
+---  
+
+The **rainbow bridge** of ancient China solved a problem that **stumped** engineers for generations.  
+But the difference is that BIP148 had a much more credible social/economic **coalition** behind it.   
+
+> Ergot: Connection to LSD, The psychedelic compound LSD (Lysergic acid diethylamide) was first synthesized from **ergot** alkaloids by chemist Albert Hofmann in 1943  
 
 She was of below average height, **petite** and **slender**.  
 
-His favourite opening gambit is: "You are so beautiful, will you be my next wife?"  
-
-
+His favourite opening **gambit** is: "You are so beautiful, will you be my next wife?"  
 a **menial** job.  
 
 The demand was there so low there for a while, and prices weren't **budging** because sellers wer just syaing "we don't care if the demand is low..."  
