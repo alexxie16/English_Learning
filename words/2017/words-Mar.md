@@ -191,7 +191,8 @@ Access to Trusted site can be “spoofed”
 I didn't take EA course.  
   
 but I do know is the lighting cable won't be replaced easily.  
----- March 3rd week  
+
+### March 3rd week  
   
 he doesn't like Mac  
 I don't think she had a job yet.  
@@ -215,7 +216,7 @@ It will end up disappointing audiences.
 make it more appealing.  
 mix-up  
   
----- March 2nd week  
+### March 2nd week  
   
 do me a favor, please.  
   
@@ -244,7 +245,8 @@ I am looking forward to --- (not expect)
 I'm in dilemma of whether I should go to Ottumwa or not  
 using a widow as a political pawn.  
   
---- March 1st week  
+### March 1st week  
+
 Would you please do us a favor  
   
 I won't take it away;  

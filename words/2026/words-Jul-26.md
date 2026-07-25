@@ -23,14 +23,6 @@
 
 ### Words with Questions  
 
-addle  
-
-mendacious  
-
-broach  
-
-valorize  
-
 psoriasis  
 
 coquette  
@@ -55,6 +47,12 @@ veracious
 
 ## Special Words  
 
+**reassuring**  
+
+**verdict**  
+
+**poised**  
+
 **upside, downside**  
 
 **hyperbole**  
@@ -77,6 +75,8 @@ veracious
 
 ## Verb Words  
 
+**moan**  
+
 **stump**  
 
 **negate**  
@@ -92,6 +92,33 @@ veracious
 -------------------------  
 
 ## Words Gallery  
+
+Amardilo, pangolin, reptile, vertebrate  
+
+**distend, distent, inflate, dilate, pupil**   
+**elongate, swell, swollen**,   
+**levator, scapula, pelvic**  
+
+
+**anathema, eyesore, nuisance, heresy, heathen**,  
+**rile, revile**,   
+
+**menthol, ethylene**,   
+
+**flock, bevy, herd**,   
+
+**camisole, insole, inseam**  
+
+**sullen, sulk, sulky, sully**,  
+
+**scrape, scrub**.   
+
+**hyena, dingo, coyote**,   
+**deliverance, affordance**,   
+**scrawny, skinny, slender, slim**  
+
+**altercat, quarrel, spat, dispute, feud**,   
+**immaculate, meticulous, impeccable, exquisite, unbeatable, flawless**.  
 
 **simple-minded, doofus, fathead, knucklehead**  
 **shake up, shake down, shake off, shakeout**  
@@ -126,28 +153,48 @@ veracious
 **scamper, romp**   
 **crescendo, crescent, triangular**   
 **butler, maid, chauffeur, housekeeper, valet**   
-
 **pergola, gazebo, patio, awning, pavilion, atrium**.  
-
 
 **castrate, geld, neuter**,   
 **emasculate, incapacitate, cripple, neutralize**,   
-
 **tensile, tensor, tentacle, turnstile**  
 **perturbed, petulant, whiny**  
 **hellbent, hidebount**,   
-
 **blackguard, rogue, rascal, scoundrel, hooligan**   
 
 ## Regular Recordings  
 
-**hyena, dingo, coyote**,   
-**deliverance, affordance**,   
-**scrawny, skinny, slender, slim**  
+### Week 30   
 
-**altercat, quarrel, spat, dispute, feud**,   
-**immaculate, meticulous, impeccable, exquisite, unbeatable, flawless**.  
+**overshoot oneself**.  
 
+> Without decentralization, Bitcoin's censorship-resistance point is just **moot**.   
+
+so what's the **verdict**, Mr lock?  
+
+Concerns about rising interest rates in America also **weighed on** sentiment.  
+
+Between July 12 and 20, the local council visited 4 times. And the final **grounds** for shutdown? A **signboard** that doesn't match the licence, and two coworking units joined together where one side's paperwork wasn't right.  
+RM100M+ invested, RM500M more planned - and gets shut down after a week of inspections found some procedural **lapse**.  
+
+We can’t be so rigid that we **chase away** potential progress while our **best and brightest** keep flowing out.  
+Should we invest in Malaysia? If not, we will **readily** go somewhere else.  
+
+The **surfeit** of information available online can be overwhelming at times.  
+
+Twenty years is a long time, but not enough to change a man's nose from **Roman to a pug**.  
+Somehow I can't do it myself, so I went around and get a **plain clothes** man to do this job.  
+
+
+### Week 29  
+
+It really does show that Meta views its users as something **akin to** **vassals**.  
+
+It’s been made into a play, a TV series, a novel and a porn **flick**. It has given its name to a body lotion and a lunar lander.  
+
+The **onus** is on us.  
+
+That's why they **divided** power.  
 
 ### Layman's Guide to Bitcoin-110   
 > https://blog.lopp.net/a-laymans-guide-to-bip-110/  
@@ -278,6 +325,19 @@ walking on the **tight rope**.
 I mean the promise to yourself that keeps **tugging at your sleeve**.   
 
 ### Economist Newsletter  
+Despite my brief membership of this widely **vilified** minority, I do not take it personally when politicians and activists blame billionaires for all the world’s ills, as they increasingly do.   
+
+In fact, as we report this week, much of the vilification is **undeserved**: most billionaire wealth these days is acquired not from inheritance or cronyism but in competitive industries, typically in ways that benefit the public.  
+
+Not everyone will find this **reassuring**.   
+Why the OpenAI escape is the most worrying AI **mishap** yet.  
+Net approval for Donald Trump’s war among Democratic voters is a solidly **abject** -84%.  
+**Fecal matter** particles get into the water regardless of whether or not you have **diarrhea**.  
+
+The crumbling crypto market is **weighing on** Bitcoin.  
+
+Trump’s Hormuz **brinkmanship** is worsening a global fuel crunch.  
+A very silly adaptation of “The Odyssey”. Sir Christopher Nolan’s film is **emblematic** of its time.  
 
 Show a liberal a Lime bike and he will show you his soul. Are the e-bikes a **paragon** of **liberalism** or an **abomination**?   
 
@@ -303,7 +363,6 @@ FIFA’s **exorbitant** World Cup tickets could backfire.
 J.D. Vance is a **pious** man, and has written a book to tell you how he became so. “Communion” has little in common with “**Hillbilly Elegy**”, the book that made the future vice-president’s name.   
 Mr Vance is now **fond of** quoting the Gospel according to Matthew.  
 
-
 The pros and cons of commuting. Everyone **moans** about the length of their commute. Should managers care?  
 
 Europe promised cash for defence. It’s failing to **cough up**.  
@@ -321,6 +380,106 @@ Yet its national politics have not in living memory been as ugly or as **venal**
 
 
 ## Words Explain   
+
+---  
+
+**Twit**  
+   - **Definition**: A silly or foolish person; or to tease or ridicule someone in a light-hearted manner.  
+   - **Common Usage**: Commonly used in informal contexts, often in a playful or derogatory manner.  
+   - **Examples**:  
+     - "Don't be such a twit; it's just a small mistake!"  
+     - "She called him a twit for forgetting their anniversary."  
+   - **Alternatives**: Fool, idiot, nincompoop.  
+
+---  
+
+**Acme**  
+   - **Definition**: The highest point or peak of something; the pinnacle of achievement or excellence.  
+   - **Common Usage**: Used less frequently in daily life; often appears in contexts of achievement, business branding, or discussion of quality.  
+   - **Examples**:  
+     - "The acme of her career was winning the prestigious award."  
+     - "Their restaurant is known for serving the acme of gourmet cuisine."  
+   - **Alternatives**: Pinnacle, zenith, peak.  
+
+---   
+
+**Addle**  
+   - **Definition**: To confuse or make unable to think clearly; to muddle or mix up.  
+   - **Common Usage**: Not commonly used in daily conversation, often found in literary or formal contexts.  
+   - **Examples**:  
+     - The long lecture seemed to addle her thoughts, and she struggled to focus afterwards.  
+     - Too much sugar can addle a child's mind, making it hard for them to concentrate.  
+   - **Alternatives**: Confound, confuse, befuddle.  
+
+---  
+
+**Mendacious**  
+   - **Definition**: Given to lying or deception; untruthful.  
+   - **Common Usage**: Less common in casual conversation, but more prevalent in formal writing or discussions about honesty.  
+   - **Examples**:  
+     - The mendacious claims made during the debate left many voters skeptical.  
+     - His mendacious nature eventually led to his downfall in the corporate world.  
+   - **Alternatives**: Deceitful, dishonest, fibbing.  
+
+---  
+
+**Broach**  
+   - **Definition**: To bring up a topic for discussion; to introduce something for consideration.  
+   - **Common Usage**: Fairly common, particularly in contexts where sensitive or difficult topics are being addressed.  
+   - **Examples**:  
+     - She decided to broach the subject of salary increases during the meeting.  
+     - It’s often best to broach personal topics gently and at the right moment.  
+   - **Alternatives**: Introduce, raise, bring up.  
+
+---  
+
+**Valorize**  
+   - **Definition**: To assign value or merit to something; to enhance the worth of something, often through public acknowledgment.  
+   - **Common Usage**: Less common in everyday conversation; more likely used in economic or sociological discussions.  
+   - **Examples**:  
+     - The documentary aimed to valorize the contributions of unsung heroes in the community.  
+     - Many cultures valorize their history through storytelling and art.  
+   - **Alternatives**: Esteem, value, honor.  
+
+---  
+
+**Venal**  
+   - **Definition**: Capable of being bought or bribed; corruptible or open to bribery.  
+   - **Common Usage**: Not commonly used in everyday conversation but often appears in political or legal contexts.  
+   - **Examples**:  
+     - The venal officials were later exposed for accepting bribes from construction companies.  
+     - In a venal society, trust in public institutions can quickly diminish.  
+   - **Alternatives**: Corrupt, bribable, dishonorable.  
+
+---  
+
+**Septum**  
+   - **Definition**: A partition or dividing wall; in anatomy, it often refers to the wall dividing two chambers, such as in the heart or nose.  
+   - **Common Usage**: Commonly used in medical or anatomical contexts.  
+   - **Examples**:  
+     - The doctor explained that a defect in the septum of the heart could lead to significant health issues.  
+     - The nasal septum can become deviated due to injury or developmental issues, affecting breathing.  
+   - **Alternatives**: Partition, divider, wall.  
+
+---  
+
+**Lambaste**  
+   - **Definition**: To criticize someone or something harshly.  
+   - **Common Usage**: Somewhat common in journalism and discussions about reviews or critiques.  
+   - **Examples**:  
+     - The movie critics lambasted the film for its poor writing and lack of character development.  
+     - During the debate, the politician lambasted his opponent's policies as ineffective.  
+   - **Alternatives**: Criticize, berate, scold.  
+
+---  
+
+**Venereal**  
+   - **Definition**: Pertaining to, or resulting from, sexual intercourse; often used in reference to diseases transmitted through sexual contact.  
+   - **Common Usage**: Less common in everyday conversation but used in medical contexts; often associated with venereal diseases (now more commonly referred to as sexually transmitted infections, STIs).  
+   - **Examples**:  
+     - The clinic offers treatment for various venereal diseases to ensure public health safety.  
+     - Education about venereal infections is crucial for promoting safe sexual practices.  
+   - **Alternatives**: Sexual, STD-related, reproductive.  
 
 ---  
 
@@ -430,6 +589,10 @@ Has Saylor lost his **plot**.
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
+
+Everyone **moans** about the length of their commute. Should managers care?  
+
+so what's the **verdict**, Mr lock?  
 
 Journalists are **predisposed** to point out **cracks in this picture**: times when Americans, being human, have not lived up to their ideals.  
 China **hushes up** a plane crash in the heart of its capital. A light aircraft flew into Beijing’s tallest building. A news **blackout** followed.    

@@ -51,8 +51,6 @@
 
 **align, alignment**  
 
-**moan**  
-
 **rummage**  
 
 **unpack**  

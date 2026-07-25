@@ -1,5 +1,6 @@
 ## words-Jul-26.md ##  
 words/2026/words-Jul-26.md  
+As Sun Tzu wrote, “to **subdue** the enemy without fighting is the **acme** of skill.” Violent war is a **last resort**. -  
 Can we **pencil in** some time to discuss the hiring plan. -  
 they glutted the market in order to cause a **shakeout** of their competitors. -  
 A magic **amulet** that will grant her three wishes. -  

@@ -11,6 +11,8 @@ Improving English vocabulary for a non native-speaker is taxing and time-consumi
 
 [The Blocksize War](./book/blocksize-war.md)
 
+[The happiness advantage](./book/happiness-advantage.md)
+
 ## 2026
 
 [July](./words/2026/words-Jul-26.md) | 
