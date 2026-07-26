@@ -16,16 +16,13 @@
 - ✨ [Interesting](#interesting)  
 - 🏛️ [Economist Newsletter](#economist-newsletter)  
 
-## Weeks or Random drop-in  
-
-[Week 16](#week-16)   
-
-------------------  
+## Weeks or Others  
+- [Week 16](#week-16)  
 
 ### Words with Questions  
 
 
-## Special Words  
+### Special Words  
 
 **empirical**  
 
@@ -41,7 +38,7 @@
 
 **wimp**  
 
-## Verb Words  
+### Verb Words  
 
 **fiddle & fudge**  
 
@@ -55,7 +52,7 @@
 
 -------------------------  
 
-## Words Gallery  
+### Words Gallery  
 
 **adapt, versed, apt, inapt**  
 
@@ -76,13 +73,12 @@
 
 **arid region, arid climate**.  
 **mallet, sledgehammer, axe**.   
------------  
 
+
+### Week 16  
 
 She was outspoken in her criticism of the plan.  
 **Non-repudiation**: Authors cant' deny creating the event.   
-
-### Week 16  
 
 > We pick speakers who stand for something. Free speech. Personal sovereignty. The right to say what you want even when it makes powerful people uncomfortable.  
 

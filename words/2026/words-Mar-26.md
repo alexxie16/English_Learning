@@ -16,9 +16,7 @@
 - ✨ [Interesting](#interesting)  
 - 🏛️ [Economist Newsletter](#economist-newsletter)  
 
-## AD HOC  
-
-[Week 6](#week-6)   
+## Weeks or Others   
 
 
 ------------------  

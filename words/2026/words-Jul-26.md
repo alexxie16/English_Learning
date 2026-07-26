@@ -15,9 +15,17 @@
 - ✨ [Interesting](#interesting)  
 - 🏛️ [Economist Newsletter](#economist-newsletter)  
 
-## Weeks or Randoms   
+## Regular Recordings  
+- [Week 30](#week-30)  
+- [Week 29](#week-29)  
+- [Layman's Guide to Bitcoin-110](#laymans-guide-to-bitcoin-110)  
+- [BIP-110 - My Notes to Miners](#bip-110-my-notes-to-miners)  
+- [Vast as an adjective](#vast-as-an-adjective)  
+- [Ray Dalio, The Tribute System](#ray-dalio-the-tribute-system)  
+- [Week 28](#week-28)  
+- [Two and Half Man](#two-and-half-man)  
+- [Week 27](#week-27)  
 
-[Week 16](#week-16)   
 
 ------------------  
 
@@ -185,7 +193,6 @@ The **surfeit** of information available online can be overwhelming at times.
 Twenty years is a long time, but not enough to change a man's nose from **Roman to a pug**.  
 Somehow I can't do it myself, so I went around and get a **plain clothes** man to do this job.  
 
-
 ### Week 29  
 
 It really does show that Meta views its users as something **akin to** **vassals**.  
@@ -268,7 +275,6 @@ His favourite opening **gambit** is: "You are so beautiful, will you be my next 
 a **menial** job.  
 
 The demand was there so low there for a while, and prices weren't **budging** because sellers wer just syaing "we don't care if the demand is low..."  
-
 
 ### Week 28   
 

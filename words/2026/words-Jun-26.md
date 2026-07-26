@@ -15,17 +15,23 @@
 - ✨ [Interesting](#interesting)  
 - 🏛️ [Economist Newsletter](#economist-newsletter)  
 
-## Weeks or Randoms   
 
-[Week 16](#week-16)   
+### Regular Recordings  
 
-------------------  
+
+- [Week 26](#week-26)  
+- [Week 25](#week-25)  
+- [Real knowledge vs Surface knowledge](#real-knowledge-vs-surface-knowledge)  
+- [Silent sign of intellegence](#silent-sign-of-intellegence)  
+- [Week 24](#week-24)  
+- [Week 23](#week-23)  
+
 
 ### Words with Questions  
 
 NA  
 
-## Special Words  
+### Special Words  
 
 **sweeping**  
 
@@ -65,7 +71,7 @@ NA
 
 **overhaul**  
 
-## Verb Words  
+### Verb Words  
 
 **scrub**  
 
@@ -85,7 +91,7 @@ NA
 
 -------------------------  
 
-## Words Gallery  
+### Words Gallery  
 
 **fink, snitch, mole, rat**,   
 **grief, grieve, grievous**.  
@@ -113,7 +119,7 @@ NA
 **mayhem, mayfly**  
 **petulant, pompous, bumptious, pretentious, crass, sassy**.  
 
-## Regular Recordings  
+### Regular Recordings  
 
 **trickle down** economics.  
 Emotional **anguish**  
@@ -232,7 +238,7 @@ I had a friend named Dave once. He was a sharp guy but he had this **horrendous*
 At the sight of her Scarlett stood **transfixed**, leaning against the door.  
 You don't think he's going to be **enamored** by the beauty of Tilikum?   
 
-## Week 24  
+### Week 24  
 
 Why do you have to get into every **lost cause**?  
 Hitler had a plan, Trump is just **wining it**.  
@@ -275,7 +281,7 @@ Is he a slave to the **egoic** state of consciousness? Probably, but that's **pa
 
 > We don't see things as they are, we see things as we are.  
 
-## Week 23  
+### Week 23  
 
 
 **Atlas** is for your timeless ideas and knowledge.   

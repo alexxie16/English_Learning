@@ -16,16 +16,18 @@
 - ✨ [Interesting](#interesting)  
 - 🏛️ [Economist Newsletter](#economist-newsletter)  
 
-## Weeks or Randoms   
+## Weeks or Others  
 
-[Week 16](#week-16)   
-
-------------------  
+## Regular Recordings  
+- [Week 21, 22](#week-21-22)  
+- [Week 20](#week-20)  
+- [Week 17](#week-17)  
 
 ### Words with Questions  
 
+NA  
 
-## Special Words  
+### Special Words  
 
 **supreme**  
 
@@ -43,7 +45,7 @@
 
 **Flourish, prosperous**  
 
-## Verb Words  
+### Verb Words  
 
 **taint**  
 
@@ -67,7 +69,7 @@
 
 -------------------------  
 
-## Words Gallery  
+### Words Gallery  
 
 **nefarious, heinous, hideous, despicable, horrendous, atrocious, egregious**,   
 
@@ -142,7 +144,7 @@ Jon Kabat-Zinn's study at the University of Massachusetts found that **psoriasis
 
 Make sure there is tongue, but not **overbearing**.  
 
-## Week 20   
+### Week 20   
 
 > "Be content with what you have; **rejoice** in the way things are. When you realize there is nothing lacking, the whole world belongs to you."  
 
@@ -171,7 +173,7 @@ OpenSats was created to provide sustainable funding for those who work on open-s
 **crony capitalism, nepotism**.  
 My hope is that OpenSats will eventually become **obsolete**.  
 
-## Week 17   
+### Week 17   
 
 She was **outspoken** in her criticism of the plan.  
 **Non-repudiation**: Authors cant' deny creating the event.   
@@ -202,8 +204,6 @@ Mr Trump’s **braggadocious** appeals to the male id certainly helped him draw 
 
 
 ## Words Explain   
-
----  
 
 **Soup Up**  
 
