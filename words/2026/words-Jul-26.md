@@ -83,6 +83,8 @@ veracious
 
 ## Verb Words  
 
+**enervate**  
+
 **moan**  
 
 **stump**  
@@ -171,6 +173,20 @@ Amardilo, pangolin, reptile, vertebrate
 **blackguard, rogue, rascal, scoundrel, hooligan**   
 
 ## Regular Recordings  
+**slurp**, **gobble**, gulp, chug,   
+**UTM**: **Urchin** Tracking Me   
+
+**Cloying, treaclely, saccharine**,   
+
+**Maudlin**: Tearfully emotional in a self-indulgent way.  
+
+Society **valorizes** wealth. ✅ (society elevates wealth as something admirable)  
+This renovation valorized the building. ✅ (made it worth more)  
+
+As centralized exchanges got cracked down on, Binance for example being the last **bastion**.  
+
+Like a **splinter** in your mind, it drives you crazy.  
+
 
 ### Week 30   
 
@@ -238,7 +254,6 @@ Don't be **gaslit** by either side of the debate, and make your own decisions.
 Part of the reason for early signaling and lock-in periods is to help coordinate upgrades in a smooth fashion. Waiting until the last minute **negates** that benefit entirely.  
 I see no compelling rationale or **upside** to doing so.  
 Simply **hand waving it away** as if it's nonsense is kind of pointless, and a bit **revealing**.  
-
 
 ### Vast as an adjective   
 
@@ -333,7 +348,7 @@ I mean the promise to yourself that keeps **tugging at your sleeve**.
 ### Economist Newsletter  
 Despite my brief membership of this widely **vilified** minority, I do not take it personally when politicians and activists blame billionaires for all the world’s ills, as they increasingly do.   
 
-In fact, as we report this week, much of the vilification is **undeserved**: most billionaire wealth these days is acquired not from inheritance or cronyism but in competitive industries, typically in ways that benefit the public.  
+In fact, as we report this week, much of the **vilification** is **undeserved**: most billionaire wealth these days is acquired not from inheritance or **cronyism** but in competitive industries, typically in ways that benefit the public.  
 
 Not everyone will find this **reassuring**.   
 Why the OpenAI escape is the most worrying AI **mishap** yet.  
@@ -557,7 +572,6 @@ Yet its national politics have not in living memory been as ugly or as **venal**
 ---  
 
 **Imbroglio**  
-
 *   **Definition**: An extremely confused, complicated, or embarrassing situation. It often refers to a public entanglement or a messy dispute.  
 *   **Common Usage**: Less common in daily conversation. You're more likely to encounter it in news headlines, political commentary, literary works, or when describing complex and messy public affairs or personal conflicts.  
 *   **Examples**:  
@@ -568,7 +582,6 @@ Yet its national politics have not in living memory been as ugly or as **venal**
 ---  
 
 **Abrogate**  
-
 *   **Definition**: To repeal or do away with (a law, right, or formal agreement); to evade (a responsibility or duty).  
 *   **Common Usage**: Not commonly used in daily life. It's a more formal, legal, or political term.  
 *   **Examples**:  

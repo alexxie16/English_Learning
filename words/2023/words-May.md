@@ -62,7 +62,6 @@ I keep all my important documents in my **bosom**.
 **autodidact**.  
 **wharf**  
 **gizzard**  
-**slurp**, **gobble**  
 **huffy**  
 **dysentery**" is not commonly used in everyday language, it is a recognized term in medical discussions or contexts related to diseases of the digestive system.  
 **headlamp**  

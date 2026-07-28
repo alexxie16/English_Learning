@@ -167,7 +167,7 @@ Children rapidly **tune out** if you go beyond them.
 
 > **Braggadocious** (adjective) describes someone who is boastful, arrogant, and excessively proud, often in an informal, noisy, or insincere way.   
 
-Too much reviews or restrictions **enervate** attempting developers. -    
+Too much reviews or restrictions **enervate** attempting developers.   
 OpenSats was created to provide sustainable funding for those who work on open-source software, especially those who work on projects that help Bitcoin **flourish**.  
 
 **crony capitalism, nepotism**.  

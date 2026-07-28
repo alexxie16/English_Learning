@@ -82,7 +82,7 @@ She was outspoken in her criticism of the plan.
 
 > We pick speakers who stand for something. Free speech. Personal sovereignty. The right to say what you want even when it makes powerful people uncomfortable.  
 
-Stop romanticizing your **grubby** little fling. -    
+Stop romanticizing your **grubby** little fling.   
 
 Chronic friction and pressure from eyewear can, in uncommon cases, cause a **benign** skin lesion called acanthoma fissuratum where the frame presses on the skin.   
 Traffic is everywhere and motorbikes have no **qualms** about riding on the sidewalks. Have to be on the lookout for my kids.  

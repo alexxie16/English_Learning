@@ -172,7 +172,7 @@ He was arrested at the scene Friday and was awaiting **arraignment**.
 
 He lives in an imaginary world that is increasingly **cleaved** from reality. (Norway, it should be pointed out, is not Denmark, the country of which Greenland is a part.)  
 What Trump is threatening with Greenland is simply **bonkers**.  
-Trump, obviously angry that our ostensible allies won’t just **roll over** and **accede** to his madness, is now **petulantly** turning to his favorite word, tariffs. -    
+Trump, obviously angry that our ostensible allies won’t just **roll over** and **accede** to his madness, is now **petulantly** turning to his favorite word, tariffs.   
 Signal’s top priority has always been protecting your data from being obtained by others. That’s a **noble idea**, and **central** to Signal’s brand.  
 This post is an **in-depth recount** of exactly what happened and what systems and processes failed.  
 But that simply wasn't possible given Jony Ive's relationship with Sam Altman, LoveFrom’s collaboration with OpenAI with the io project, and Ive’s **utter disdain** for Dye’s talent, leadership, and personality.  
@@ -349,7 +349,7 @@ Don't be fooled. Saving Satoshi has a sometimes **silly veneer**, but contains t
 
 The monkey **slips** its hand in, grabs the food, and can’t pull its **clenched** fist back out.   
 
-Other people had that **glint** in their eye for the work that I dreaded. It clicked: I'll never be one of the best at this over the long-term. --Because I don't like **hitting the ball**. -    
+Other people had that **glint** in their eye for the work that I dreaded. It clicked: I'll never be one of the best at this over the long-term. --Because I don't like **hitting the ball**.   
 
 > Internet contraband refers to illegal or restricted digital content, data, or activities (like malware, stolen info, fraud schemes, or censored material) that cross borders or evade controls  
 
