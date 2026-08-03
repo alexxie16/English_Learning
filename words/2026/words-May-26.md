@@ -183,7 +183,7 @@ She was **outspoken** in her criticism of the plan.
 China’s solar industry is notorious for its **busts**. But the current **slump** is of a different order.  
 a **glut** of solar-panel supply and rising protectionism in Western markets.  
 After **blistering** growth, the world’s solar factory faces a **reckoning**.  
-The company’s share price is **down by a third** since the start of the year. We explain how tariffs, budget cuts and the weakening dollar have **sapped** the firm of its **virility**. -    
+The company’s share price is **down by a third** since the start of the year. We explain how tariffs, budget cuts and the weakening dollar have **sapped** the firm of its **virility**.   
 Mosquitoes seem to be getting over insect **repellent**.  
 
 Russia is **stumbling** on the battlefield. As **casualties** **soar** in Ukraine, Vladimir Putin looks ever more **beleaguered** at home.  

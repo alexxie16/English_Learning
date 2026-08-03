@@ -18,41 +18,19 @@
 ## Regular Recordings  
 - [Week 30](#week-30)  
 - [Week 29](#week-29)  
-- [Layman's Guide to Bitcoin-110](#laymans-guide-to-bitcoin-110)  
-- [BIP-110 - My Notes to Miners](#bip-110-my-notes-to-miners)  
-- [Vast as an adjective](#vast-as-an-adjective)  
-- [Ray Dalio, The Tribute System](#ray-dalio-the-tribute-system)  
+  - [Layman's Guide to Bitcoin-110](#laymans-guide-to-bitcoin-110)  
+  - [BIP-110 - My Notes to Miners](#bip-110-my-notes-to-miners)  
+  - [Vast as an adjective](#vast-as-an-adjective)  
+  - [Ray Dalio, The Tribute System](#ray-dalio-the-tribute-system)  
 - [Week 28](#week-28)  
-- [Two and Half Man](#two-and-half-man)  
+  - [Two and Half Man](#two-and-half-man)  
 - [Week 27](#week-27)  
-
 
 ------------------  
 
 ### Words with Questions  
 
-psoriasis  
-
-coquette  
-
-pillory  
-
-upheaval   
-
-throng  
-
-surfeit  
-
-veracious  
-
-**clammy**  
-
-**upbraid**  
-
-**calumnies**  
-
-**venal**  
-
+NA  
 ## Special Words  
 
 **reassuring**  
@@ -103,8 +81,11 @@ veracious
 
 ## Words Gallery  
 
-Amardilo, pangolin, reptile, vertebrate  
+**slurp**, **gobble**, gulp, chug,   
+**UTM**: **Urchin** Tracking Me   
 
+**Cloying, treaclely, saccharine**,   
+**Amardilo, pangolin, reptile, vertebrate**  
 **distend, distent, inflate, dilate, pupil**   
 **elongate, swell, swollen**,   
 **levator, scapula, pelvic**  
@@ -112,24 +93,17 @@ Amardilo, pangolin, reptile, vertebrate
 
 **anathema, eyesore, nuisance, heresy, heathen**,  
 **rile, revile**,   
-
 **menthol, ethylene**,   
-
 **flock, bevy, herd**,   
-
 **camisole, insole, inseam**  
-
 **sullen, sulk, sulky, sully**,  
-
 **scrape, scrub**.   
 
 **hyena, dingo, coyote**,   
 **deliverance, affordance**,   
 **scrawny, skinny, slender, slim**  
-
 **altercat, quarrel, spat, dispute, feud**,   
 **immaculate, meticulous, impeccable, exquisite, unbeatable, flawless**.  
-
 **simple-minded, doofus, fathead, knucklehead**  
 **shake up, shake down, shake off, shakeout**  
 
@@ -137,25 +111,18 @@ Amardilo, pangolin, reptile, vertebrate
 **emerald, turquoise, jade, sapphire, cyan**   
 **burgundy, crimson, maroon, beige, aqua**,   
 **trade show, shoptalk, tradesman, trade up**.  
-
 **sordid, grubby, grungy, filthy, sleazy, devious**   
 **quench, squelch, quell, dampen**,  
-
 **pacify, placate, mollify, assuage**.  
-
 **insipid, bland, vacuous**,   
 
 **disseminate, propagate, transmit**  
 **sandstone, gympsum, plaster, cement, drywall, asbestos**,   
-
 **crate, carton, cardboard, pallet**,   
 
 **predicament, quagmire, plight**  
-
 **pallet, pellet**,   
-
 **vanish, varnish, garnish, tarnish**  
-
 **tug, tuck, lug**,   
 
 **venerable, venal, venereal**,   
@@ -173,20 +140,23 @@ Amardilo, pangolin, reptile, vertebrate
 **blackguard, rogue, rascal, scoundrel, hooligan**   
 
 ## Regular Recordings  
-**slurp**, **gobble**, gulp, chug,   
-**UTM**: **Urchin** Tracking Me   
 
-**Cloying, treaclely, saccharine**,   
+Bitcoin continues its Sideways Summer **trudge** moving between 63 and 66. -    
+That reminds me, I **have a bone to pick with** you.  
+**pick a bone with someone**.  
+You and I made a **pact** that if **either** of us ever got a hot girlfriend, that person would have his girlfriend hook the other guy up with one of her girlfriends.    
 
+**knock it off**.  
+
+Freedom of the press is **sacrosanct**.  
+
+Why are you **acting** like that?   
 **Maudlin**: Tearfully emotional in a self-indulgent way.  
 
 Society **valorizes** wealth. ✅ (society elevates wealth as something admirable)  
-This renovation valorized the building. ✅ (made it worth more)  
-
+This renovation **valorized** the building. ✅ (made it worth more)  
 As centralized exchanges got cracked down on, Binance for example being the last **bastion**.  
-
 Like a **splinter** in your mind, it drives you crazy.  
-
 
 ### Week 30   
 
@@ -306,20 +276,18 @@ The curve is weighted toward the top, meaning higher ranks earn a progressively 
 Don't invite him to the bowling alley; he'll just be a **wet blanket** and complain about his score all night  
 
 Don't **tamper** with the balance.  
-Can we **pencil in** some time to discuss the hiring plan. -    
-they glutted the market in order to cause a **shakeout** of their competitors. -    
+Can we **pencil in** some time to discuss the hiring plan.   
+they glutted the market in order to cause a **shakeout** of their competitors.   
 We were like a **gnat** to them, to an elephant.  
 
 **thong sandal**.  
 Don't spill too much fat on the barbecue as it could **flare up**.  
 
-Thye dont just **coast** once they achieve succes, they are always learning, growing, seeking new knowledge, to keep their mind sharp.    
-
+They dont just **coast** once they achieve success, they are always learning, growing, seeking new knowledge, to keep their mind sharp.    
 
 ### Two and Half Man  
 
-Go ahead, say somehting, I dare you. -- No, it's an **apt** comparison, they both involved **losing your ass**.  
-
+Go ahead, say something, I dare you. -- No, it's an **apt** comparison, they both involved **losing your ass**.  
 For trusting me, you know, to take care of Jake when you **croak**.  
 
 There is only room for one **alpha dog** in this house.  
@@ -334,18 +302,29 @@ What's the **occasion**?
 
 A magic **amulet** that will grant her three wishes. -    
 
-What's the **occasion**?  
 It's an ignorant, **myopic** question.  
 Has Saylor lost his **plot**.  
 
-> OpenClaw 2026.6.10 (aa69b12) — I'm like tmux: confusing at first, then suddenly you can't live without me.  
+> OpenClaw 2026.6.10 (aa69b12) — I'm like Tmux: confusing at first, then suddenly you can't live without me.  
 
 Keep a short trail for important decisions in memory, but don’t turn your life into a **dossier**.  
 
-walking on the **tight rope**.  
+Walking on the **tight rope**.  
 I mean the promise to yourself that keeps **tugging at your sleeve**.   
 
 ### Economist Newsletter  
+
+The **albedo** is the **fraction** of incoming sunlight that a surface or a planet reflects back.   
+
+Elsewhere, **alarm bells** are ringing in Western capitals as China appears to be receiving training, intelligence and advanced military technology from Russia.  
+Why Tom Holland is the world’s highest-grossing young actor. Lessons from his **prodigious** early success.  
+Oil markets are **on edge** again.  
+Capitalism’s status hierarchy is being **upturned**.  
+Read our interview with Elon Musk, the world’s richest man. His **future-gazing** ranges from the unsettling to the **downright** weird.  
+In Japan the industry is **woven into** male social life—but it has rarely been the subject of serious debate, and the laws governing it are murky.  
+I **scoffed** at my partner for buying a **faddish** red-light mask last year.  
+America, which is surprisingly **prissy** about nightlife, should stop making it so hard to have fun, we say.  
+
 Despite my brief membership of this widely **vilified** minority, I do not take it personally when politicians and activists blame billionaires for all the world’s ills, as they increasingly do.   
 
 In fact, as we report this week, much of the **vilification** is **undeserved**: most billionaire wealth these days is acquired not from inheritance or **cronyism** but in competitive industries, typically in ways that benefit the public.  
@@ -375,7 +354,7 @@ She didn’t own one, didn’t want one and **bristled** when her bank suggested
 Yet the idea, common among **remainers**, that rejoining the EU will bring back everything good about the pre-Brexit days is also **deluded**.   
 The Trump administration has responded **impetuously**. Citing security concerns, it has banned non-Americans from accessing Fable and Mythos.  
 Even its closest allies are **left in the cold**.  
-The broader AI story is **unfolding** so rapidly—and provoking such **disquiet** among voters—that we will have to return to it soon. -    
+The broader AI story is **unfolding** so rapidly—and provoking such **disquiet** among voters—that we will have to return to it soon.   
 The people behind the largest art heist in history. A new book looks at the trade in masterpieces **pilfered** from Cambodia.  
 And Britain is in a **sorry state**. Its economy is **flailing**, its people are demoralised and its leadership is in turmoil.  
 But **all is not lost**: England’s world-beating football industry rules the (air)waves.  
@@ -392,15 +371,24 @@ Transforming the **cradle** of the **Confederacy**. Tourists are flocking to mon
 
 Has China obtained the world’s most important machine? Its Dutch manufacturer is fighting to **rebut** American claims.  
 
-**We woz** wrong about oil. The market **bested** us. But for The Economist, there is no shame in that. -    
+**We woz** wrong about oil. The market **bested** us. But for The Economist, there is no shame in that.   
 Brazilians are **going gaga** for Chinese brands. They think China has better tech than America.  
 Crowds would gather in the streets of our neighbourhood, flags would appear on every **front porch** and fireworks would **illuminate** the sky.   
 Journalists are **predisposed** to point out **cracks in this picture**: times when Americans, being human, have not lived up to their ideals.  
 So I warmly **concur** with our cover package this week wishing the United States a happy 250th birthday.  
 Yet its national politics have not in living memory been as ugly or as **venal**. -    
 
-
 ## Words Explain   
+
+allay  
+
+remonstrance,   
+
+untrammelled   
+
+twaddle  
+
+bellicose  
 
 ---  
 
@@ -595,7 +583,11 @@ Yet its national politics have not in living memory been as ugly or as **venal**
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
-But sometimdes, if you **squint** at it just right, everything **lines up**, and it's the most perfect... beautiful, amazing thing.  
+Because you were too busy **ogling** me to listen a word what I've said.  
+
+Where are you **acting** like that?   
+
+But sometimes, if you **squint** at it just right, everything **lines up**, and it's the most perfect... beautiful, amazing thing.  
 
 For trusting me, you know, to take care of Jake when you **croak**.  
 

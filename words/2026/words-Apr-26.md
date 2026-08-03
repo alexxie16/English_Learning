@@ -103,7 +103,7 @@ Donald Trump says the war may end soon. But he is capable of **feints**.
 Between all that chatter, Mr Trump **carved out** time to do something a sitting American president has never done before.  
 It is striking, then, that Donald Trump’s latest polling numbers roughly match Mr Biden’s post-debate **nadir**.  
 
-America has repeatedly shown a remarkable ability to reinvent itself. By contrast, China is cautious, ageing and **hidebound** by party ideology. -    
+America has repeatedly shown a remarkable ability to reinvent itself. By contrast, China is cautious, ageing and **hidebound** by party ideology.   
 There is a future in which America embraces upheaval and China **shuts itself off**. That future may yet belong to America.  
 
 ## Words Explain   

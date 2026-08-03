@@ -160,7 +160,7 @@ Rather than feel **impotent** and useless, you must **come to terms** with the f
 The divide I’m seeing is that the developers who are **craftspeople** are **elated** because their productivity is **skyrocketing** while their **craftsmanship** remains unchanged.  
 The industry is **riddled** with hack developers, because in the last 15-20 years, as the demand for programmers far **outstripped** the supply of good programmers.  
 But AI code generation tooling is turning it into an **expansive gulf**.  
-The worst programmers have gone from laying a few **turds** a day to **spewing** **veritable** mountains of hot steaming stinky shit, while **beaming** with pride at their increased productivity. -    
+The worst programmers have gone from laying a few **turds** a day to **spewing** **veritable** mountains of hot steaming stinky shit, while **beaming** with pride at their increased productivity.   
 The MacBook notch has not **grown on me**, and the Neo’s display **bezel** doesn’t bother me at all.  
 The Neo ships with a **measly** 20-watt charger in the box.  
 The Neo is not a **svelte** **ultralight**.  

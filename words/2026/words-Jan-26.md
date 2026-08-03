@@ -310,8 +310,8 @@ Now is the perfect time to turn your **budding knowledge** into action though me
 The paper gave all the **lurid details** of the murder.   
 She took care to paint her toe nails a **lurid red** or orange.   
 
-Although a man of blood and violence, Richard was too **impetuous** to be either **treacherous** or habitually cruel. -   
-He did what he could to **allay** his wife's **myriad** fears. -    
+Although a man of blood and violence, Richard was too **impetuous** to be either **treacherous** or habitually cruel.   
+He did what he could to **allay** his wife's **myriad** fears.   
 
 You should **limber up** your wits before the test.   
 A short walk will **limber up** the legs.   
