@@ -22,6 +22,8 @@
 
 ### Words with Questions  
 
+upgraid   
+
 mollify  
 
 disabuse   
@@ -47,19 +49,49 @@ veracious
 **calumnies**  
 
 ## Special Words  
-**unbridled, unfettered, untrammelled, uncontrollable**   
+
+**forte**  
 
 ## Verb Words  
 
+**shoulder**  
+
 ## Words Gallery  
+
+**unbridled, unfettered, untrammelled, uncontrollable**   
+
+**Choir(s), carol, choral**,   
 
 ## Regular Recordings  
 
+Let's **cinch up**, let's punch the ball into the end zone and pass the clarity act.  
+Inch by inch, it's a **cinch**. Yard by yard is just too hard.  
+
+> The impediment to action advances action. What stands in the way, become the way. - Marcus Aurelius   
+
+Sleep is **sacred**, you should be aiming to get 7-8 hours of sleep.  
+Don't confuse **fatigue** with laziness. Are you really fatigued, or you're just lazy?  
+
+
+You've been there since the start, you were an early advocate, **acolyte** of crypto.  
+This gigantic **swath** of the market that remains, largely unregulated.  
+**Long-winded** way to get to the point, we need clarity...   
+
+We know the wait can be **unnerving**, but **rest assured** that the team is working through the queue as quickly and carefully as possible to help keep every client’s bitcoin safe.  
+
+**fob off**  
 
 
 ### Economist Newsletter  
 
 ## Words Explain   
+
+---  
+
+> **Chronotype**: think about your sleeping preferences, energy levels throughout the day, meal timing, and other facets of your circadian rhythm.  
+> **filmography**: A filmography is a list of films related by some criteria. For example, an actor's career filmography is the list of films they have appeared in.  
+
+---  
 
 **Allay**  
    - **Definition**: To diminish or put to rest (fear, suspicion, or worry); to calm or pacify.  
@@ -111,10 +143,11 @@ veracious
 
 ---  
 
-
-
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
+
+Let's **cinch up**, let's punch the ball into the end zone and pass the clarity act.  
+
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  

@@ -188,8 +188,6 @@ The game—now commonly known as Michael Jordan’s “Flu Game”—has gone do
 > The yield’s sustainability **hinges on** MicroStrategy’s ability to generate cash through its operations and Bitcoin-linked financing, while the variable rate structure provides flexibility to adapt to changing financial conditions.  
 Palantir is an American data-analysis **outfit** named after a **magical orb** in “The Lord of the Rings”.  
 
-Inch by inch, it's a **cinch**. Yard by yard is just too hard.  
-
 But your bottle — yes, the one you're putting to your lips today — could carry harmful levels of bacteria, including **E. coli**.  
 
 Unusual agreements is quite the **euphemism** for a **shakedown**.  
