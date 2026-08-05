@@ -225,18 +225,6 @@ Mr Trump’s **braggadocious** appeals to the male id certainly helped him draw 
 
 ---  
 
-**Veracious**  
-
-* **Definition**: Truthful, honest, and accurate in speech or reporting.  
-* **Common Usage**: Formal and literary; more common in journalism, academic writing, or legal contexts than in casual conversation.  
-* **Used in Daily Life**?: Rare in everyday speech. Most people would simply say “truthful” or “honest.”  
-* Examples:  
-    * The reporter was respected for her veracious coverage of political events.  
-    * Historians questioned whether the witness account was fully veracious.  
-* Alternatives: Truthful, honest, accurate, reliable, sincere.  
-
----  
-
 **Delude**  
 
 * Definition:  

@@ -22,13 +22,7 @@
 
 ### Words with Questions  
 
-upgraid   
-
-mollify  
-
-disabuse   
-
-riffle  
+revel  
 
 psoriasis  
 
@@ -40,11 +34,7 @@ upheaval
 
 throng  
 
-veracious  
-
 **clammy**  
-
-**upbraid**  
 
 **calumnies**  
 
@@ -52,17 +42,41 @@ veracious
 
 **forte**  
 
+**unequivocally**  
+
 ## Verb Words  
 
 **shoulder**  
 
 ## Words Gallery  
 
+**tiff, spat, quarrel, squabble**   
+
 **unbridled, unfettered, untrammelled, uncontrollable**   
 
 **Choir(s), carol, choral**,   
 
 ## Regular Recordings  
+
+**vile & revile**   
+
+**Vile**:  
+   - **Part of Speech**: Adjective  
+   - **Meaning**: Something that is extremely unpleasant, morally despicable, or wicked. It suggests a strong negative feeling towards something that is considered disgusting or reprehensible.  
+   - **Example**: "His vile behavior at the party shocked everyone."  
+
+**Revile**:  
+   - **Part of Speech**: Verb  
+   - **Meaning**: To criticize or scold someone in an abusive or insulting manner. It involves speaking about someone or something with contempt or hostility.  
+   - **Example**: "The politician was reviled for his controversial statements."  
+
+**Summary**  
+  - "Vile" describes something bad or disgusting, while "revile" refers to the act of expressing strong disapproval or hate towards someone or something.  
+
+
+**legislative clarity**   
+
+She attacks Elon Musk saying he's wrong and the UK is thriving. Elon **hits back** that she lives a **cloistered** existence.  
 
 Let's **cinch up**, let's punch the ball into the end zone and pass the clarity act.  
 Inch by inch, it's a **cinch**. Yard by yard is just too hard.  
@@ -84,7 +98,58 @@ We know the wait can be **unnerving**, but **rest assured** that the team is wor
 
 ### Economist Newsletter  
 
+
 ## Words Explain   
+
+**Veracious**  
+
+* **Definition**: Truthful, honest, and accurate in speech or reporting.  
+* **Common Usage**: Formal and literary; more common in journalism, academic writing, or legal contexts than in casual conversation.  
+* **Used in Daily Life**?: Rare in everyday speech. Most people would simply say “truthful” or “honest.”  
+* Examples:  
+    * The reporter was respected for her veracious coverage of political events.  
+    * Historians questioned whether the witness account was fully veracious.  
+* Alternatives: Truthful, honest, accurate, reliable, sincere.  
+
+---  
+
+**Upbraid**  
+   - **Definition**: To scold or criticize someone seriously; to reprimand harshly.  
+   - **Common Usage**: Not as commonly used in daily conversation but can be found in literature or formal discussions.  
+   - **Examples**:  
+     - The teacher upbraided the student for not completing the assignment on time.  
+     - The manager had to upbraid the team for their repeated mistakes.  
+   - **Alternatives**: Reprimand, rebuke, scold.  
+
+---  
+
+**Mollify**  
+   - **Definition**: To calm or soothe someone’s anger or anxiety; to soften in feeling or temper.  
+   - **Common Usage**: Moderately common; often used in discussions about emotions or conflict resolution.  
+   - **Examples**:  
+     - The manager tried to mollify the upset employee by offering a raise.  
+     - She used a gentle tone to mollify the crying child.  
+   - **Alternatives**: Soothe, appease, pacify.  
+
+---  
+
+**Disabuse**  
+   - **Definition**: To free someone from a misconception or false belief; to correct someone's misunderstanding.  
+   - **Common Usage**: Less common in everyday conversation; more frequently seen in formal writing or discussions.  
+   - **Examples**:  
+     - The professor sought to disabuse his students of the notion that learning was easy.  
+     - I tried to disabuse him of the idea that success comes without hard work.  
+   - **Alternatives**: Correct, enlighten, debunk.  
+
+---  
+
+**Demur**  
+   - **Definition**: To raise doubts or objections; to hesitate in a way that shows reluctance.  
+   - **Common Usage**: Fairly common in legal contexts or formal discussions, but less frequently used in everyday speech.  
+   - **Examples**:  
+     - She decided to demur when asked to take on additional responsibilities.  
+     - His demur to the proposal sparked a discussion about its validity.  
+   - **Alternatives**: Object, hesitate, protest.  
 
 ---  
 

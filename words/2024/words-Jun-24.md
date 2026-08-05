@@ -87,7 +87,6 @@ How is your story **coming along**?
 Haley's **coming along** really well, Mrs. Dunphy.  
 I thought you must be a **humbug** **all along**, from the **conceited** way you talked.   
 
-**coquette**.  
 **intercede**.  
 **overtone**.  
 The word has a **pejorative** overtone.  

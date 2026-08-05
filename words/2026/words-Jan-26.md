@@ -77,7 +77,6 @@ NA
 
 ## Words Gallery  
 
-**tiff, spat, quarrel, squabble**   
 **clammy, slimy, slippery, icky, gooey**.  
 **fastidious, meticulous, impeccable, immaculate, painstakingly, superb**.  
 **spotless, flawless, pristine**  
