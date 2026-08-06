@@ -50,13 +50,20 @@ throng
 
 ## Words Gallery  
 
+**Stroll, amble, saunter, wander, mosey**  
+
+**diurnal, nocturnal, chronotype**.  
+
 **tiff, spat, quarrel, squabble**   
-
 **unbridled, unfettered, untrammelled, uncontrollable**   
-
 **Choir(s), carol, choral**,   
 
 ## Regular Recordings  
+
+Now you're got in the **swing of things** and learn **the ropes**.  
+
+> **Amble** - Horse Gait: The word originally described how a horse moves at a slow, four-beat pace by lifting both legs on one side together  
+
 
 **vile & revile**   
 
@@ -100,6 +107,16 @@ We know the wait can be **unnerving**, but **rest assured** that the team is wor
 
 
 ## Words Explain   
+
+snivel   
+
+philippic  
+
+scour   
+
+blaspheme   
+
+---  
 
 **Veracious**  
 
