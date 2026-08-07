@@ -1,3 +1,9 @@
+## words-Aug-26.md ##  
+words/2026/words-Aug-26.md  
+Full credit to him for that, and it seems he did hustle and **derive** useful lessons from the experience. -  
+If you woke up with a clear head, I expect you’re one of those **priggish**, **strait-laced** Gen Zs. -  
+If that didn't **jolt you awake** a cup of coffee might, but **a cup of joe** could become a luxury as climate change threatens coffee-growing regions. 1843, our sister magazine, **profiles** a scientist trying to save your morning brew in the surprisingly **buccaneering** world of wild coffee. -  
+
 ## words-Jul-26.md ##  
 words/2026/words-Jul-26.md  
 Bitcoin continues its Sideways Summer **trudge** moving between 63 and 66. -  
@@ -8,7 +14,6 @@ Yet its national politics have not in living memory been as ugly or as **venal**
 
 ## words-Jun-26.md ##  
 words/2026/words-Jun-26.md  
-The horse's **hooves** left deep **indentations** in the mud. -  
 **Saint** or sinner: Antoni Gaudí’s polarising style. A hundred years after his death, the Spanish architect is both loved and **reviled**. -  
 
 ## words-May-26.md ##  

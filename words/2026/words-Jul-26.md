@@ -107,7 +107,6 @@ NA
 **simple-minded, doofus, fathead, knucklehead**  
 **shake up, shake down, shake off, shakeout**  
 
-**nippy, zippy, nifty, snazzy**,   
 **emerald, turquoise, jade, sapphire, cyan**   
 **burgundy, crimson, maroon, beige, aqua**,   
 **trade show, shoptalk, tradesman, trade up**.  

@@ -40,16 +40,32 @@ throng
 
 ## Special Words  
 
+**scammy**  
+
+**masochist**  
+
+**landmark**  
+
 **forte**  
 
 **unequivocally**  
 
 ## Verb Words  
 
+**espouse**  
+
+**profile**  
+
+**marinate, contemplate**  
+
 **shoulder**  
 
 ## Words Gallery  
 
+**laggard, straggler, sluggard**,   
+**Pravity, depravity, depraved**   
+**tattle-tale, snitch, rat**   
+**nippy, zippy, nifty, snazzy**,   
 **Stroll, amble, saunter, wander, mosey**  
 
 **diurnal, nocturnal, chronotype**.  
@@ -60,25 +76,49 @@ throng
 
 ## Regular Recordings  
 
+dully  
+slug   
+bequeath  
+snippy   
+plumage  
+protease  
+
+**palate, palatable, palpable**,   
+
+**freeload, deadhead, bum, mooch**,   
+**clear-headed, level-headed, empty-headed, bonehead, wrongheaded**   
+**bareheaded, egghead, copperhead**,   
+
+As they **turned the corner**, Harry looked back.  
+I asked him if this is the year Venezuela will **turn the corner**.  
+
+The world does not need more **masochists** or **martyrs**.  
+If you're a fanboy of some of the more popular business books from the speaker circuit, be ready to get **shat on**.  
+Let me also say that he will not **spoon feed** you- It's up to you to come up with the business you want to pursue.  
+**penta**-millionaire  
+This book is super-**cringy**.  
+Want to be successful enough to buy **flashy cars**.  
+Full credit to him for that, and it seems he did hustle and **derive** useful lessons from the experience. -    
+
+
+#### Slug   
+
+> **slug**: originally, a slug meant a heavy, solid piece of something. From that central idea, the other meanings branched out.   
+
+**Solid chunk of metal**. -  The shotgun fired a **slug** instead of pellets.  
+hit someone like a heavy chunk of metal. - He gave him a **slug** in the jaw.  
+In newspapers and film production, a **slug** is a short label identifying a story or scene.  
+> Slug: Election Results  
+
+---  
+
+
+Yes, of course. Aurelius **espouses** a perversion of Stoic philosophy as justification for his crimes.  
 Now you're got in the **swing of things** and learn **the ropes**.  
 
+Can the **landmark** crypto law pass before the Senate goes on summer break?  
+
 > **Amble** - Horse Gait: The word originally described how a horse moves at a slow, four-beat pace by lifting both legs on one side together  
-
-
-**vile & revile**   
-
-**Vile**:  
-   - **Part of Speech**: Adjective  
-   - **Meaning**: Something that is extremely unpleasant, morally despicable, or wicked. It suggests a strong negative feeling towards something that is considered disgusting or reprehensible.  
-   - **Example**: "His vile behavior at the party shocked everyone."  
-
-**Revile**:  
-   - **Part of Speech**: Verb  
-   - **Meaning**: To criticize or scold someone in an abusive or insulting manner. It involves speaking about someone or something with contempt or hostility.  
-   - **Example**: "The politician was reviled for his controversial statements."  
-
-**Summary**  
-  - "Vile" describes something bad or disgusting, while "revile" refers to the act of expressing strong disapproval or hate towards someone or something.  
 
 
 **legislative clarity**   
@@ -105,8 +145,24 @@ We know the wait can be **unnerving**, but **rest assured** that the team is wor
 
 ### Economist Newsletter  
 
+Mexico’s president stops **turning the other cheek**.  
+If you woke up with a clear head, I expect you’re one of those **priggish**, **strait-laced** Gen Zs. -    
+Although this might seem a last hedonistic **hurrah**, our report suggests an unhappy reason for oldies **misbehaving**.  
+Baby-boomers are **loaded**. Why are they so stingy?  
+If inflation made you **gawk at** your latest dinner bill, spare a thought for the restaurant’s owners.  
+Dinner and a movie has to **up its game** to compete with Netflix and chilaquiles.  
+The country has long sent rich friends of the president to be ambassadors, but such **ostentatious** **nautical diplomacy** takes things to a startling new level.  
+Donald Trump is stalling for time in the war with Iran. The latest round of talks is most likely to deliver a **loose patch** for a **threadbare** deal.  
+
+SpaceX is spending **gobs of money** to **refashion** itself as an AI company.  
+
+If that didn't **jolt you awake** a cup of coffee might, but **a cup of joe** could become a luxury as climate change threatens coffee-growing regions. 1843, our sister magazine, **profiles** a scientist trying to save your morning brew in the surprisingly **buccaneering** world of wild coffee. -  
+
+The **maverick** scientist trying to save coffee from extinction.  
 
 ## Words Explain   
+
+revel  
 
 snivel   
 
@@ -115,6 +171,23 @@ philippic
 scour   
 
 blaspheme   
+
+---  
+
+**vile & revile**   
+
+**Vile**:  
+   - **Part of Speech**: Adjective  
+   - **Meaning**: Something that is extremely unpleasant, morally despicable, or wicked. It suggests a strong negative feeling towards something that is considered disgusting or reprehensible.  
+   - **Example**: "His vile behavior at the party shocked everyone."  
+
+**Revile**:  
+   - **Part of Speech**: Verb  
+   - **Meaning**: To criticize or scold someone in an abusive or insulting manner. It involves speaking about someone or something with contempt or hostility.  
+   - **Example**: "The politician was reviled for his controversial statements."  
+
+**Summary**  
+  - "Vile" describes something bad or disgusting, while "revile" refers to the act of expressing strong disapproval or hate towards someone or something.  
 
 ---  
 
