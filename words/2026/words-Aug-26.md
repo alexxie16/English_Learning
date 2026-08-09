@@ -22,6 +22,8 @@
 
 ### Words with Questions  
 
+morose  
+
 revel  
 
 psoriasis  
@@ -39,6 +41,8 @@ throng
 **calumnies**  
 
 ## Special Words  
+
+monotonic  
 
 **scammy**  
 
@@ -62,6 +66,14 @@ throng
 
 ## Words Gallery  
 
+**Tome, reams**  
+
+**palate, palatable, palpable**,   
+
+**freeload, deadhead, bum, mooch**,   
+**clear-headed, level-headed, empty-headed, bonehead, wrongheaded**   
+**bareheaded, egghead, copperhead**,   
+
 **laggard, straggler, sluggard**,   
 **Pravity, depravity, depraved**   
 **tattle-tale, snitch, rat**   
@@ -83,11 +95,10 @@ snippy
 plumage  
 protease  
 
-**palate, palatable, palpable**,   
+Her mother was a dedicated **apostle** of healthy eating. -    
 
-**freeload, deadhead, bum, mooch**,   
-**clear-headed, level-headed, empty-headed, bonehead, wrongheaded**   
-**bareheaded, egghead, copperhead**,   
+He became a **taunt** to his neighbours.   
+The other children **taunted** him with nicknames.  
 
 As they **turned the corner**, Harry looked back.  
 I asked him if this is the year Venezuela will **turn the corner**.  
@@ -106,19 +117,18 @@ Full credit to him for that, and it seems he did hustle and **derive** useful le
 > **slug**: originally, a slug meant a heavy, solid piece of something. From that central idea, the other meanings branched out.   
 
 **Solid chunk of metal**. -  The shotgun fired a **slug** instead of pellets.  
-hit someone like a heavy chunk of metal. - He gave him a **slug** in the jaw.  
+Hit someone like a heavy chunk of metal. - He gave him a **slug** in the jaw.  
 In newspapers and film production, a **slug** is a short label identifying a story or scene.  
 > Slug: Election Results  
 
 ---  
 
-
-Yes, of course. Aurelius **espouses** a perversion of Stoic philosophy as justification for his crimes.  
+Yes, of course. Aurelius **espouses** a **perversion** of Stoic philosophy as justification for his crimes. -    
 Now you're got in the **swing of things** and learn **the ropes**.  
 
 Can the **landmark** crypto law pass before the Senate goes on summer break?  
 
-> **Amble** - Horse Gait: The word originally described how a horse moves at a slow, four-beat pace by lifting both legs on one side together  
+> **Amble** - **Horse Gait**: The word originally described how a horse moves at a slow, four-beat pace by lifting both legs on one side together  
 
 
 **legislative clarity**   
@@ -133,9 +143,8 @@ Inch by inch, it's a **cinch**. Yard by yard is just too hard.
 Sleep is **sacred**, you should be aiming to get 7-8 hours of sleep.  
 Don't confuse **fatigue** with laziness. Are you really fatigued, or you're just lazy?  
 
-
 You've been there since the start, you were an early advocate, **acolyte** of crypto.  
-This gigantic **swath** of the market that remains, largely unregulated.  
+This **gigantic** **swath** of the market that remains, largely unregulated.  
 **Long-winded** way to get to the point, we need clarity...   
 
 We know the wait can be **unnerving**, but **rest assured** that the team is working through the queue as quickly and carefully as possible to help keep every client’s bitcoin safe.  
@@ -144,6 +153,8 @@ We know the wait can be **unnerving**, but **rest assured** that the team is wor
 
 
 ### Economist Newsletter  
+
+The battle for Hugo Boss. - A British **retail magnate** tries to go **upmarket**. -  
 
 Mexico’s president stops **turning the other cheek**.  
 If you woke up with a clear head, I expect you’re one of those **priggish**, **strait-laced** Gen Zs. -    
@@ -162,15 +173,45 @@ The **maverick** scientist trying to save coffee from extinction.
 
 ## Words Explain   
 
-revel  
+**Revel**  
+   - **Definition**: To take great pleasure or delight in something; to celebrate or enjoy oneself in a lively manner.  
+   - **Common Usage**: Commonly used in contexts related to celebration or enjoyment, often in a joyous or boisterous manner.  
+   - **Examples**:  
+     - They reveled in their victory after the championship game.  
+     - The community came together to revel in the festival's festivities.  
+   - **Alternatives**: Celebrate, enjoy, bask.  
 
-snivel   
+**Snivel**  
+   - **Definition**: To cry or whine with a runny nose; to complain or behave in a self-pitying manner.  
+   - **Common Usage**: Fairly common, often used in informal contexts to describe someone who is whining or being overly emotional.  
+   - **Examples**:  
+     - He started to snivel when he realized he had lost his favorite toy.  
+     - Stop sniveling and just tell me what you want!  
+   - **Alternatives**: Whine, pout, moan.  
 
-philippic  
+**Philippic**  
+   - **Definition**: A verbal attack or bitter denunciation; a speech or discourse that expresses strong criticism.  
+   - **Common Usage**: Less common in daily conversation, often used in literary or historical contexts to describe a forceful or scathing criticism.  
+   - **Examples**:  
+     - The senator delivered a philippic against the proposed legislation during the debate.  
+     - Her remarks came across as a philippic aimed at the organization's failures.  
+   - **Alternatives**: Tirade, diatribe, invective.  
 
-scour   
+**Scour**  
+   - **Definition**: To clean or brighten a surface by rubbing hard; to search very thoroughly for something.  
+   - **Common Usage**: Commonly used in both cleaning contexts and in situations involving a thorough search.  
+   - **Examples**:  
+     - She had to scour the kitchen to find her missing keys.  
+     - The workers scoured the old building for any signs of structural damage.  
+   - **Alternatives**: Clean, scrub, search.  
 
-blaspheme   
+**Blaspheme**  
+   - **Definition**: To speak disrespectfully about sacred things; to profane or insult something considered holy.  
+   - **Common Usage**: Less common in everyday conversation, often used in theological contexts or discussions about religion and morality.  
+   - **Examples**:  
+     - The artist’s work was accused of blaspheming traditional religious values.  
+     - Some believe that to blaspheme against the sacred texts is a serious offense.  
+   - **Alternatives**: Profane, insult, desecrate.  
 
 ---  
 
@@ -307,3 +348,4 @@ Let's **cinch up**, let's punch the ball into the end zone and pass the clarity 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
 
+You've been there since the start, you were an early advocate, **acolyte** of crypto.  

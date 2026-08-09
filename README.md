@@ -13,6 +13,8 @@ Improving English vocabulary for a non native-speaker is taxing and time-consumi
 
 [The happiness advantage](./book/happiness-advantage.md)
 
+[Millionaire Fastlane](/book/millionair-fastlane.md)
+
 ## 2026
 
 [July](./words/2026/words-Jul-26.md) | [Aug](/words/2026/words-Aug-26.md) | Sep
