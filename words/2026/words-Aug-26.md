@@ -42,7 +42,13 @@ throng
 
 ## Special Words  
 
-monotonic  
+**epiphany**  
+
+**brash**  
+
+**overblown**  
+
+**monotonic**  
 
 **scammy**  
 
@@ -88,12 +94,27 @@ monotonic
 
 ## Regular Recordings  
 
-dully  
-slug   
-bequeath  
-snippy   
-plumage  
-protease  
+She gives showbiz parties a wide berth.  
+
+
+cavalcade  
+reprise  
+druthers   
+
+dully: In a manner lacking interest or excitement; commonly used.  
+protease: An enzyme that breaks down proteins; less commonly used.  
+parsimony: Extreme reluctance to spend money; less commonly used.  
+bequeath: To leave personal property to someone through a will; less commonly used.  
+snippy: Short-tempered or curt in speech; commonly used.  
+plumage: The feathers of a bird; less commonly used.  
+
+Also, that's an unnecessary ad hominem attack. 🤣  
+I say we have a brawl outside hutchins to resolve this, it's the Texas way.  
+a poignant point.  
+
+A better tip still is to **get off your bottom** and **strut** (or even **traipse**) around the office. -    
+
+### Week 32   
 
 Her mother was a dedicated **apostle** of healthy eating. -    
 
