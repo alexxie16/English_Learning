@@ -30,6 +30,8 @@ export files=(
   "./media/GOT/GOT3.md"
   "./media/GOT/GOT2.md"
   "./media/GOT/GOT1.md"
+  "./book/millionair-fastlane.md"
+  "./book/happiness-advantage.md"
   "./book/blocksize-war.md"
   "./book/poor-charlie.md"
   "./words/2026/words-Aug-26.md"

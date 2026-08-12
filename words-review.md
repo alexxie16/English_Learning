@@ -1,6 +1,19 @@
+## happiness-advantage.md ##  
+book/happiness-advantage.md  
+But don’t worry, you don’t have to spend years in **sequestered**, **celibate** silence to experience a boost. -  
+Lowest marks in performance are generally led by commanders with a negative, controlling, and **aloof** **demeanor**. -  
+The second man wasn’t trying to be a **curmudgeon**—the unbearable heat was simply the only thing he could see. -  
+The best way to kick-start this is to start making a daily list of the good things in your job, your career, and your life. It may sound **hokey**, or ridiculously simple—and indeed the activity itself is simple—but over a decade of empirical studies has proven the profound effect it has on the way our brains are wired. -  
+I was met with **ashen** faces and utter silence. -  
+About some **snag** in your career, some frustration at your job, or some disappointment in your personal life, remember that there is always a Third Path upwards. -  
+
 ## words-Aug-26.md ##  
 words/2026/words-Aug-26.md  
+A better tip still is to **get off your bottom** and **strut** (or even **traipse**) around the office. -  
+Her mother was a dedicated **apostle** of healthy eating. -  
 Full credit to him for that, and it seems he did hustle and **derive** useful lessons from the experience. -  
+Yes, of course. Aurelius **espouses** a **perversion** of Stoic philosophy as justification for his crimes. -  
+The battle for Hugo Boss. - A British **retail magnate** tries to go **upmarket**. -  
 If you woke up with a clear head, I expect you’re one of those **priggish**, **strait-laced** Gen Zs. -  
 If that didn't **jolt you awake** a cup of coffee might, but **a cup of joe** could become a luxury as climate change threatens coffee-growing regions. 1843, our sister magazine, **profiles** a scientist trying to save your morning brew in the surprisingly **buccaneering** world of wild coffee. -  
 

@@ -81,7 +81,6 @@ NA
 
 ## Words Gallery  
 
-**slurp**, **gobble**, gulp, chug,   
 **UTM**: **Urchin** Tracking Me   
 
 **Cloying, treaclely, saccharine**,   

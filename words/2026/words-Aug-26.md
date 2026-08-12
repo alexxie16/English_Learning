@@ -74,6 +74,8 @@ throng
 
 **Tome, reams**  
 
+**slurp**, **gobble**, **gulp**, **guggle**, **chug**   
+
 **palate, palatable, palpable**,   
 
 **freeload, deadhead, bum, mooch**,   
@@ -94,23 +96,36 @@ throng
 
 ## Regular Recordings  
 
-She gives showbiz parties a wide berth.  
+She gives **showbiz** parties **a wide berth**.  
+This myth has been passed off as fact in a number of news articles.  
+
+spruce up  
+
+leach, blench   
+
+hiatal   
+eyre   
+miscreant  
+abet   
+polemic   
+dial down   
+
 
 
 cavalcade  
 reprise  
 druthers   
 
-dully: In a manner lacking interest or excitement; commonly used.  
-protease: An enzyme that breaks down proteins; less commonly used.  
-parsimony: Extreme reluctance to spend money; less commonly used.  
-bequeath: To leave personal property to someone through a will; less commonly used.  
-snippy: Short-tempered or curt in speech; commonly used.  
-plumage: The feathers of a bird; less commonly used.  
+**dully**: In a manner lacking interest or excitement; commonly used.  
+**protease**: An enzyme that breaks down proteins; less commonly used.  
+**parsimony**: Extreme reluctance to spend money; less commonly used.  
+**bequeath**: To leave personal property to someone through a will; less commonly used.  
+**snippy**: Short-tempered or curt in speech; commonly used.  
+**plumage**: The feathers of a bird; less commonly used.  
 
-Also, that's an unnecessary ad hominem attack. 🤣  
-I say we have a brawl outside hutchins to resolve this, it's the Texas way.  
-a poignant point.  
+Also, that's an unnecessary **ad hominem** attack. 🤣  
+I say we have a **brawl** outside hutchins to resolve this, it's the Texas way.  
+A **poignant** point.  
 
 A better tip still is to **get off your bottom** and **strut** (or even **traipse**) around the office. -    
 
