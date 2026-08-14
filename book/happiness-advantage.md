@@ -72,26 +72,26 @@ Some messes can be appreciated as organized chaos, but Joey’s disorder had cro
 he worked on an all-consuming project.  
 First, I told him, he needed to quell his growing anxiety.  
 ### PRINCIPLE # 6: THE 20-SECOND RULE  
-As any dietician will tell you, relying on willpower to completely avoid unhealthy food nearly guarantees relapse;  
+As any dietician will tell you, relying on willpower to completely avoid unhealthy food nearly guarantees **relapse**;  
 
 ### PRINCIPLE #7: SOCIAL INVESTMENT  
 
-I’m impressed at how memorably the Fire Maze training instilled in me the lesson that is at the heart of Principle 7–  
-I saw companies jettison team trainings and social “perks,” ignoring plummeting team morale in favor of things deemed more “important.”  
-Even our e-mails are more brusque and impersonal.  
-Instead of divesting, they invest. Not only are these people happier, but they are more productive, engaged, energetic, and resilient.  
-First, social interactions jolt us with positivity in the moment;  
-Each social connection also bolsters our cardiovascular, neuroendocrine, and immune systems, so that the more connections we make over time, the better we function.  
-In his seminal book Loneliness, University of Chicago psychologist John Cacioppo compiled more than thirty years’ worth of research to convincingly show that a dearth of social connections is actually just as deadly as certain diseases.  
-sweeping corporate policies like these aren’t always necessary; small differences can have just as much of an impact.  
-these policies are often the first to go when companies find themselves in financial straits—  
-Enter Michael Scott, poster child for disastrously inept bosses everywhere.  
-one they had good rapport with, and one they didn’t.  
-especially given the wealth of evidence showing that our relationships are the greatest predictor of both happiness and high performance.  
+I’m impressed at how memorably the Fire Maze training **instilled** in me the lesson that is at the heart of Principle 7–  
+I saw companies **jettison** team trainings and social “perks,” ignoring **plummeting** team morale in favor of things deemed more “important.”  
+Even our e-mails are more **brusque** and **impersonal**. -    
+Instead of **divesting**, they invest. Not only are these people happier, but they are more productive, **engaged**, energetic, and resilient.  
+First, social interactions **jolt** us with positivity in the moment;  
+Each social connection also **bolsters** our cardiovascular, **neuroendocrine**, and immune systems, so that the more connections we make over time, the better we function.  
+In his **seminal** book Loneliness, University of Chicago psychologist John Cacioppo compiled more than thirty years’ worth of research to convincingly show that a **dearth** of social connections is actually just as deadly as certain diseases.  
+**Sweeping** corporate policies like these aren't always necessary; small differences can have just as much of an impact.  
+These policies are often the first to go when companies find themselves in **financial straits**.    
+Enter Michael Scott, **poster child** for disastrously **inept** bosses everywhere.  
+One they had good **rapport** with, and one they didn’t. -    
+especially given the **wealth of evidence** showing that our relationships are the greatest **predictor** of both happiness and high performance.  
 
 ### SPREADING THE HAPPINESS ADVANTAGE AT WORK, AT HOME, AND BEYOND  
 
-a very self-assured if slightly tipsy CEO shook my hand warmly and said, “Thank you, Shawn.  
+A very **self-assured** if slightly **tipsy** CEO shook my hand warmly and said, “Thank you, Shawn.  
 Once we start capitalizing on the Happiness Advantage in our own lives, the positive changes quickly ripple out.  
 I have done this experiment hundreds of times in corporate settings across the world, with everyone from nervous newbies to cantankerous lifers.  
 The entire bar erupted into an audible groan.  

@@ -62,6 +62,10 @@ throng
 
 ## Verb Words  
 
+**precede**  
+
+**dawn**  
+
 **espouse**  
 
 **profile**  
@@ -96,8 +100,12 @@ throng
 
 ## Regular Recordings  
 
+He said this with an **ingratiating** smile.  
+
 She gives **showbiz** parties **a wide berth**.  
-This myth has been passed off as fact in a number of news articles.  
+This myth has been **passed off as** fact in a number of news articles.  
+
+It's a long **uphill battle** because big pharma, big alchohol, big tobacco are all fighting this stuff.  
 
 spruce up  
 
@@ -109,12 +117,12 @@ miscreant
 abet   
 polemic   
 dial down   
-
-
+mottled  
 
 cavalcade  
 reprise  
 druthers   
+
 
 **dully**: In a manner lacking interest or excitement; commonly used.  
 **protease**: An enzyme that breaks down proteins; less commonly used.  
@@ -385,3 +393,6 @@ Let's **cinch up**, let's punch the ball into the end zone and pass the clarity 
 > Interesting, vivid, absurd, sensational words in sentences.  
 
 You've been there since the start, you were an early advocate, **acolyte** of crypto.  
+Process cannot be **outsourced**, because process **dawns** wisdom, personal growth, strength, and events.  
+Beliefs **preceded** choices, which **precede** action.  
+
