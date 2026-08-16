@@ -1,3 +1,8 @@
+## millionair-fastlane.md ##  
+book/millionair-fastlane.md  
+Our old Dodge Duster started **billowing** smoke and **clanked** to a stop. -  
+Wealth **eludes** most people because they are **preoccupied** with events while **disregarding** process. -  
+
 ## happiness-advantage.md ##  
 book/happiness-advantage.md  
 But don’t worry, you don’t have to spend years in **sequestered**, **celibate** silence to experience a boost. -  
@@ -6,6 +11,8 @@ The second man wasn’t trying to be a **curmudgeon**—the unbearable heat was 
 The best way to kick-start this is to start making a daily list of the good things in your job, your career, and your life. It may sound **hokey**, or ridiculously simple—and indeed the activity itself is simple—but over a decade of empirical studies has proven the profound effect it has on the way our brains are wired. -  
 I was met with **ashen** faces and utter silence. -  
 About some **snag** in your career, some frustration at your job, or some disappointment in your personal life, remember that there is always a Third Path upwards. -  
+Even our e-mails are more **brusque** and **impersonal**. -  
+One they had good **rapport** with, and one they didn’t. -  
 
 ## words-Aug-26.md ##  
 words/2026/words-Aug-26.md  

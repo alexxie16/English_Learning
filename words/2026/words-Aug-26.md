@@ -100,6 +100,9 @@ throng
 
 ## Regular Recordings  
 
+It takes a very **buoyant** personality to cope with constant rejection.  
+We were in a **buoyant** mood after winning our match.  
+
 He said this with an **ingratiating** smile.  
 
 She gives **showbiz** parties **a wide berth**.  
