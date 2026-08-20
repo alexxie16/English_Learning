@@ -315,9 +315,6 @@ The singer gave a **dismal** performance of some old songs.
 Don't **suck up** to me, you **suck-up**.  
 Instead of a **slug** creature, I have a cute little scarf.  
 
-**Apparel**.  
-**spruce up**.  
-
 **indifference, nonchalance**.  
 Andrew liked to **dote on** the dog, she says, and he liked to be doted on by Sarah.  
 

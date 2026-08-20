@@ -11,6 +11,7 @@
 - 🖼️ [Words Gallery](#words-gallery)  
 
 📰 **Reading & Usage**  
+- 📗 [Millionaire fastlane](../../book/millionair-fastlane.md)  
 - 💬 [Conversation](#conversation)  
 - ✨ [Interesting](#interesting)  
 - 🏛️ [Economist Newsletter](#economist-newsletter)  
@@ -41,6 +42,8 @@ throng
 **calumnies**  
 
 ## Special Words  
+
+**ingratiating**  
 
 **epiphany**  
 
@@ -76,6 +79,8 @@ throng
 
 ## Words Gallery  
 
+Circumvent, circumvention, circumstantial, circumspect,   
+
 **Tome, reams**  
 
 **slurp**, **gobble**, **gulp**, **guggle**, **chug**   
@@ -98,7 +103,72 @@ throng
 **unbridled, unfettered, untrammelled, uncontrollable**   
 **Choir(s), carol, choral**,   
 
+---  
+
+udder  
+**Apparel**.  
+
+**Malarkey, baloney, phony, drivel**,  
+**leach, blench**   
+
+
+
 ## Regular Recordings  
+
+**The Hulk**.  
+I saw a rotting **hulk** on the beach.   
+**Hulk Hogan** Diss (Be A MAN) **macho man** randy savage  
+
+gainsay, gainsay   
+
+
+-----  
+
+
+**True to form**, Ryan put the most optimistic spin he could on the situation.  
+**True to form**, after a jittery August it has spent recent weeks falling.  
+
+
+> **Censure**: Less severe than **expulsion**, a censure (sometimes referred to as condemnation or denouncement) does not remove a senator from office. It is a formal statement of disapproval, however, that can have a powerful psychological effect on a member and his/her relationships in the Senate.  
+> Praise in public, **censure** in private, right?  
+
+**rebuke**: an act or expression of criticism and **censure**.  
+**Aperture**: An opening or hole, often used in photography to control light.  
+
+**Vermin**: Pests or undesirable animals, often harmful to crops or livestock.  
+
+---  
+
+He was **affable** at one moment, **choleric** the next. -  
+Does study of stoicism risk **dulling** positive emotions?    
+Fuel the habit **bonfire**.  
+
+
+He would not abase himself by showing fear. -    
+
+---  
+
+**reprise**: A repeated performance or return to a theme; somewhat commonly used in discussions about music or literature.  
+
+**hiatal** - Relating to an opening or hiatus, commonly used in medical contexts.  
+**eyre** - A historical term for a traveling court, rarely used in daily conversation.  
+**miscreant** - A person who behaves badly or unlawfully, somewhat commonly used.  
+**abet** - To assist or encourage someone in wrongdoing, not commonly used in daily conversation.  
+**polemic** - A strong verbal or written attack on someone or something, somewhat commonly used in debates.  
+**mottled** - Marked with spots or blotches of color, commonly used in descriptive contexts.  
+
+**cavalcade**: A formal procession of people, often on horseback; not commonly used in daily conversation.  
+**druthers**: A preference or choice; commonly used in informal conversation.  
+**injunction**: A legal order to do or refrain from doing something; not commonly used in daily conversation.  
+
+---  
+
+
+
+The case against him was largely **circumstantial**.  
+
+
+### Week 33   
 
 It takes a very **buoyant** personality to cope with constant rejection.  
 We were in a **buoyant** mood after winning our match.  
@@ -109,23 +179,6 @@ She gives **showbiz** parties **a wide berth**.
 This myth has been **passed off as** fact in a number of news articles.  
 
 It's a long **uphill battle** because big pharma, big alchohol, big tobacco are all fighting this stuff.  
-
-spruce up  
-
-leach, blench   
-
-hiatal   
-eyre   
-miscreant  
-abet   
-polemic   
-dial down   
-mottled  
-
-cavalcade  
-reprise  
-druthers   
-
 
 **dully**: In a manner lacking interest or excitement; commonly used.  
 **protease**: An enzyme that breaks down proteins; less commonly used.  
@@ -219,6 +272,26 @@ If that didn't **jolt you awake** a cup of coffee might, but **a cup of joe** co
 The **maverick** scientist trying to save coffee from extinction.  
 
 ## Words Explain   
+
+aperture  
+vermin  
+twerp  
+interregnum  
+perfunctory  
+
+
+---  
+
+**Stricture**  
+- **Stricture** has two main meanings, but they’re connected by the idea of “something that makes a passage narrower or restricts movement.”  
+  - Medical meaning — a stricture is an abnormal narrowing of a tube or passage in the body.  
+  - Figurative meaning — a restriction or limitation  
+- **Examples**  
+  - A stricture is an abnormal narrowing of a tube or passage in the body.  
+  - urethral stricture → narrowing of the urethra  
+  - The new law imposes strictures on how companies can use personal data.  
+
+---  
 
 **Revel**  
    - **Definition**: To take great pleasure or delight in something; to celebrate or enjoy oneself in a lively manner.  

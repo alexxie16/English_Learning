@@ -260,7 +260,6 @@ But the current environment has left sellers at an **impasse**.
 **He slouches**.  
 He **pored over** Scotch reviews for two hours before buying his dad a bottle for Father’s Day.  
 
-**true to form**  
 **secular**  
 **play catch**  
 **put decision on ice**.  

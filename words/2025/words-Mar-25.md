@@ -453,8 +453,8 @@ We would not **belabor** this point but only wish each to ponder it.
 > In general usage, if someone is belaboring a point, it usually carries a negative connotation, suggesting that the person is overdoing their explanation or criticism.  
 
 **Stricture**  
->   • The word is more formal and is mainly used in legal, medical, or academic contexts. You might see it in news articles or official reports, but it’s not something people say in casual conversations.  
->   • Instead of “stricture,” people often use words like restriction, rule, or limitation in daily speech.  
+- The word is more formal and is mainly used in legal, medical, or academic contexts. You might see it in news articles or official reports, but it’s not something people say in casual conversations.  
+- Instead of “stricture,” people often use words like restriction, rule, or limitation in daily speech.  
   
 **Chuffed**  
 >  • If you’re in the UK, you’ll hear this word quite often, especially in informal settings. Brits say things like “I’m chuffed to bits!” (meaning “I’m really happy!”).  
