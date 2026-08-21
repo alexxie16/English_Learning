@@ -2,6 +2,24 @@
 book/millionair-fastlane.md  
 Our old Dodge Duster started **billowing** smoke and **clanked** to a stop. -  
 Wealth **eludes** most people because they are **preoccupied** with events while **disregarding** process. -  
+When you **plop your butt** on the recliner and **maul through** a can of **Pringles**, you choose pleasure now **in lieu of** pain later. -  
+You're their prey and the **peddlers** don't care if you can afford it or not. -  
+To tell a great poker player “you're lucky” is to **hurl an insult**. Likewise, to **ascribe** luck to a self-made millionaire's success is to perform the same insult. -  
+when I was a teenager, my mother **chummed with** friends at a local restaurant. -  
+An investment company had **bilked** millions of dollars from investors. -  
+When you **bequeath** control to others, you essentially become a **hitchhiker** with no seat belt. -  
+You ignored the tickle of logic in your brain. You are a victim of your own **malfeasance**. -  
+As it turns out, I was correct, and that truth **crystallized** because I chose to make financial decisions for myself. I didn't rely on the **pontificators** at CNBC who **rapaciously** declared that housing was safe. -  
+Responsibility is the **forefather** to accountability, but one doesn't **evidence** the other. -  
+A strategy that requires your life and your dreams to be paid as **penance** is **a sucker's bet**. -  
+Five days of **work-bondage** exchanged for two days of **unadulterated** freedom. -  
+Look no further than Friday night when people celebrate freedom as the Slowlane dictatorship takes a weekend **furlough**. -  
+Time becomes the **lynchpin** for wealth that **congenitally** ties to the mathematical handicaps of mortality. -  
+Unless you plan on living forever, this relationship is **dubiously** **foolhardy**. -  
+To create explosive wealth fast, you must abandon the Slowlane formula and its **lecherous** relationship to time. -  
+Time is your **primordial** fuel and it should not be traded for money. -  
+If an education **entombs** you under a mountain of debt and **shackles** you to a job for the rest of your life, is it really a good education? -  
+They operate in an entirely different wealth universe not **predicated on** uncontrollable limited leverage. -  
 
 ## happiness-advantage.md ##  
 book/happiness-advantage.md  
@@ -16,6 +34,8 @@ One they had good **rapport** with, and one they didn’t. -
 
 ## words-Aug-26.md ##  
 words/2026/words-Aug-26.md  
+He was **affable** at one moment, **choleric** the next. -  
+He would not **abase** himself by showing fear. -  
 A better tip still is to **get off your bottom** and **strut** (or even **traipse**) around the office. -  
 Her mother was a dedicated **apostle** of healthy eating. -  
 Full credit to him for that, and it seems he did hustle and **derive** useful lessons from the experience. -  
