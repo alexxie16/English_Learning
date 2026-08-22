@@ -123,37 +123,37 @@ If you try to live the “millionaire lifestyle” as shown on television, a foo
 
 ## PART 5: Wealth–The Fastlane Roadmap  
 
-This story epitomizes the Fastlane. A business was created; a lifestyle grew the business, which opened up the expressway, and the expressway led to extraordinary wealth, which led to freedom.  
-Just watch this quick-start video or buy this stock software program, and wham, you will be rich in 10 days!  
-Manual labor was replaced in favor of systems, an organized union of distinct parts that coalesced into a specific production outcome.  
-Nonetheless, each is primed for the challenge and honored by the Pharaoh's directive.  
-Chuma, engrossed and unfazed by his brother's accusation retorts, “Azur, you're short-sightedness and thirst for wealth have clouded your vision. You build your pyramid and I will build mine.”  
-As Azur walks away, he chides, “You fool! Pharaoh will hang you in the gallows when he discovers your treason.”  
-Chuma trolls up the town square commandeering a 25-foot contraption, a towering machine built from a twisted maze of gantries, wheels, levers, and ropes.  
-After a short trawl to Chuma's barren pyramid plot, Azur's suspicions are confirmed.  
-Chuma and his machine accomplish as much as Azur's three years of toilsome work.  
-Meanwhile, Azur continues to dredge away at the same old routine.  
-Where is this playbook and how do you get it? You have to forsake the ideology of the majority and become a Slowlane traitor.  
-This “consumer” focus is like a gravitational pull to keep you amenable to anti-Fastlane thinking.  
-For example, the sale of this book extricates me from the Slowlane wealth equation and its universe.  
-Producers are indigenous to the Fastlane roadmap.  
-Unit profit is also pliable. I could experiment with increased prices or new services.  
+This story **epitomizes** the Fastlane. A business was created; a lifestyle grew the business, which opened up the expressway, and the expressway led to extraordinary wealth, which led to freedom.  
+Just watch this quick-start video or buy this stock software program, and **wham**, you will be rich in 10 days!  
+Manual labor was replaced in favor of systems, an organized union of distinct parts that **coalesced into** a specific production outcome.  
+Nonetheless, each is primed for the challenge and honored by the **Pharaoh**'s **directive**.  
+Chuma, **engrossed** and **unfazed** by his brother's accusation **retorts**, “Azur, you're **short-sightedness** and thirst for wealth have clouded your vision. You build your pyramid and I will build mine.”  
+As Azur walks away, he **chides**, “You fool! Pharaoh will hang you in the **gallows** when he discovers your treason.”  
+Chuma **trolls up** the town square **commandeering** a 25-foot **contraption**, a towering machine built from a twisted maze of **gantries**, wheels, levers, and ropes. -    
+After a short **trawl** to Chuma's barren pyramid plot, Azur's suspicions are confirmed. -    
+Chuma and his machine accomplish as much as Azur's three years of **toilsome** work.  
+Meanwhile, Azur continues to **dredge away** at the same old routine.  
+Where is this playbook and how do you get it? You have to **forsake** the ideology of the majority and become a Slowlane traitor.  
+This “consumer” focus is like a **gravitational pull** to keep you **amenable** to anti-Fastlane thinking.  
+For example, the sale of this book **extricates** me from the Slowlane wealth equation and its universe.  
+Producers are **indigenous** to the Fastlane roadmap. -    
+Unit profit is also **pliable**. I could experiment with increased prices or new services.  
 if your company stagnates and net income starts to erode, so will the corresponding asset value.  
-I streamlined operations, which created passivity.  
-Bad employees pluck the fruit of money trees and require pruning.  
-Being broke and a student of wealth, I couldn't bottle my curiosity.  
-Wow. This guy couldn't have been much older than I and he was already retired and living large!  
-The next few times I chauffeured the man, I eavesdropped on his conversations hoping to catch a tasty tidbit of the rich.  
-I impugned “compound interest” as an impotent wealth accelerator because of its attachment to time.  
-For compound interest to be effective, you must bypass 30 years of mathematical ineptitude by riding the crest where it is effective.  
-Oh, don't get your panties in a wad; I know the Law of Attraction sounds great and has practical applications.  
-Yes, these people are still trading their time for money, but in an unprecedented stratum of value.  
+I streamlined operations, which created **passivity**.  
+Bad employees **pluck** the fruit of money trees and require **pruning**. -    
+Being broke and a student of wealth, I couldn't **bottle** my curiosity. -    
+Wow. This guy couldn't have been much older than I and he was already retired and **living large**!  
+The next few times I **chauffeured** the man, I **eavesdropped** on his conversations hoping to catch a **tasty tidbit** of the rich.  
+I **impugned** “compound interest” as an impotent wealth accelerator because of its attachment to time.  
+For compound interest to be effective, you must bypass 30 years of mathematical **ineptitude** by **riding the crest** where it is effective.  
+Oh, don't get your panties **in a wad**; I know the Law of Attraction sounds great and has practical applications.  
+Yes, these people are still trading their time for money, but in an unprecedented **stratum** of value. -    
 
 ## PART 6: Your Vehicle to Wealth–YOU  
 
-advising a Slowlaner to “pay yourself first” is like advising a quadriplegic to climb a flight of stairs. It's futile.  
-After a few various rants and raves about the car, he exclaimed, “I gotta get as many pictures as possible cuz I'll never be able to afford one of these.”  
-He looked like he was canvassing the room as if he was selling something.  
+Advising a Slowlaner to “pay yourself first” is like advising a **quadriplegic** to climb a **flight of stairs**. It's **futile**.  
+After a few various **rants and raves** about the car, he **exclaimed**, “I gotta get as many pictures as possible cuz I'll never be able to afford one of these.” -    
+He looked like he was **canvassing** the room as if he was selling something. -    
 He eventually got to our table and unleashed the uncouth, “Hey, how would you like to earn $ 10,000 per month?”  
 His eyes popped out of their sockets, and after he picked them off the table, he scampered away like a rat without his cheese.  
 While I wish the man the best marriage, I see flaccid words that lack confidence:  
@@ -175,6 +175,6 @@ Having a life partner who doesn't ascribe to your life's ideals and philosophies
 Someone fighting with you in your corner is accelerative; if they serve as the opposition, they become treasonous.  
 She couldn't understand why I was so fervent to be an entrepreneur. Our relationship stagnated as my failures grew, and the relationship eventually ended.  
 This occurrence wasn't either one of our faults; we just were two different people on two different paths.  
-Or is your relationship just like lukewarm water, not bad, not good, just comfortable enough to stand pat?  
+Or is your relationship just like **lukewarm water**, not bad, not good, just comfortable enough to **stand pat**?  
 
 

@@ -1,5 +1,5 @@
-## millionair-fastlane.md ##  
-book/millionair-fastlane.md  
+## millionaire-fastlane.md ##  
+book/millionaire-fastlane.md  
 Our old Dodge Duster started **billowing** smoke and **clanked** to a stop. -  
 Wealth **eludes** most people because they are **preoccupied** with events while **disregarding** process. -  
 When you **plop your butt** on the recliner and **maul through** a can of **Pringles**, you choose pleasure now **in lieu of** pain later. -  
@@ -20,6 +20,14 @@ To create explosive wealth fast, you must abandon the Slowlane formula and its *
 Time is your **primordial** fuel and it should not be traded for money. -  
 If an education **entombs** you under a mountain of debt and **shackles** you to a job for the rest of your life, is it really a good education? -  
 They operate in an entirely different wealth universe not **predicated on** uncontrollable limited leverage. -  
+Chuma **trolls up** the town square **commandeering** a 25-foot **contraption**, a towering machine built from a twisted maze of **gantries**, wheels, levers, and ropes. -  
+After a short **trawl** to Chuma's barren pyramid plot, Azur's suspicions are confirmed. -  
+Producers are **indigenous** to the Fastlane roadmap. -  
+Bad employees **pluck** the fruit of money trees and require **pruning**. -  
+Being broke and a student of wealth, I couldn't **bottle** my curiosity. -  
+Yes, these people are still trading their time for money, but in an unprecedented **stratum** of value. -  
+After a few various **rants and raves** about the car, he **exclaimed**, “I gotta get as many pictures as possible cuz I'll never be able to afford one of these.” -  
+He looked like he was **canvassing** the room as if he was selling something. -  
 
 ## happiness-advantage.md ##  
 book/happiness-advantage.md  

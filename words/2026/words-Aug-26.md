@@ -11,7 +11,7 @@
 - 🖼️ [Words Gallery](#words-gallery)  
 
 📰 **Reading & Usage**  
-- 📗 [Millionaire fastlane](../../book/millionair-fastlane.md)  
+- 📗 [Millionaire fastlane](../../book/millionaire-fastlane.md)  
 - 💬 [Conversation](#conversation)  
 - ✨ [Interesting](#interesting)  
 - 🏛️ [Economist Newsletter](#economist-newsletter)  
@@ -22,6 +22,12 @@
 ------------------  
 
 ### Words with Questions  
+
+brusque  
+
+marquee  
+
+smarmy  
 
 morose  
 
@@ -111,15 +117,27 @@ udder
 **Malarkey, baloney, phony, drivel**,  
 **leach, blench**   
 
+reprehend, scold, rebuke, chide,   
 
 
 ## Regular Recordings  
+
+shaft, shank, rod, axle, pulley, spindle,   
+
+And of course, they rightly impugn all meat, not just "red" meat.   
+
 
 **The Hulk**.  
 I saw a rotting **hulk** on the beach.   
 **Hulk Hogan** Diss (Be A MAN) **macho man** randy savage  
 
 **gainsay, naysay**   
+
+Instead, a more prosperous, bumptious Turkey is jangling many nerves.  
+
+She must suspect and guess and chafe and bear it all alone .  
+His wrists began to chafe against the cloth strips binding them.  
+
 
 
 -----  
@@ -276,6 +294,7 @@ vermin
 twerp  
 interregnum  
 perfunctory  
+morass  
 
 
 ---  
