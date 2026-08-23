@@ -1,4 +1,14 @@
 
+## Layout   
+- [Introduction](#introduction)  
+- [PART 1: Wealth in a Wheelchair… “Get Rich Slow” is Get Rich Old](#part-1-wealth-in-a-wheelchair-get-rich-slow-is-get-rich-old)  
+- [PART 2: Wealth is Not a Road, But a Road Trip](#part-2-wealth-is-not-a-road-but-a-road-trip)  
+- [PART 3: Poorness–The Sidewalk](#part-3-poornessthe-sidewalk)  
+- [PART 4: Mediocrity–The Slowlane Roadmap](#part-4-mediocritythe-slowlane-roadmap)  
+- [PART 5: Wealth–The Fastlane Roadmap](#part-5-wealththe-fastlane-roadmap)  
+- [PART 6: Your Vehicle to Wealth–YOU](#part-6-your-vehicle-to-wealthyou)  
+
+
 ## Introduction   
 
 I'm on track to leave my J-O-B lifestyle in the dust, **speeding off into the sunset** with **exuberance and abundance**!”  
@@ -106,7 +116,7 @@ Time becomes the **lynchpin** for wealth that **congenitally** ties to the mathe
 Unless you plan on living forever, this relationship is **dubiously** **foolhardy**. -    
 To create explosive wealth fast, you must abandon the Slowlane formula and its **lecherous** relationship to time. -    
 Time is your **primordial** fuel and it should not be traded for money. -    
-Your time should not be an expendable resource for wealth because wealth itself is composed of time.  
+Your time should not be an **expendable** resource for wealth because wealth itself is composed of time.  
 If an education **entombs** you under a mountain of debt and **shackles** you to a job for the rest of your life, is it really a good education? -    
 Has your education **indentured** you to a job?  
 Compound interest tables, save 10% of your paycheck, stop drinking expensive coffee, and other chronic Slowlane **diatribes**. Again, the Paradox of Practice **rears its ugly mug**.  
@@ -154,27 +164,27 @@ Yes, these people are still trading their time for money, but in an unprecedente
 Advising a Slowlaner to “pay yourself first” is like advising a **quadriplegic** to climb a **flight of stairs**. It's **futile**.  
 After a few various **rants and raves** about the car, he **exclaimed**, “I gotta get as many pictures as possible cuz I'll never be able to afford one of these.” -    
 He looked like he was **canvassing** the room as if he was selling something. -    
-He eventually got to our table and unleashed the uncouth, “Hey, how would you like to earn $ 10,000 per month?”  
-His eyes popped out of their sockets, and after he picked them off the table, he scampered away like a rat without his cheese.  
-While I wish the man the best marriage, I see flaccid words that lack confidence:  
-This language spells trouble. What would have convinced me otherwise?  
-Sure, I would have enjoyed a quick romp of fun, but what about afterward?  
-Your choices unearth those roads, and they are either impressive shortcuts or perilous detours.  
-Being the youngest of three siblings, you can bet I was the subject of some vile comments.  
-Before they could even pursue flying, the Wright brothers had to break free of society's natural headwind-the natural social conditioning that impregnates all young minds.  
-The more uncanny and exceptional you strive to be, the more you need to fight through social indoctrination. Extraordinary wealth will require you to have extraordinary beliefs.  
-Time passes, dreams die, and what remains? An old withered body forlorn for what could have been.  
-Escaping Human Headwind Bloviators  
-You must turn your back on them. Every entrepreneur has bloviators in their life.  
-he sold it under a specific set of circumstances, which included the provision that he had to play the lead role.  
-Good people are conduits to your dreams, not just in motivational fuel, but in extending your opportunity reach.  
-Think of the relationships in your life like an army platoon readying for battle.  
-You need warriors who are impervious to the Death Star and can deactivate the Slowlane tractor beam, not fearful pansies who drop their cargo at the first sign of Imperial Slowlaners.  
-Unlike natural wind, you are the arbiter of your headwinds.  
-Having a life partner who doesn't ascribe to your life's ideals and philosophies is like towing a trailer full of wet manure.  
-Someone fighting with you in your corner is accelerative; if they serve as the opposition, they become treasonous.  
-She couldn't understand why I was so fervent to be an entrepreneur. Our relationship stagnated as my failures grew, and the relationship eventually ended.  
-This occurrence wasn't either one of our faults; we just were two different people on two different paths.  
+He eventually got to our table and unleashed the **uncouth**, “Hey, how would you like to earn $ 10,000 per month?”  
+His **eyes popped out of their sockets**, and after he picked them off the table, he **scampered** away like a rat without his cheese. -    
+While I wish the man the best marriage, I see **flaccid words** that lack confidence.  
+This language **spells** trouble. What would have convinced me otherwise? -    
+Sure, I would have enjoyed a quick **romp** of fun, but what about afterward? -  
+Your choices **unearth** those roads, and they are either impressive shortcuts or perilous detours.  
+Being the youngest of three siblings, you can bet I was the subject of some **vile** comments.  
+Before they could even pursue flying, the Wright brothers had to break free of society's **natural headwind**-the natural social conditioning that **impregnates** all young minds. -    
+The more **uncanny** and exceptional you strive to be, the more you need to fight through social **indoctrination**. Extraordinary wealth will require you to have extraordinary beliefs.  
+Time passes, dreams die, and what remains? An old **withered** body **forlorn** for what could have been. -    
+Escaping Human Headwind **Bloviators**.    
+You must turn your back on them. Every entrepreneur has **bloviators** in their life.  
+He sold it under a specific **set of circumstances**, which included **the provision** that he had to play the **lead role**.  
+Good people are **conduits** to your dreams, not just in motivational fuel, but in extending your opportunity reach.  
+Think of the relationships in your life like an **army platoon** readying for battle. -    
+You need warriors who are **impervious** to the Death Star and can deactivate the Slowlane tractor beam, not fearful **pansies** who drop their **cargo** at the first sign of Imperial Slowlaners. -    
+Unlike natural wind, you are the **arbiter** of your headwinds.  
+Having a life partner who doesn't **ascribe to** your life's ideals and philosophies is like towing a trailer full of **wet manure**. -    
+Someone fighting with you **in your corner** is accelerative; if they serve as the opposition, they become **treasonous**.  
+She couldn't understand why I was so **fervent** to be an entrepreneur. Our relationship **stagnated** as my failures grew, and the relationship eventually ended.  
+This **occurrence** wasn't either one of our faults; we just were two different people on two different paths.  
 Or is your relationship just like **lukewarm water**, not bad, not good, just comfortable enough to **stand pat**?  
 
 

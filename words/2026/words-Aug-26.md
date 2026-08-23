@@ -119,8 +119,16 @@ udder
 
 reprehend, scold, rebuke, chide,   
 
+lewd, sleazy, perverted, depraved, devious,  
 
 ## Regular Recordings  
+
+It never feels lewd and lecherous.  
+
+
+Louis is devious, but he's not bold.  
+**Bring it on**, Ross, I bleed **crimson**.  
+Oh, **venomous banter**, this is adorable, I love it.  
 
 shaft, shank, rod, axle, pulley, spindle,   
 

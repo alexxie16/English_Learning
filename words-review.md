@@ -28,6 +28,14 @@ Being broke and a student of wealth, I couldn't **bottle** my curiosity. -
 Yes, these people are still trading their time for money, but in an unprecedented **stratum** of value. -  
 After a few various **rants and raves** about the car, he **exclaimed**, “I gotta get as many pictures as possible cuz I'll never be able to afford one of these.” -  
 He looked like he was **canvassing** the room as if he was selling something. -  
+His **eyes popped out of their sockets**, and after he picked them off the table, he **scampered** away like a rat without his cheese. -  
+This language **spells** trouble. What would have convinced me otherwise? -  
+Sure, I would have enjoyed a quick **romp** of fun, but what about afterward? -  
+Before they could even pursue flying, the Wright brothers had to break free of society's **natural headwind**-the natural social conditioning that **impregnates** all young minds. -  
+Time passes, dreams die, and what remains? An old **withered** body **forlorn** for what could have been. -  
+Think of the relationships in your life like an **army platoon** readying for battle. -  
+You need warriors who are **impervious** to the Death Star and can deactivate the Slowlane tractor beam, not fearful **pansies** who drop their **cargo** at the first sign of Imperial Slowlaners. -  
+Having a life partner who doesn't **ascribe to** your life's ideals and philosophies is like towing a trailer full of **wet manure**. -  
 
 ## happiness-advantage.md ##  
 book/happiness-advantage.md  
