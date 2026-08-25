@@ -84,15 +84,17 @@ throng
 **shoulder**  
 
 ## Words Gallery  
+**Malarkey, baloney, phony, drivel**,  
+**leach, blench**   
 
-Circumvent, circumvention, circumstantial, circumspect,   
+**reprehend, scold, rebuke, chide**,   
+**lewd, sleazy, perverted, depraved, devious**,  
+**shaft, shank, rod, axle, pulley, spindle**,   
 
+**Circumvent, circumvention, circumstantial, circumspect**,   
 **Tome, reams**  
-
 **slurp**, **gobble**, **gulp**, **guggle**, **chug**   
-
 **palate, palatable, palpable**,   
-
 **freeload, deadhead, bum, mooch**,   
 **clear-headed, level-headed, empty-headed, bonehead, wrongheaded**   
 **bareheaded, egghead, copperhead**,   
@@ -111,29 +113,33 @@ Circumvent, circumvention, circumstantial, circumspect,
 
 ---  
 
-udder  
+**udder**  
 **Apparel**.  
-
-**Malarkey, baloney, phony, drivel**,  
-**leach, blench**   
-
-reprehend, scold, rebuke, chide,   
-
-lewd, sleazy, perverted, depraved, devious,  
+punctilio  
 
 ## Regular Recordings  
 
-It never feels lewd and lecherous.  
+Intelligence is **on tap** now so agency is even more important  
 
 
-Louis is devious, but he's not bold.  
+**Countervailing** opinion.  
+
+The world’s most influential economist is oddly **unconvincing**. Daron Acemoglu is **revered**. Why?  
+The rest of the world should **take heed of** Mr Trump’s treatment of an ally.  
+
+
+### Week 34   
+
+We saw an **albatross** gliding above the waves.  
+**albatross** (bird) → dead albatross around one's neck → unavoidable burden  
+
+It never feels **lewd** and **lecherous**. -    
+
+Louis is **devious**, but he's not bold.  
 **Bring it on**, Ross, I bleed **crimson**.  
 Oh, **venomous banter**, this is adorable, I love it.  
 
-shaft, shank, rod, axle, pulley, spindle,   
-
-And of course, they rightly impugn all meat, not just "red" meat.   
-
+And of course, they rightly **impugn** all meat, not just "red" meat. -     
 
 **The Hulk**.  
 I saw a rotting **hulk** on the beach.   
@@ -141,10 +147,10 @@ I saw a rotting **hulk** on the beach.
 
 **gainsay, naysay**   
 
-Instead, a more prosperous, bumptious Turkey is jangling many nerves.  
+Instead, a more prosperous, **bumptious** Turkey is **jangling** many nerves.  
 
-She must suspect and guess and chafe and bear it all alone .  
-His wrists began to chafe against the cloth strips binding them.  
+She must suspect and guess and **chafe** and bear it all alone .  
+His wrists began to **chafe** against the cloth strips binding them.  
 
 
 
@@ -202,7 +208,7 @@ He said this with an **ingratiating** smile.
 She gives **showbiz** parties **a wide berth**.  
 This myth has been **passed off as** fact in a number of news articles.  
 
-It's a long **uphill battle** because big pharma, big alchohol, big tobacco are all fighting this stuff.  
+It's a long **uphill battle** because big pharma, big alcohol, big tobacco are all fighting this stuff.  
 
 **dully**: In a manner lacking interest or excitement; commonly used.  
 **protease**: An enzyme that breaks down proteins; less commonly used.  
@@ -297,13 +303,64 @@ The **maverick** scientist trying to save coffee from extinction.
 
 ## Words Explain   
 
-aperture  
-vermin  
-twerp  
-interregnum  
-perfunctory  
-morass  
 
+**Snippy**  
+   - **Definition**: Short-tempered or irritable; often characterized by sharp or rude comments.  
+   - **Common Usage**: Fairly common in informal conversations, often to describe someone's tone or demeanor.  
+   - **Examples**:  
+     - She gave a snippy reply when asked about her progress on the project.  
+     - His snippy remarks during the meeting made the atmosphere tense.  
+   - **Alternatives**: Short, curt, brusque, terse.  
+
+---  
+
+**Aperture**  
+   - **Definition**: An opening, hole, or gap, often used in reference to lenses in photography or optics.  
+   - **Common Usage**: Commonly used in photography, physics, and engineering contexts.  
+   - **Examples**:  
+     - The photographer adjusted the aperture to allow more light into the camera.  
+     - A wider aperture creates a shallower depth of field in photographs.  
+   - **Alternatives**: Opening, gap, hole, slit.  
+
+---  
+
+**Twerp**  
+   - **Definition**: A silly or insignificant person; someone who is annoying or foolish.  
+   - **Common Usage**: Informal and somewhat cheeky; often used in casual contexts.  
+   - **Examples**:  
+     - Stop acting like a twerp and take this seriously!  
+     - He’s such a twerp, always making silly jokes at the wrong time.  
+   - **Alternatives**: Fool, nincompoop, idiot, numskull.  
+
+---  
+
+**Interregnum**  
+   - **Definition**: A period of discontinuity or suspended government; often refers to a gap between reigns or administrations.  
+   - **Common Usage**: Primarily used in political science, history, and formal discussions.  
+   - **Examples**:  
+     - The country faced an interregnum following the king's **abdication**.  
+     - During the interregnum, the parliament struggled to establish new leadership.  
+   - **Alternatives**: Gap, hiatus, break, interval.  
+
+---  
+
+**Perfunctory**  
+   - **Definition**: Carried out with a minimum of effort or reflection; done merely as a routine.  
+   - **Common Usage**: Commonly used to describe tasks or actions done superficially or without enthusiasm.  
+   - **Examples**:  
+     - His perfunctory nod indicated he wasn't really listening to the conversation.  
+     - The inspection felt perfunctory; they didn't bother to check the details.  
+   - **Alternatives**: Superficial, cursory, mechanical, routine.  
+
+---  
+
+**Morass**  
+   - **Definition**: An area of **muddy** or **boggy ground**; metaphorically, a complicated or confused situation.  
+   - **Common Usage**: Fairly common in both literal and metaphorical contexts, especially in literature.  
+   - **Examples**:  
+     - The hikers struggled to cross the morass without getting stuck.  
+     - She found herself in a **moral morass** after the unexpected accusations.  
+   - **Alternatives**: Swamp, bog, quagmire, confusion.  
 
 ---  
 

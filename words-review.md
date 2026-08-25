@@ -50,6 +50,8 @@ One they had good **rapport** with, and one they didn’t. -
 
 ## words-Aug-26.md ##  
 words/2026/words-Aug-26.md  
+It never feels **lewd** and **lecherous**. -  
+And of course, they rightly **impugn** all meat, not just "red" meat. -  
 He was **affable** at one moment, **choleric** the next. -  
 He would not **abase** himself by showing fear. -  
 A better tip still is to **get off your bottom** and **strut** (or even **traipse**) around the office. -  
