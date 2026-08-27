@@ -50,6 +50,8 @@ One they had good **rapport** with, and one they didn’t. -
 
 ## words-Aug-26.md ##  
 words/2026/words-Aug-26.md  
+With her **voluptuous** figure, **sparkly** stage costumes and blond **bouffant** **wigs**, she was likened by the writer Chet Flippo to the Big Rock Candy Mountain, the Depression-era symbol of abundance. -  
+**In the aftermath** of the tragedy, a **tribunal** pointed fingers at the captain, the crew, and the builders, but no one looked at the true source of the failure. -  
 It never feels **lewd** and **lecherous**. -  
 And of course, they rightly **impugn** all meat, not just "red" meat. -  
 He was **affable** at one moment, **choleric** the next. -  
@@ -58,6 +60,9 @@ A better tip still is to **get off your bottom** and **strut** (or even **traips
 Her mother was a dedicated **apostle** of healthy eating. -  
 Full credit to him for that, and it seems he did hustle and **derive** useful lessons from the experience. -  
 Yes, of course. Aurelius **espouses** a **perversion** of Stoic philosophy as justification for his crimes. -  
+A bill to punish Putin gives too much power to Donald Trump. **Walloping** the global trading system is no way to help Ukraine. -  
+A surprising comeback in Wisconsin is a **reprieve** for Democratic moderates. The party has narrowly dodged a socialist insurgency in a crucial swing state. -  
+**Ostracism** and sanctions have not worked. Less **squeamish** powers, such as Russia and China, are trying to pull Afghanistan into their orbit. -  
 The battle for Hugo Boss. - A British **retail magnate** tries to go **upmarket**. -  
 If you woke up with a clear head, I expect you’re one of those **priggish**, **strait-laced** Gen Zs. -  
 If that didn't **jolt you awake** a cup of coffee might, but **a cup of joe** could become a luxury as climate change threatens coffee-growing regions. 1843, our sister magazine, **profiles** a scientist trying to save your morning brew in the surprisingly **buccaneering** world of wild coffee. -  

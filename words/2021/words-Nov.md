@@ -70,7 +70,6 @@ The **enigmatic** designer is **no stranger** to scandal.
 **OCD**: obsessive-compulsive disorder  
 **horoscope**  
 
-The **wisecrack** you believe is witty often is not.  
 **disarming**  
 **megaphone**  
 **latecomer**  

@@ -84,9 +84,13 @@ throng
 **shoulder**  
 
 ## Words Gallery  
+**meek, docile, obedient, submissive, tame**,   
+**wiseacre, wisecrack**.  
+**groin area**, **bamboo grove**.  
+**squeaky, creaky, squawk, screech, chirp**.   
+
 **Malarkey, baloney, phony, drivel**,  
 **leach, blench**   
-
 **reprehend, scold, rebuke, chide**,   
 **lewd, sleazy, perverted, depraved, devious**,  
 **shaft, shank, rod, axle, pulley, spindle**,   
@@ -116,17 +120,25 @@ throng
 **udder**  
 **Apparel**.  
 punctilio  
+jeremiad  
+preclude  
 
 ## Regular Recordings  
 
-Intelligence is **on tap** now so agency is even more important  
+From her **hardscrabble** beginnings to **glittering** **stardom**, Ms. Parton's life was the stuff of **make-believe**.  
+With her **voluptuous** figure, **sparkly** stage costumes and blond **bouffant** **wigs**, she was likened by the writer Chet Flippo to the Big Rock Candy Mountain, the Depression-era symbol of abundance. -  
+She was, **quintessentially**, a **uniter** of people.  
 
+The **wisecrack** you believe is witty often is not.  
+
+48 heavy **bronze** cannons and 16 smaller artillery arms.  
+Hundreds of **gilded** and painted **carvings** (of lions, Roman gods, emperors, and the like).  
+It came so close to **capsizing** right there at the dock that the admiral running the test aborted the procedure in fear that it would sink on the spot.  
+**In the aftermath** of the tragedy, a **tribunal** pointed fingers at the captain, the crew, and the builders, but no one looked at the true source of the failure. -    
+
+> Intelligence is **on tap** now so agency is even more important  
 
 **Countervailing** opinion.  
-
-The world’s most influential economist is oddly **unconvincing**. Daron Acemoglu is **revered**. Why?  
-The rest of the world should **take heed of** Mr Trump’s treatment of an ally.  
-
 
 ### Week 34   
 
@@ -152,11 +164,7 @@ Instead, a more prosperous, **bumptious** Turkey is **jangling** many nerves.
 She must suspect and guess and **chafe** and bear it all alone .  
 His wrists began to **chafe** against the cloth strips binding them.  
 
-
-
 -----  
-
-
 **True to form**, Ryan put the most optimistic spin he could on the situation.  
 **True to form**, after a jittery August it has spent recent weeks falling.  
 
@@ -283,6 +291,15 @@ We know the wait can be **unnerving**, but **rest assured** that the team is wor
 
 
 ### Economist Newsletter  
+
+A bill to punish Putin gives too much power to Donald Trump. **Walloping** the global trading system is no way to help Ukraine. -    
+A surprising comeback in Wisconsin is a **reprieve** for Democratic moderates. The party has narrowly dodged a socialist insurgency in a crucial swing state. -    
+Back in the days when Afghanistan was still a **ramshackle** democracy, I visited a hospital in **Kabul**.  
+One victim was married to a nurse, who was on duty when he arrived, horribly injured. (He is now **paraplegic**.) She was “coping”, a colleague told me, adding: “She’s one tough woman.”  
+**Ostracism** and sanctions have not worked. Less **squeamish** powers, such as Russia and China, are trying to pull Afghanistan into their orbit. -     
+
+The world’s most influential economist is oddly **unconvincing**. Daron Acemoglu is **revered**. Why?  
+The rest of the world should **take heed of** Mr Trump’s treatment of an ally.  
 
 The battle for Hugo Boss. - A British **retail magnate** tries to go **upmarket**. -  
 
