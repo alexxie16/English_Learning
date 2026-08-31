@@ -548,15 +548,6 @@ bellicose
 
 ---  
 
-**Slapdash**  
-   - **Definition**: Done hastily and carelessly; characterized by a lack of attention to detail.  
-   - **Common Usage**: Fairly common in informal contexts when describing poor workmanship or haphazard actions.  
-   - **Examples**:  
-     - The contractor’s slapdash work resulted in a number of issues that had to be fixed later.  
-   - **Alternatives**: Hasty, careless, superficial.  
-
----  
-
 **Imbroglio**  
 *   **Definition**: An extremely confused, complicated, or embarrassing situation. It often refers to a public entanglement or a messy dispute.  
 *   **Common Usage**: Less common in daily conversation. You're more likely to encounter it in news headlines, political commentary, literary works, or when describing complex and messy public affairs or personal conflicts.  

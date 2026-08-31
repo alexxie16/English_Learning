@@ -31,7 +31,6 @@ He never allowed his work to **impinge** on his private life.
 A few weeks of **aerobics** will **firm up** that **flabby** stomach.  
 We can give you more detail as our plans **firm up**.  
 
-**weaning baby**.  
 The press was accused of being **subservient** to the government.  
 The S&P 500, they're the **Crème de la crème**.  
 

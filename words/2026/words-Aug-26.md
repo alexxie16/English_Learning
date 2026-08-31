@@ -71,6 +71,8 @@ throng
 
 ## Verb Words  
 
+**flock**  
+
 **precede**  
 
 **dawn**  
@@ -122,8 +124,38 @@ throng
 punctilio  
 jeremiad  
 preclude  
+glom  
 
 ## Regular Recordings  
+
+**blemish, fleck, tarnish, stain**  
+
+This capability has long been considered sacrosanct and highly protected by the West.  
+We have been foreshadowing the desperate handwringing happening today in Washington, DC for more than two years.  
+
+You are **off for your game** you didn’t even get her phone number.   
+I hope I can **count on** your vote.  
+Five BIP editors this month writing a removal procedure from scratch because he'd made the role **untenable**.   
+good **riddance**.  
+
+I'm sure he'd be delightfully **taken aback** if you cleaned your apartment.  
+
+The two men managed to **elude** the police for six weeks. -    
+The suspect **eluded** a 12-hour **manhunt** before he was caught.  
+That's not automatically **improper**—the transactions were disclosed and subjected to independent review—but it creates an obvious question...  
+
+
+I was afraid they’d **slink away** quietly, but they've really committed to the most cringe **self immolation** possible. -    
+
+Million people will be **flocking in**.   
+Don't **sleep on** this country, it will surprise you.  
+
+**weaning baby**.  
+So you can **wean** yourself **off** of having fears!  
+
+But you'll notice, I didn't come home and **take it out on you**.  
+
+> My love was **contaminated**.   
 
 From her **hardscrabble** beginnings to **glittering** **stardom**, Ms. Parton's life was the stuff of **make-believe**.  
 With her **voluptuous** figure, **sparkly** stage costumes and blond **bouffant** **wigs**, she was likened by the writer Chet Flippo to the Big Rock Candy Mountain, the Depression-era symbol of abundance. -  
@@ -201,10 +233,7 @@ He would not **abase** himself by showing fear. -
 
 ---  
 
-
-
 The case against him was largely **circumstantial**.  
-
 
 ### Week 33   
 
@@ -320,6 +349,14 @@ The **maverick** scientist trying to save coffee from extinction.
 
 ## Words Explain   
 
+**Slapdash**  
+   - **Definition**: Done hastily and carelessly; characterized by a lack of attention to detail.  
+   - **Common Usage**: Fairly common in informal contexts when describing poor workmanship or haphazard actions.  
+   - **Examples**:  
+     - The contractor’s slapdash work resulted in a number of issues that had to be fixed later.  
+   - **Alternatives**: Hasty, careless, superficial.  
+
+---  
 
 **Snippy**  
    - **Definition**: Short-tempered or irritable; often characterized by sharp or rude comments.  
@@ -562,7 +599,9 @@ The **maverick** scientist trying to save coffee from extinction.
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
 Let's **cinch up**, let's punch the ball into the end zone and pass the clarity act.  
+But you'll notice, I didn't come home and **take it out on you**.  
 
+I'm sure he'd be delightfully **taken aback** if you cleaned your apartment.  
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
