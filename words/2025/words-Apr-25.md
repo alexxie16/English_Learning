@@ -575,11 +575,8 @@ We couldn't stay out there in that **desolation** another day.
 
 ### Question  
 
-indigent  
-indigenous  
 wampum??  
 delude, delusive.  
-delude, deceive, dishonest, fool  
 tutelage??  
 enamored??  
 elide??  
@@ -598,18 +595,11 @@ perfidy
 
 esperanto  
 
-coterie  
-
-
 cavalcade.  
 plumage.  
 
-irenic.  
+irenic  
 sallow  
-
-**volition**.  
-
-
 
 ## Conversation  
 > Happens in real life or audio/video that I can vivid recall with an imagery.  

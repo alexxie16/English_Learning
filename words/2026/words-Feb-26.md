@@ -277,7 +277,7 @@ Usually I'd say, **take them to the curb**
 
 > In the ring, our opponents can **gouge** us with their nails or **butt** us with their heads and leave a bruise, but we don’t denounce them for it or get upset with them or regard them from then on as violent types  
 
-You could argue the whole religious tradition is a technology designed to **inculpate** people with empathy. -   
+You could argue the whole religious tradition is a technology designed to **inculpate** people with empathy.    
 
 You can stand the ups and downs, and the **vagaries** of being wrong, I think it's a great area.  
 
@@ -480,7 +480,6 @@ When people talk about Bitcoin, they **lump Bitcoin with** crypto.
 
 We should want the USD to remain the world reserve currency status, it's **imperative**.  
 Usually I'd say, **take them to the curb**   
-You could argue the whole religious tradition is a technology designed to **inculpate** people with empathy.   
 
 > I would not take a no for answer.  
 

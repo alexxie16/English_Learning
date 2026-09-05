@@ -1,4 +1,4 @@
-## Regular  
+## The Usual  
 
 📘 **Study**  
 - ✍️ [Word Review](../../words-review.md)  
@@ -6,8 +6,7 @@
 - 💡 [New Words to Explain](#words-explain)  
 
 📚 **Vocabulary**  
-- 🧩 [Special Words](#special-words)  
-- 🔧 [Verb Words](#verb-words)  
+- 🧩 [Special Words](#special-words)  🔧 [Verb Words](#verb-words)  
 - 🖼️ [Words Gallery](#words-gallery)  
 
 📰 **Reading & Usage**  
@@ -16,7 +15,7 @@
 - ✨ [Interesting](#interesting)  
 - 🏛️ [Economist Newsletter](#economist-newsletter)  
 
-## Regular Recordings  
+## Weeks   
 - [Week 32](#week-32)  
 
 ------------------  
@@ -86,6 +85,9 @@ throng
 **shoulder**  
 
 ## Words Gallery  
+
+**cabal, coterie, clique, cadre, faction, clan**, **tribe**   
+
 **meek, docile, obedient, submissive, tame**,   
 **wiseacre, wisecrack**.  
 **groin area**, **bamboo grove**.  
@@ -119,21 +121,28 @@ throng
 
 ---  
 
-**udder**  
-**Apparel**.  
-punctilio  
-jeremiad  
-preclude  
-glom  
-
 ## Regular Recordings  
-
 **blemish, fleck, tarnish, stain**  
+**suet, tallow, lard, ghee**,   
 
-This capability has long been considered sacrosanct and highly protected by the West.  
-We have been foreshadowing the desperate handwringing happening today in Washington, DC for more than two years.  
+So many bad practices over the years and **culminated** in this mess. -    
 
-You are **off for your game** you didn’t even get her phone number.   
+> **Cavil**: To raise trivial and frivolous objection  
+
+This **wishy-washy** statement always made me felt uneasy.  
+
+The **caprice** of the world’s most powerful man has taken Canada to the brink of a disastrous trade war. -   
+It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Canada’s leader must use all his **guile** to **defuse** a grave threat to his country’s economy.  
+   
+Quantifying anger in American politics. - America is **awash** in **indignation**.  
+
+
+### Week 35   
+
+This capability has long been considered **sacrosanct** and highly protected by the West.  
+We have been **foreshadowing** the desperate **handwringing** happening today in Washington, DC for more than two years.  
+
+You are **off for your game** you didn't even get her phone number.     
 I hope I can **count on** your vote.  
 Five BIP editors this month writing a removal procedure from scratch because he'd made the role **untenable**.   
 good **riddance**.  
@@ -143,7 +152,6 @@ I'm sure he'd be delightfully **taken aback** if you cleaned your apartment.
 The two men managed to **elude** the police for six weeks. -    
 The suspect **eluded** a 12-hour **manhunt** before he was caught.  
 That's not automatically **improper**—the transactions were disclosed and subjected to independent review—but it creates an obvious question...  
-
 
 I was afraid they’d **slink away** quietly, but they've really committed to the most cringe **self immolation** possible. -    
 
@@ -343,11 +351,31 @@ Donald Trump is stalling for time in the war with Iran. The latest round of talk
 
 SpaceX is spending **gobs of money** to **refashion** itself as an AI company.  
 
-If that didn't **jolt you awake** a cup of coffee might, but **a cup of joe** could become a luxury as climate change threatens coffee-growing regions. 1843, our sister magazine, **profiles** a scientist trying to save your morning brew in the surprisingly **buccaneering** world of wild coffee. -  
+If that didn't **jolt you awake** a cup of coffee might, but **a cup of joe** could become a luxury as climate change threatens coffee-growing regions. 1843, our sister magazine, **profiles** a scientist trying to save your morning brew in the surprisingly **buccaneering** world of wild coffee.   
 
 The **maverick** scientist trying to save coffee from extinction.  
 
 ## Words Explain   
+
+fetid  
+**udder**  
+**Apparel**.  
+punctilio  
+jeremiad  
+preclude  
+glom  
+
+
+---  
+
+**Kitsch**  
+  - **Definition**: Art or objects considered in poor taste due to garishness but appreciated ironically.  
+  - **Common Usage**: Moderately common in discussions of art, design, or cultural critique.  
+  - **Examples**:   
+    - The room was filled with kitsch memorabilia from the 70s.  
+  - **Alternatives**: Tacky, gaudy, campy.  
+
+---  
 
 **Slapdash**  
    - **Definition**: Done hastily and carelessly; characterized by a lack of attention to detail.  

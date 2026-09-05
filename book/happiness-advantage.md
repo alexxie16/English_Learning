@@ -26,7 +26,7 @@ Scientists once thought happiness was almost completely **hereditary**.
 
 So I **dejectedly** pretended to fix my PowerPoint presentation.  
 momentary blips of positivity that **pepper** our lives each and every day.  
-But don’t worry, you don’t have to spend years in **sequestered**, **celibate** silence to experience a boost. -  
+But don’t worry, you don’t have to spend years in **sequestered**, **celibate** silence to experience a boost.   
 People who **flank** their computers with pictures of loved ones aren’t just decorating.  
 That delivering instructions in an angry, negative tone **handicaps** their employees before the task is even underway.  
 During a talk, one woman in the audience sat **scowling** at me the entire time.  

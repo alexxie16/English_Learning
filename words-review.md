@@ -27,7 +27,6 @@ Bad employees **pluck** the fruit of money trees and require **pruning**. -
 Being broke and a student of wealth, I couldn't **bottle** my curiosity. -  
 Yes, these people are still trading their time for money, but in an unprecedented **stratum** of value. -  
 After a few various **rants and raves** about the car, he **exclaimed**, “I gotta get as many pictures as possible cuz I'll never be able to afford one of these.” -  
-He looked like he was **canvassing** the room as if he was selling something. -  
 His **eyes popped out of their sockets**, and after he picked them off the table, he **scampered** away like a rat without his cheese. -  
 This language **spells** trouble. What would have convinced me otherwise? -  
 Sure, I would have enjoyed a quick **romp** of fun, but what about afterward? -  
@@ -39,7 +38,6 @@ Having a life partner who doesn't **ascribe to** your life's ideals and philosop
 
 ## happiness-advantage.md ##  
 book/happiness-advantage.md  
-But don’t worry, you don’t have to spend years in **sequestered**, **celibate** silence to experience a boost. -  
 Lowest marks in performance are generally led by commanders with a negative, controlling, and **aloof** **demeanor**. -  
 The second man wasn’t trying to be a **curmudgeon**—the unbearable heat was simply the only thing he could see. -  
 The best way to kick-start this is to start making a daily list of the good things in your job, your career, and your life. It may sound **hokey**, or ridiculously simple—and indeed the activity itself is simple—but over a decade of empirical studies has proven the profound effect it has on the way our brains are wired. -  
@@ -48,8 +46,18 @@ About some **snag** in your career, some frustration at your job, or some disapp
 Even our e-mails are more **brusque** and **impersonal**. -  
 One they had good **rapport** with, and one they didn’t. -  
 
+## words-Sep-26.md ##  
+words/2026/words-Sep-26.md  
+I like my community there because it’s small and generally free of both drama and nonsense. But small **precludes** mainstream cultural relevance. -  
+So many bad practices over the years and **culminated** in this mess. -  
+The **caprice** of the world’s most powerful man has taken Canada to the brink of a disastrous trade war. -  
+
 ## words-Aug-26.md ##  
 words/2026/words-Aug-26.md  
+So many bad practices over the years and **culminated** in this mess. -  
+The **caprice** of the world’s most powerful man has taken Canada to the brink of a disastrous trade war. -  
+The two men managed to **elude** the police for six weeks. -  
+I was afraid they’d **slink away** quietly, but they've really committed to the most cringe **self immolation** possible. -  
 With her **voluptuous** figure, **sparkly** stage costumes and blond **bouffant** **wigs**, she was likened by the writer Chet Flippo to the Big Rock Candy Mountain, the Depression-era symbol of abundance. -  
 **In the aftermath** of the tragedy, a **tribunal** pointed fingers at the captain, the crew, and the builders, but no one looked at the true source of the failure. -  
 It never feels **lewd** and **lecherous**. -  
@@ -65,13 +73,11 @@ A surprising comeback in Wisconsin is a **reprieve** for Democratic moderates. T
 **Ostracism** and sanctions have not worked. Less **squeamish** powers, such as Russia and China, are trying to pull Afghanistan into their orbit. -  
 The battle for Hugo Boss. - A British **retail magnate** tries to go **upmarket**. -  
 If you woke up with a clear head, I expect you’re one of those **priggish**, **strait-laced** Gen Zs. -  
-If that didn't **jolt you awake** a cup of coffee might, but **a cup of joe** could become a luxury as climate change threatens coffee-growing regions. 1843, our sister magazine, **profiles** a scientist trying to save your morning brew in the surprisingly **buccaneering** world of wild coffee. -  
 
 ## words-Jul-26.md ##  
 words/2026/words-Jul-26.md  
 Bitcoin continues its Sideways Summer **trudge** moving between 63 and 66. -  
 As Sun Tzu wrote, “to **subdue** the enemy without fighting is the **acme** of skill.” Violent war is a **last resort**. -  
-A magic **amulet** that will grant her three wishes. -  
 He **espouses** a **fist-thumping** view of Russian “sovereignty” that would dismay its neighbours, were they not already dismayed. -  
 Yet its national politics have not in living memory been as ugly or as **venal**. -  
 
@@ -90,4 +96,3 @@ a **cabal** of central banks. -
 ## words-Feb-26.md ##  
 words/2026/words-Feb-26.md  
 Use your **circumstance** to become even better than otherwise would be, and **revel** in your success when you achieve it. -  
-You could argue the whole religious tradition is a technology designed to **inculpate** people with empathy. -  

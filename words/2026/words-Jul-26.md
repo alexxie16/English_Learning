@@ -298,7 +298,7 @@ What's the **occasion**?
 
 ### Week 27  
 
-A magic **amulet** that will grant her three wishes. -    
+A magic **amulet** that will grant her three wishes.   
 
 It's an ignorant, **myopic** question.  
 Has Saylor lost his **plot**.  

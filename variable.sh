@@ -34,6 +34,7 @@ export files=(
   "./book/happiness-advantage.md"
   "./book/blocksize-war.md"
   "./book/poor-charlie.md"
+  "./words/2026/words-Sep-26.md"
   "./words/2026/words-Aug-26.md"
   "./words/2026/words-Jul-26.md"
   "./words/2026/words-Jun-26.md"

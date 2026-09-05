@@ -107,7 +107,6 @@ diatribe, tirade, rant,
 **out of the woods, off the hook**.  
 **subservient, deferential, submissive, obedient**,   
 **depraved, perverted, sadistic, sinful, deranged, deviant, despicable**.  
-**cabal, coterie, clique, cadre, faction, clan**,   
 **hamstring, hinder, hamper, obstruct, impede, thwart**  
 
 **poofy, faggy, faggot**.   

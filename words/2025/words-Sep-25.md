@@ -238,13 +238,6 @@ E.g.
       - There was nothing untoward in his behavior at the party.  
     - **Alternatives**: Inappropriate, inconvenient, unseemly.  
 
-12. **Kitsch**  
-    - **Definition**: Art or objects considered in poor taste due to garishness but appreciated ironically.  
-    - **Common Usage**: Moderately common in discussions of art, design, or cultural critique.  
-    - **Examples**:   
-      - The room was filled with kitsch memorabilia from the 70s.  
-    - **Alternatives**: Tacky, gaudy, campy.  
-
 13. **Wayward**  
     - **Definition**: Difficult to control or predict due to unusual behavior.  
     - **Common Usage**: Moderately common, used to describe unpredictable or rebellious behavior.  

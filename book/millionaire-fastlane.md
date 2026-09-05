@@ -163,7 +163,7 @@ Yes, these people are still trading their time for money, but in an unprecedente
 
 Advising a Slowlaner to “pay yourself first” is like advising a **quadriplegic** to climb a **flight of stairs**. It's **futile**.  
 After a few various **rants and raves** about the car, he **exclaimed**, “I gotta get as many pictures as possible cuz I'll never be able to afford one of these.” -    
-He looked like he was **canvassing** the room as if he was selling something. -    
+He looked like he was **canvassing** the room as if he was selling something.   
 He eventually got to our table and unleashed the **uncouth**, “Hey, how would you like to earn $ 10,000 per month?”  
 His **eyes popped out of their sockets**, and after he picked them off the table, he **scampered** away like a rat without his cheese. -    
 While I wish the man the best marriage, I see **flaccid words** that lack confidence.  
