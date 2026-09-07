@@ -61,9 +61,13 @@ throng
 
 ## Regular Recordings  
 
-dredge, drudge,   
+**dredge, drudge**,   
 
-prosperous, auspicious, propitious   
+**prosperous, auspicious, propitious**   
+
+munchkin, goblin,  
+
+Clouds of dust **billowed out** as the cars passed. -  
 
 I like my community there because it’s small and generally free of both drama and nonsense. But small **precludes** mainstream cultural relevance. -    
 E.g. **Abdication** is **precluded** by the lack of a possible successor.   
@@ -86,23 +90,82 @@ So many bad practices over the years and **culminated** in this mess. -
 
 This **wishy-washy** statement always made me felt uneasy.  
 
-The **caprice** of the world’s most powerful man has taken Canada to the brink of a disastrous trade war. -   
-It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Canada’s leader must use all his **guile** to **defuse** a grave threat to his country’s economy.  
-   
-Quantifying anger in American politics. - America is **awash** in **indignation**.  
-
 
 ### Economist Newsletter  
+Quantifying anger in American politics. - America is **awash** in **indignation**.  
+
+The **caprice** of the world’s most powerful man has taken Canada to the brink of a disastrous trade war. -   
+It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Canada’s leader must use all his **guile** to **defuse** a grave threat to his country’s economy.  
 
 ## Words Explain   
 
-fetid  
-**udder**  
-**Apparel**.  
-punctilio  
-jeremiad  
-preclude  
-glom  
+**Fetid**  
+   - **Definition**: Having a strong, unpleasant smell; rotten or foul.  
+   - **Common Usage**: Used to describe strong, offensive odors; not very common in everyday conversation.  
+   - **Examples**:  
+     - The fetid odor from the garbage made the entire room unbearable.  
+     - As they walked past the swamp, they were hit by a fetid stench.  
+   - **Alternatives**: Putrid, rancid, foul.  
+
+---  
+
+**Udder**  
+   - **Definition**: The mammary gland of female cattle and some other mammals, which produces milk.  
+   - **Common Usage**: Commonly used in agricultural contexts and discussions about dairy farming, less common in everyday conversation.  
+   - **Examples**:  
+     - The farmer inspected the cow's udder for any signs of infection.  
+     - Milk is harvested from the udder of cows in dairy operations.  
+   - **Alternatives**: N/A (specific term with few direct synonyms).  
+
+---  
+
+**Apparel**  
+   - **Definition**: Clothing, attire, or garments.  
+   - **Common Usage**: Commonly used, especially in retail and fashion contexts.  
+   - **Examples**:  
+     - She bought a new apparel for the upcoming winter season.  
+     - The store specializes in high-end athletic apparel.  
+   - **Alternatives**: Clothing, garments, attire.  
+
+---  
+
+**Punctilio**  
+   - **Definition**: A fine point of etiquette or conduct; a strict observance of formalities or rules.  
+   - **Common Usage**: Rarely used in daily life; more common in formal writing or discussions about etiquette or ceremonies.  
+   - **Examples**:  
+     - The meeting was delayed due to the punctilio of the organizer, who insisted on following the agenda strictly.  
+     - He was known for his punctilio in social settings, always maintaining proper decorum.  
+   - **Alternatives**: Etiquette, protocol, formality.  
+
+---  
+
+**Jeremiad**  
+   - **Definition**: A long, mournful complaint or lamentation; a list of woes.  
+   - **Common Usage**: Quite rare in everyday conversation; typically found in literary contexts or discussions on social issues.  
+   - **Examples**:  
+     - The article was a jeremiad about the state of the environment and the lack of action taken by leaders.  
+     - His speech turned into a jeremiad, highlighting the difficulties faced by the community.  
+   - **Alternatives**: Lament, diatribe, tirade.  
+
+---  
+
+**Preclude**  
+   - **Definition**: To make something impossible; to prevent something from happening.  
+   - **Common Usage**: Fairly common in both formal and informal contexts, especially in writing.  
+   - **Examples**:  
+     - The heavy rain might preclude the outdoor event from taking place.  
+     - His prior commitments will preclude him from attending the meeting.  
+   - **Alternatives**: Prevent, hinder, exclude.  
+
+---  
+
+**Glom**  
+   - **Definition**: To grab, to take hold of; often used informally to mean "to steal" or "to take something."  
+   - **Common Usage**: Informal and somewhat regional; more common in casual conversation.  
+   - **Examples**:  
+     - She managed to glom that last piece of cake before anyone else could get to it.  
+     - He tried to glom onto some of the free samples at the event.  
+   - **Alternatives**: Grab, seize, take.  
 
 
 ## Conversation  
@@ -111,4 +174,5 @@ glom
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
 
+While such decisions might seem too **erudite** for your taste, you will make them either consciously or **subliminally**, and they will be very important.  
 

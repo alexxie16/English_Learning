@@ -22,30 +22,6 @@
 
 ### Words with Questions  
 
-brusque  
-
-marquee  
-
-smarmy  
-
-morose  
-
-revel  
-
-psoriasis  
-
-coquette  
-
-pillory  
-
-upheaval   
-
-throng  
-
-**clammy**  
-
-**calumnies**  
-
 ## Special Words  
 
 **ingratiating**  
@@ -85,6 +61,8 @@ throng
 **shoulder**  
 
 ## Words Gallery  
+**blemish, fleck, tarnish, stain**  
+**suet, tallow, lard, ghee**,   
 
 **cabal, coterie, clique, cadre, faction, clan**, **tribe**   
 
@@ -122,19 +100,6 @@ throng
 ---  
 
 ## Regular Recordings  
-**blemish, fleck, tarnish, stain**  
-**suet, tallow, lard, ghee**,   
-
-So many bad practices over the years and **culminated** in this mess. -    
-
-> **Cavil**: To raise trivial and frivolous objection  
-
-This **wishy-washy** statement always made me felt uneasy.  
-
-The **caprice** of the world’s most powerful man has taken Canada to the brink of a disastrous trade war. -   
-It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Canada’s leader must use all his **guile** to **defuse** a grave threat to his country’s economy.  
-   
-Quantifying anger in American politics. - America is **awash** in **indignation**.  
 
 
 ### Week 35   
@@ -329,6 +294,11 @@ We know the wait can be **unnerving**, but **rest assured** that the team is wor
 
 ### Economist Newsletter  
 
+The **caprice** of the world’s most powerful man has taken Canada to the brink of a disastrous trade war. -   
+It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Canada’s leader must use all his **guile** to **defuse** a grave threat to his country’s economy.  
+   
+Quantifying anger in American politics. - America is **awash** in **indignation**.  
+
 A bill to punish Putin gives too much power to Donald Trump. **Walloping** the global trading system is no way to help Ukraine. -    
 A surprising comeback in Wisconsin is a **reprieve** for Democratic moderates. The party has narrowly dodged a socialist insurgency in a crucial swing state. -    
 Back in the days when Afghanistan was still a **ramshackle** democracy, I visited a hospital in **Kabul**.  
@@ -356,17 +326,6 @@ If that didn't **jolt you awake** a cup of coffee might, but **a cup of joe** co
 The **maverick** scientist trying to save coffee from extinction.  
 
 ## Words Explain   
-
-fetid  
-**udder**  
-**Apparel**.  
-punctilio  
-jeremiad  
-preclude  
-glom  
-
-
----  
 
 **Kitsch**  
   - **Definition**: Art or objects considered in poor taste due to garishness but appreciated ironically.  
@@ -626,13 +585,24 @@ glom
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
-Let's **cinch up**, let's punch the ball into the end zone and pass the clarity act.  
 But you'll notice, I didn't come home and **take it out on you**.  
+
 
 I'm sure he'd be delightfully **taken aback** if you cleaned your apartment.  
 
+Let's **cinch up**, let's punch the ball into the end zone and pass the clarity act.  
+
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
+
+With her **voluptuous** figure, **sparkly** stage costumes and blond **bouffant** **wigs**, she was likened by the writer Chet Flippo to the Big Rock Candy Mountain, the Depression-era symbol of abundance.   
+
+This **wishy-washy** statement always made me felt uneasy.  
+Million people will be **flocking in**.   
+Don't **sleep on** this country, it will surprise you.  
+
+**weaning baby**.  
+So you can **wean** yourself **off** of having fears!  
 
 You've been there since the start, you were an early advocate, **acolyte** of crypto.  
 Process cannot be **outsourced**, because process **dawns** wisdom, personal growth, strength, and events.  
