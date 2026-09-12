@@ -24,12 +24,9 @@ Chuma **trolls up** the town square **commandeering** a 25-foot **contraption**,
 After a short **trawl** to Chuma's barren pyramid plot, Azur's suspicions are confirmed. -  
 Producers are **indigenous** to the Fastlane roadmap. -  
 Bad employees **pluck** the fruit of money trees and require **pruning**. -  
-Being broke and a student of wealth, I couldn't **bottle** my curiosity. -  
 Yes, these people are still trading their time for money, but in an unprecedented **stratum** of value. -  
 After a few various **rants and raves** about the car, he **exclaimed**, “I gotta get as many pictures as possible cuz I'll never be able to afford one of these.” -  
-His **eyes popped out of their sockets**, and after he picked them off the table, he **scampered** away like a rat without his cheese. -  
 This language **spells** trouble. What would have convinced me otherwise? -  
-Sure, I would have enjoyed a quick **romp** of fun, but what about afterward? -  
 Before they could even pursue flying, the Wright brothers had to break free of society's **natural headwind**-the natural social conditioning that **impregnates** all young minds. -  
 Time passes, dreams die, and what remains? An old **withered** body **forlorn** for what could have been. -  
 Think of the relationships in your life like an **army platoon** readying for battle. -  
@@ -48,14 +45,12 @@ One they had good **rapport** with, and one they didn’t. -
 
 ## words-Sep-26.md ##  
 words/2026/words-Sep-26.md  
+Clouds of dust **billowed out** as the cars passed. -  
 I like my community there because it’s small and generally free of both drama and nonsense. But small **precludes** mainstream cultural relevance. -  
 So many bad practices over the years and **culminated** in this mess. -  
-The **caprice** of the world’s most powerful man has taken Canada to the brink of a disastrous trade war. -  
 
 ## words-Aug-26.md ##  
 words/2026/words-Aug-26.md  
-So many bad practices over the years and **culminated** in this mess. -  
-The **caprice** of the world’s most powerful man has taken Canada to the brink of a disastrous trade war. -  
 The two men managed to **elude** the police for six weeks. -  
 I was afraid they’d **slink away** quietly, but they've really committed to the most cringe **self immolation** possible. -  
 With her **voluptuous** figure, **sparkly** stage costumes and blond **bouffant** **wigs**, she was likened by the writer Chet Flippo to the Big Rock Candy Mountain, the Depression-era symbol of abundance. -  
@@ -67,8 +62,7 @@ He would not **abase** himself by showing fear. -
 A better tip still is to **get off your bottom** and **strut** (or even **traipse**) around the office. -  
 Her mother was a dedicated **apostle** of healthy eating. -  
 Full credit to him for that, and it seems he did hustle and **derive** useful lessons from the experience. -  
-Yes, of course. Aurelius **espouses** a **perversion** of Stoic philosophy as justification for his crimes. -  
-A bill to punish Putin gives too much power to Donald Trump. **Walloping** the global trading system is no way to help Ukraine. -  
+The **caprice** of the world’s most powerful man has taken Canada to the brink of a disastrous trade war. -  
 A surprising comeback in Wisconsin is a **reprieve** for Democratic moderates. The party has narrowly dodged a socialist insurgency in a crucial swing state. -  
 **Ostracism** and sanctions have not worked. Less **squeamish** powers, such as Russia and China, are trying to pull Afghanistan into their orbit. -  
 The battle for Hugo Boss. - A British **retail magnate** tries to go **upmarket**. -  
@@ -83,14 +77,11 @@ Yet its national politics have not in living memory been as ugly or as **venal**
 
 ## words-Jun-26.md ##  
 words/2026/words-Jun-26.md  
-**Saint** or sinner: Antoni Gaudí’s polarising style. A hundred years after his death, the Spanish architect is both loved and **reviled**. -  
 
 ## words-May-26.md ##  
 words/2026/words-May-26.md  
 Please donate whatever you can to xxx. We have to get this **albatross** from **around our neck**. -  
 
-## words-Mar-26.md ##  
-words/2026/words-Mar-26.md  
 
 ## words-Feb-26.md ##  
 words/2026/words-Feb-26.md  

@@ -47,10 +47,18 @@ throng
 
 ## Special Words  
 
+**fastidious**  
+
 ## Verb Words  
+
+a verb word Saylor said in the end   
+
 
 
 ## Words Gallery  
+
+**Mesmerize, enthral, enamor, dazzle, spellbind, spellbound, captivate, possess, charm**  
+
 **blemish, fleck, tarnish, stain**  
 **suet, tallow, lard, ghee**,   
 
@@ -61,11 +69,37 @@ throng
 
 ## Regular Recordings  
 
+trudge, drudge, dredge, trek,  
+
+mend ??  
+
+
+I would no longer view an October upgrade as **a long shot**. B- → B is quite plausible.  
+
+
+
+That month the board approved the 10th Series Stock Acquisition Rights, a paid stock option plan for seven officers and employees, and shareholders **waved it through** in February 2023.  
+
+Your **dereliction** of duty is obvious that you allocated only $1.5M (maybe even 0) to secure $5B assets.  
+This is a **flagrant** neglect of security and a sign of complete mismanagement.  
+If anything, many executives and senior researchers will **couch** their phrasing in the press to sound sensible.  
+
+
+### Acme vs Apex   
+The eagle is an **apex** predator.  
+The climbers finally reached the **apex** of the mountain.  
+She reached the **acme** of her career in her 40s.  
+That restaurant was once considered the **acme** of fine dining.  
+
+### Week 36  
+
 **dredge, drudge**,   
-
 **prosperous, auspicious, propitious**   
+**munchkin, goblin**,  
 
-munchkin, goblin,  
+**Herculean task**.  
+
+The national security tool won't **lapse** Thursday night, but lawmakers are **punting** another thorny fight just weeks down the road.  
 
 Clouds of dust **billowed out** as the cars passed. -  
 
@@ -90,14 +124,17 @@ So many bad practices over the years and **culminated** in this mess. -
 
 This **wishy-washy** statement always made me felt uneasy.  
 
-
 ### Economist Newsletter  
 Quantifying anger in American politics. - America is **awash** in **indignation**.  
 
-The **caprice** of the world’s most powerful man has taken Canada to the brink of a disastrous trade war. -   
 It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Canada’s leader must use all his **guile** to **defuse** a grave threat to his country’s economy.  
 
 ## Words Explain   
+
+
+Muck  
+
+---   
 
 **Fetid**  
    - **Definition**: Having a strong, unpleasant smell; rotten or foul.  
@@ -173,6 +210,12 @@ It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Ca
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
+
+Quantifying anger in American politics. - America is **awash** in **indignation**.  
+
+He kept Apple’s **temperamental** actors performing well, and he avoided stepping into the **limelight**.  
+Imperialism has not been able to **subjugate** China.  
+This **wishy-washy** statement always made me felt uneasy.  
 
 While such decisions might seem too **erudite** for your taste, you will make them either consciously or **subliminally**, and they will be very important.  
 

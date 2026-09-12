@@ -256,7 +256,7 @@ I was clearly **smitten** by xxx.
 It’s a sign of investment banks’ **abasement** before the likes of Elon Musk and the bosses of the AI companies who plan to follow him onto the market.  
 U.S. strikes Iran in response to **downed** helicopter.  
 America’s mayors join the **scrabble** to become influencers. A dispatch from Long Beach, California.  
-**Saint** or sinner: Antoni Gaudí’s polarising style. A hundred years after his death, the Spanish architect is both loved and **reviled**. -    
+**Saint** or sinner: Antoni Gaudí’s polarising style. A hundred years after his death, the Spanish architect is both loved and **reviled**.   
 
 I do think a lot of the criticism of BTC TCs is just **missing the forest for the trees**. Agree with the **thrust** of your argument here.  
 He **enlivened** his **editorials** with **barbed thrusts** at politicians.  

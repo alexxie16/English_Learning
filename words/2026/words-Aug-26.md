@@ -263,7 +263,7 @@ In newspapers and film production, a **slug** is a short label identifying a sto
 
 ---  
 
-Yes, of course. Aurelius **espouses** a **perversion** of Stoic philosophy as justification for his crimes. -    
+Yes, of course. Aurelius **espouses** a **perversion** of Stoic philosophy as justification for his crimes.   
 Now you're got in the **swing of things** and learn **the ropes**.  
 
 Can the **landmark** crypto law pass before the Senate goes on summer break?  
@@ -299,7 +299,7 @@ It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Ca
    
 Quantifying anger in American politics. - America is **awash** in **indignation**.  
 
-A bill to punish Putin gives too much power to Donald Trump. **Walloping** the global trading system is no way to help Ukraine. -    
+A bill to punish Putin gives too much power to Donald Trump. **Walloping** the global trading system is no way to help Ukraine.   
 A surprising comeback in Wisconsin is a **reprieve** for Democratic moderates. The party has narrowly dodged a socialist insurgency in a crucial swing state. -    
 Back in the days when Afghanistan was still a **ramshackle** democracy, I visited a hospital in **Kabul**.  
 One victim was married to a nurse, who was on duty when he arrived, horribly injured. (He is now **paraplegic**.) She was “coping”, a colleague told me, adding: “She’s one tough woman.”  

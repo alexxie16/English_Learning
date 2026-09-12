@@ -151,7 +151,7 @@ Unit profit is also **pliable**. I could experiment with increased prices or new
 if your company stagnates and net income starts to erode, so will the corresponding asset value.  
 I streamlined operations, which created **passivity**.  
 Bad employees **pluck** the fruit of money trees and require **pruning**. -    
-Being broke and a student of wealth, I couldn't **bottle** my curiosity. -    
+Being broke and a student of wealth, I couldn't **bottle** my curiosity.   
 Wow. This guy couldn't have been much older than I and he was already retired and **living large**!  
 The next few times I **chauffeured** the man, I **eavesdropped** on his conversations hoping to catch a **tasty tidbit** of the rich.  
 I **impugned** “compound interest” as an impotent wealth accelerator because of its attachment to time.  
@@ -165,10 +165,10 @@ Advising a Slowlaner to “pay yourself first” is like advising a **quadripleg
 After a few various **rants and raves** about the car, he **exclaimed**, “I gotta get as many pictures as possible cuz I'll never be able to afford one of these.” -    
 He looked like he was **canvassing** the room as if he was selling something.   
 He eventually got to our table and unleashed the **uncouth**, “Hey, how would you like to earn $ 10,000 per month?”  
-His **eyes popped out of their sockets**, and after he picked them off the table, he **scampered** away like a rat without his cheese. -    
+His **eyes popped out of their sockets**, and after he picked them off the table, he **scampered** away like a rat without his cheese.   
 While I wish the man the best marriage, I see **flaccid words** that lack confidence.  
 This language **spells** trouble. What would have convinced me otherwise? -    
-Sure, I would have enjoyed a quick **romp** of fun, but what about afterward? -  
+Sure, I would have enjoyed a quick **romp** of fun, but what about afterward?   
 Your choices **unearth** those roads, and they are either impressive shortcuts or perilous detours.  
 Being the youngest of three siblings, you can bet I was the subject of some **vile** comments.  
 Before they could even pursue flying, the Wright brothers had to break free of society's **natural headwind**-the natural social conditioning that **impregnates** all young minds. -    

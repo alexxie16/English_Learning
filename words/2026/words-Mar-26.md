@@ -168,7 +168,7 @@ The Neo’s **citrus** is a **beguiling** **colorway**. Everyone I've shown it t
 
 ---   
 
-a **cabal** of central banks. -   
+a **cabal** of central banks.    
 
 This is basically Parsley **pesto** and accompanies the large steak you've just ordered.  
 Export tax **rebate** system.  
