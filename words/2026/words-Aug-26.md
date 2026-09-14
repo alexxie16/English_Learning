@@ -187,7 +187,7 @@ His wrists began to **chafe** against the cloth strips binding them.
 He was **affable** at one moment, **choleric** the next. -  
 Does study of stoicism risk **dulling** positive emotions?    
 Fuel the habit **bonfire**.  
-He would not **abase** himself by showing fear. -    
+He would not **abase** himself by showing fear.   
 
 ---  
 

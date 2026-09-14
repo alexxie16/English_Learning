@@ -9,11 +9,15 @@ Improving English vocabulary for a non native-speaker is taxing and time-consumi
 
 [Words Review](./words-review.md)
 
-[The Blocksize War](./book/blocksize-war.md)
+## Books
+
+[A guide to good life](/book/guide-to-good-life.md)
+
+[Millionaire Fastlane](/book/millionaire-fastlane.md)
 
 [The happiness advantage](./book/happiness-advantage.md)
 
-[Millionaire Fastlane](/book/millionaire-fastlane.md)
+[The Blocksize War](./book/blocksize-war.md)
 
 ## 2026
 

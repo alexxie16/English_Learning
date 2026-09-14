@@ -59,7 +59,7 @@ economic **whiplash**
 Unable to predict where the financial tsunami would head next, they were **straitjacketed** by despair and incapable of moving forward.  
 While others gather their **wits**, capitalize on their strengths, and forge ahead.  
 The best leaders are the ones who show their true colors not during the **banner years**, but during such times of struggle.  
-About some **snag** in your career, some frustration at your job, or some disappointment in your personal life, remember that there is always a Third Path upwards. -    
+About some **snag** in your career, some frustration at your job, or some disappointment in your personal life, remember that there is always a Third Path upwards.   
 
 ### PRINCIPLE # 5: THE ZORRO CIRCLE  
 

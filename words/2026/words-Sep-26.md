@@ -54,7 +54,6 @@ throng
 a verb word Saylor said in the end   
 
 
-
 ## Words Gallery  
 
 **Mesmerize, enthral, enamor, dazzle, spellbind, spellbound, captivate, possess, charm**  
@@ -73,10 +72,28 @@ trudge, drudge, dredge, trek,
 
 mend ??  
 
+glint, gleam, shimmer, glitter  
+
+lumbar, lumber, slumber,   
+
+calamity, catastrophe, etc   
+
+Tesla was rubbing shoulders with the big tech companies – Apple, Microsoft, Alphabet and Amazon.  
+
+
+
+If you hang back and stay cool, the woman come back to you.  
+
+The speaker was regrettably indisposed.  
+
+lumbar vertebra.  
+backache in the lumbar region.  
+
+
+I'm really sorry, but I seem to have **misplaced** your scarf.  
+Why does the author say some experts' anxiety seems **misplaced**?  
 
 I would no longer view an October upgrade as **a long shot**. B- → B is quite plausible.  
-
-
 
 That month the board approved the 10th Series Stock Acquisition Rights, a paid stock option plan for seven officers and employees, and shareholders **waved it through** in February 2023.  
 

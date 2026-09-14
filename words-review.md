@@ -1,3 +1,8 @@
+## guide-to-good-life.md ##  
+book/guide-to-good-life.md  
+But as children grow older, they **grow jaded**. -  
+But more to the point, it seems unlikely that a Stoic will gain tranquility as a result of entertaining such thoughts. **To the contrary**, he is likely to end up **glum** and anxiety-ridden. -  
+
 ## millionaire-fastlane.md ##  
 book/millionaire-fastlane.md  
 Our old Dodge Duster started **billowing** smoke and **clanked** to a stop. -  
@@ -39,7 +44,6 @@ Lowest marks in performance are generally led by commanders with a negative, con
 The second man wasn’t trying to be a **curmudgeon**—the unbearable heat was simply the only thing he could see. -  
 The best way to kick-start this is to start making a daily list of the good things in your job, your career, and your life. It may sound **hokey**, or ridiculously simple—and indeed the activity itself is simple—but over a decade of empirical studies has proven the profound effect it has on the way our brains are wired. -  
 I was met with **ashen** faces and utter silence. -  
-About some **snag** in your career, some frustration at your job, or some disappointment in your personal life, remember that there is always a Third Path upwards. -  
 Even our e-mails are more **brusque** and **impersonal**. -  
 One they had good **rapport** with, and one they didn’t. -  
 
@@ -58,7 +62,6 @@ With her **voluptuous** figure, **sparkly** stage costumes and blond **bouffant*
 It never feels **lewd** and **lecherous**. -  
 And of course, they rightly **impugn** all meat, not just "red" meat. -  
 He was **affable** at one moment, **choleric** the next. -  
-He would not **abase** himself by showing fear. -  
 A better tip still is to **get off your bottom** and **strut** (or even **traipse**) around the office. -  
 Her mother was a dedicated **apostle** of healthy eating. -  
 Full credit to him for that, and it seems he did hustle and **derive** useful lessons from the experience. -  
@@ -75,13 +78,9 @@ As Sun Tzu wrote, “to **subdue** the enemy without fighting is the **acme** of
 He **espouses** a **fist-thumping** view of Russian “sovereignty” that would dismay its neighbours, were they not already dismayed. -  
 Yet its national politics have not in living memory been as ugly or as **venal**. -  
 
-## words-Jun-26.md ##  
-words/2026/words-Jun-26.md  
-
 ## words-May-26.md ##  
 words/2026/words-May-26.md  
 Please donate whatever you can to xxx. We have to get this **albatross** from **around our neck**. -  
-
 
 ## words-Feb-26.md ##  
 words/2026/words-Feb-26.md  
