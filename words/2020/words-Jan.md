@@ -349,8 +349,6 @@ How Our Government Is Trying To **Gaslight** Us into A War With Iran
 They commit a lot of acts of **jihad** against Americans in a wheel they call us **infidels**.  
 We need to **sever** those ties with **petro-dollar**  
 
-has sparked a **furore** over the legality and the impact of his assassination  
-
 I think the system is **slanted** against us.  
 Stop **manhandle** my intern. That's my job  
 **medley** relay  

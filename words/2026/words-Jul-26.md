@@ -100,7 +100,6 @@ NA
 
 **hyena, dingo, coyote**,   
 **deliverance, affordance**,   
-**scrawny, skinny, slender, slim**  
 **altercat, quarrel, spat, dispute, feud**,   
 **immaculate, meticulous, impeccable, exquisite, unbeatable, flawless**.  
 **simple-minded, doofus, fathead, knucklehead**  
@@ -232,7 +231,7 @@ A **vast** **funeral procession** is making its way through the Thai capital Ban
 ### Ray Dalio, The Tribute System   
 
 Believe me, I understand the **pull**. But I’ve spent over thirty years doing one kind of work, helping people discover what their minds are actually capable of, and it’s taught me something I would stake everything on: There is far more to human potential than any of us were ever told.  
-As Sun Tzu wrote, “to **subdue** the enemy without fighting is the **acme** of skill.” Violent war is a **last resort**. -    
+As Sun Tzu wrote, “to **subdue** the enemy without fighting is the **acme** of skill.” Violent war is a **last resort**.   
 It also forced Chinese leaders to recognize the independence of Korea (which soon fell under Japanese **domination**) and pay large **indemnities**.  
 Cities were devastated, millions died, and atrocities such as the Nanjing Massacre became **enduring** symbols of national trauma.  
 More precisely, they view it as a **renegade** province that is building up its military with American support in order to remain independent.  
@@ -342,7 +341,7 @@ Show a liberal a Lime bike and he will show you his soul. Are the e-bikes a **pa
 Is Donald Trump serious in declaring the **ceasefire** with Iran over? Iran’s ultra-nationalist new leaders may welcome his **bluster**.  
 The world is making **heady progress** in the fight against dementia. **Incidence** among the elderly is falling fast.  
 What he says is often obscure or **wrapped up in parables**, no doubt because **plain speaking** in Russia is so dangerous.  
-He **espouses** a **fist-thumping** view of Russian “sovereignty” that would dismay its neighbours, were they not already dismayed. -    
+He **espouses** a **fist-thumping** view of Russian “sovereignty” that would dismay its neighbours, were they not already dismayed.   
 
 Professors are **sounding the alarm**: first-year students are startlingly unprepared for university and college courses.  
 The Economist ran some numbers, and found that 8% of learners in **tertiary education** tested no better than what is expected of ten-year-olds for literacy.  
@@ -374,7 +373,7 @@ Brazilians are **going gaga** for Chinese brands. They think China has better te
 Crowds would gather in the streets of our neighbourhood, flags would appear on every **front porch** and fireworks would **illuminate** the sky.   
 Journalists are **predisposed** to point out **cracks in this picture**: times when Americans, being human, have not lived up to their ideals.  
 So I warmly **concur** with our cover package this week wishing the United States a happy 250th birthday.  
-Yet its national politics have not in living memory been as ugly or as **venal**. -    
+Yet its national politics have not in living memory been as ugly or as **venal**.   
 
 ## Words Explain   
 

@@ -246,7 +246,7 @@ Satoshi is clearly being explicitly **deferential** to the wishes of users, and 
 
 **shoot from hip**.  
 
-Use your **circumstance** to become even better than otherwise would be, and **revel** in your success when you achieve it. -    
+Use your **circumstance** to become even better than otherwise would be, and **revel** in your success when you achieve it.   
 
 **A grand gesture**.  
 

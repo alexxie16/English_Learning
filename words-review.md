@@ -2,6 +2,12 @@
 book/guide-to-good-life.md  
 But as children grow older, they **grow jaded**. -  
 But more to the point, it seems unlikely that a Stoic will gain tranquility as a result of entertaining such thoughts. **To the contrary**, he is likely to end up **glum** and anxiety-ridden. -  
+We have it entirely within our power, for example, to prevent **viciousness** and **cupidity** from finding a home in our soul. -  
+Marcus recommends that when our practice **falls short** of Stoic **precepts**, we should not become **despondent** and certainly should not give up our attempts to practice Stoicism; -  
+The Stoics’ advocacy of sexual reserve will sound **prudish** to modern readers, but they had a point. -  
+The political correctness movement has some **untoward** side effects. -  
+Although ancient Romans normally went out in public wearing shoes and a **tunic**, Cato wore neither. -  
+Even those who are old and **feeble** can read the Stoics and reflect on their writings. -  
 
 ## millionaire-fastlane.md ##  
 book/millionaire-fastlane.md  
@@ -74,14 +80,9 @@ If you woke up with a clear head, I expect you’re one of those **priggish**, *
 ## words-Jul-26.md ##  
 words/2026/words-Jul-26.md  
 Bitcoin continues its Sideways Summer **trudge** moving between 63 and 66. -  
-As Sun Tzu wrote, “to **subdue** the enemy without fighting is the **acme** of skill.” Violent war is a **last resort**. -  
-He **espouses** a **fist-thumping** view of Russian “sovereignty” that would dismay its neighbours, were they not already dismayed. -  
-Yet its national politics have not in living memory been as ugly or as **venal**. -  
 
 ## words-May-26.md ##  
 words/2026/words-May-26.md  
-Please donate whatever you can to xxx. We have to get this **albatross** from **around our neck**. -  
 
 ## words-Feb-26.md ##  
 words/2026/words-Feb-26.md  
-Use your **circumstance** to become even better than otherwise would be, and **revel** in your success when you achieve it. -  
