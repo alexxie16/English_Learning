@@ -57,9 +57,20 @@ throng
 
 **dismay, dismiss**  
 
+**pace**  
+
 a verb word Saylor said in the end   
 
 ## Words Gallery  
+
+**prudent, prudish, priggish**,   
+**Fetid, putrid, rancid, stinky, filthy, pungent, smelly**   
+
+**simpleton**, **nitwit**, **dimwit**,   
+**knucklehead, muttonhead, meathead, bonehead**,   
+
+**lubber, oaf, gawk, brute, hulk**,   
+**natty, jaunty**   
 
 **furore, uproar, outcry, groundswell, commotion**   
 **grumpy, grouchy, crabby, cranky, crotchety, cantankerous**  
@@ -90,8 +101,17 @@ calamity, catastrophe, etc
 
 ## Regular Recordings  
 
+**congenital** heart disease, **congenital** malformation/anomaly/defect.  
+He was a **congenital** liar and usually in debt. -    
+
+The scientist **elucidated** his theory by three simple demonstrations.  
+Please **elucidate** the reasons for your action. -    
+
+A philosopher without clothes and one without books. 'I have nothing to eat,’ says he, as he stands there half-naked, ‘but I **subsist on** the **logos**.'  
+Let's **pace** the frontier.  
+
 **Harbor** the knowledge of knowing who is the **perpetrator**.   
-Has sparked a **furore** over the legality and the impact of his assassination  
+Has sparked a **furore** over the legality and the impact of his assassination.  
 
 He **bellows**, **rends the air with anguish**.  
 I was **distraught** and let out a **bellow** of tearful rage.  
@@ -166,11 +186,15 @@ It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Ca
 
 ## Words Explain   
 
-**Fetid, putrid, rancid, stinky, filthy, pungent, smelly**   
+impugn  
 
 mend  
 
 Muck  
+
+reproof  
+
+spurn  
 
 ---   
 
@@ -242,6 +266,8 @@ Muck
      - He tried to glom onto some of the free samples at the event.  
    - **Alternatives**: Grab, seize, take.  
 
+  
+
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
@@ -252,6 +278,7 @@ If you **hang back** and stay cool, the woman come back to you.
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
 
+Let's **pace** the frontier.  
 He **bellows**, **rends the air with anguish**.  
 
 Why does the author say some experts' anxiety seems **misplaced**?  

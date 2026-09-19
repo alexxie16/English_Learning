@@ -11,6 +11,7 @@ Even those who are old and **feeble** can read the Stoics and reflect on their w
 
 ## millionaire-fastlane.md ##  
 book/millionaire-fastlane.md  
+All I can be is that creepy **munchkin** pointing off in the distance with a **stern** directive, “Follow the yellow brick road.” -  
 Our old Dodge Duster started **billowing** smoke and **clanked** to a stop. -  
 Wealth **eludes** most people because they are **preoccupied** with events while **disregarding** process. -  
 When you **plop your butt** on the recliner and **maul through** a can of **Pringles**, you choose pleasure now **in lieu of** pain later. -  
@@ -37,24 +38,22 @@ Producers are **indigenous** to the Fastlane roadmap. -
 Bad employees **pluck** the fruit of money trees and require **pruning**. -  
 Yes, these people are still trading their time for money, but in an unprecedented **stratum** of value. -  
 After a few various **rants and raves** about the car, he **exclaimed**, “I gotta get as many pictures as possible cuz I'll never be able to afford one of these.” -  
-This language **spells** trouble. What would have convinced me otherwise? -  
 Before they could even pursue flying, the Wright brothers had to break free of society's **natural headwind**-the natural social conditioning that **impregnates** all young minds. -  
 Time passes, dreams die, and what remains? An old **withered** body **forlorn** for what could have been. -  
 Think of the relationships in your life like an **army platoon** readying for battle. -  
-You need warriors who are **impervious** to the Death Star and can deactivate the Slowlane tractor beam, not fearful **pansies** who drop their **cargo** at the first sign of Imperial Slowlaners. -  
 Having a life partner who doesn't **ascribe to** your life's ideals and philosophies is like towing a trailer full of **wet manure**. -  
 
 ## happiness-advantage.md ##  
 book/happiness-advantage.md  
 Lowest marks in performance are generally led by commanders with a negative, controlling, and **aloof** **demeanor**. -  
-The second man wasn’t trying to be a **curmudgeon**—the unbearable heat was simply the only thing he could see. -  
 The best way to kick-start this is to start making a daily list of the good things in your job, your career, and your life. It may sound **hokey**, or ridiculously simple—and indeed the activity itself is simple—but over a decade of empirical studies has proven the profound effect it has on the way our brains are wired. -  
 I was met with **ashen** faces and utter silence. -  
 Even our e-mails are more **brusque** and **impersonal**. -  
-One they had good **rapport** with, and one they didn’t. -  
 
 ## words-Sep-26.md ##  
 words/2026/words-Sep-26.md  
+He was a **congenital** liar and usually in debt. -  
+Please **elucidate** the reasons for your action. -  
 Clouds of dust **billowed out** as the cars passed. -  
 I like my community there because it’s small and generally free of both drama and nonsense. But small **precludes** mainstream cultural relevance. -  
 So many bad practices over the years and **culminated** in this mess. -  
@@ -69,10 +68,7 @@ It never feels **lewd** and **lecherous**. -
 And of course, they rightly **impugn** all meat, not just "red" meat. -  
 He was **affable** at one moment, **choleric** the next. -  
 A better tip still is to **get off your bottom** and **strut** (or even **traipse**) around the office. -  
-Her mother was a dedicated **apostle** of healthy eating. -  
-Full credit to him for that, and it seems he did hustle and **derive** useful lessons from the experience. -  
 The **caprice** of the world’s most powerful man has taken Canada to the brink of a disastrous trade war. -  
-A surprising comeback in Wisconsin is a **reprieve** for Democratic moderates. The party has narrowly dodged a socialist insurgency in a crucial swing state. -  
 **Ostracism** and sanctions have not worked. Less **squeamish** powers, such as Russia and China, are trying to pull Afghanistan into their orbit. -  
 The battle for Hugo Boss. - A British **retail magnate** tries to go **upmarket**. -  
 If you woke up with a clear head, I expect you’re one of those **priggish**, **strait-laced** Gen Zs. -  
@@ -83,6 +79,4 @@ Bitcoin continues its Sideways Summer **trudge** moving between 63 and 66. -
 
 ## words-May-26.md ##  
 words/2026/words-May-26.md  
-
-## words-Feb-26.md ##  
-words/2026/words-Feb-26.md  
+Please donate whatever you can to xxx. We have to get this **albatross** from **around our neck**. -  

@@ -434,8 +434,6 @@ However, the **outermost** leaves are highest in nutrient density. No matter whi
 A brief, handwritten **postscript** lay beneath his signature.  
 wash them in a mesh **garment** bag that’s securely closed.  
 
-
-**simpleton**, **nitwit**, **dimwit**, **moron**, **lunatic**  
 **derogatory**  
 **imbecile**  
 blockhead, knucklehead, **dickhead**, **bonehead**,  

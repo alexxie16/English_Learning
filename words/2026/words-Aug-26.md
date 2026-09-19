@@ -235,7 +235,7 @@ A better tip still is to **get off your bottom** and **strut** (or even **traips
 
 ### Week 32   
 
-Her mother was a dedicated **apostle** of healthy eating. -    
+Her mother was a dedicated **apostle** of healthy eating.   
 
 He became a **taunt** to his neighbours.   
 The other children **taunted** him with nicknames.  
@@ -249,7 +249,7 @@ Let me also say that he will not **spoon feed** you- It's up to you to come up w
 **penta**-millionaire  
 This book is super-**cringy**.  
 Want to be successful enough to buy **flashy cars**.  
-Full credit to him for that, and it seems he did hustle and **derive** useful lessons from the experience. -    
+Full credit to him for that, and it seems he did hustle and **derive** useful lessons from the experience.   
 
 
 #### Slug   
@@ -300,7 +300,7 @@ It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Ca
 Quantifying anger in American politics. - America is **awash** in **indignation**.  
 
 A bill to punish Putin gives too much power to Donald Trump. **Walloping** the global trading system is no way to help Ukraine.   
-A surprising comeback in Wisconsin is a **reprieve** for Democratic moderates. The party has narrowly dodged a socialist insurgency in a crucial swing state. -    
+A surprising comeback in Wisconsin is a **reprieve** for Democratic moderates. The party has narrowly dodged a socialist insurgency in a crucial swing state.   
 Back in the days when Afghanistan was still a **ramshackle** democracy, I visited a hospital in **Kabul**.  
 One victim was married to a nurse, who was on duty when he arrived, horribly injured. (He is now **paraplegic**.) She was “coping”, a colleague told me, adding: “She’s one tough woman.”  
 **Ostracism** and sanctions have not worked. Less **squeamish** powers, such as Russia and China, are trying to pull Afghanistan into their orbit. -     

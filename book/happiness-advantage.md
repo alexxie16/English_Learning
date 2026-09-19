@@ -44,7 +44,7 @@ It was a **poignant** and humbling moment to see the group’s mood **deflate**.
 
 Many lawyers who **sheepishly** admitted that they had a habit of “deposing” their children when they got home from work  
 note the outfits of the people **milling** about  
-The second man wasn’t trying to be a **curmudgeon**—the unbearable heat was simply the only thing he could see. -  
+The second man wasn’t trying to be a **curmudgeon**—the unbearable heat was simply the only thing he could see.   
 The answer, in short, was **plain as day**, but the unlucky people were far more likely to miss it,  
 The best way to kick-start this is to start making a daily list of the good things in your job, your career, and your life. It may sound **hokey**, or ridiculously simple—and indeed the activity itself is simple—but over a decade of empirical studies has proven the profound effect it has on the way our brains are wired. -  
 This exercise has **staying power**.  
@@ -86,7 +86,7 @@ In his **seminal** book Loneliness, University of Chicago psychologist John Caci
 **Sweeping** corporate policies like these aren't always necessary; small differences can have just as much of an impact.  
 These policies are often the first to go when companies find themselves in **financial straits**.    
 Enter Michael Scott, **poster child** for disastrously **inept** bosses everywhere.  
-One they had good **rapport** with, and one they didn’t. -    
+One they had good **rapport** with, and one they didn’t.   
 especially given the **wealth of evidence** showing that our relationships are the greatest **predictor** of both happiness and high performance.  
 
 ### SPREADING THE HAPPINESS ADVANTAGE AT WORK, AT HOME, AND BEYOND  

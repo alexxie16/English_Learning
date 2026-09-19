@@ -22,7 +22,7 @@ This **dictation** is a **decree** to **trade life, for life**.
 I present the Fastlane with **brash** cynicism.  
 Had I chosen the **preordained road**, “Get Rich Slow,” my dreams would be on life-support, likely replaced with an alarm clock and a heavy morning commute.  
 How about your dreams? Do they need **resuscitation**?  
-All I can be is that creepy **munchkin** pointing off in the distance with a stern directive, “Follow the yellow brick road.”  
+All I can be is that creepy **munchkin** pointing off in the distance with a **stern** directive, “Follow the yellow brick road.” -    
 
 ## PART 1: Wealth in a Wheelchair… “Get Rich Slow” is Get Rich Old  
 
@@ -167,7 +167,7 @@ He looked like he was **canvassing** the room as if he was selling something.
 He eventually got to our table and unleashed the **uncouth**, “Hey, how would you like to earn $ 10,000 per month?”  
 His **eyes popped out of their sockets**, and after he picked them off the table, he **scampered** away like a rat without his cheese.   
 While I wish the man the best marriage, I see **flaccid words** that lack confidence.  
-This language **spells** trouble. What would have convinced me otherwise? -    
+This language **spells** trouble. What would have convinced me otherwise?   
 Sure, I would have enjoyed a quick **romp** of fun, but what about afterward?   
 Your choices **unearth** those roads, and they are either impressive shortcuts or perilous detours.  
 Being the youngest of three siblings, you can bet I was the subject of some **vile** comments.  
@@ -179,7 +179,7 @@ You must turn your back on them. Every entrepreneur has **bloviators** in their 
 He sold it under a specific **set of circumstances**, which included **the provision** that he had to play the **lead role**.  
 Good people are **conduits** to your dreams, not just in motivational fuel, but in extending your opportunity reach.  
 Think of the relationships in your life like an **army platoon** readying for battle. -    
-You need warriors who are **impervious** to the Death Star and can deactivate the Slowlane tractor beam, not fearful **pansies** who drop their **cargo** at the first sign of Imperial Slowlaners. -    
+You need warriors who are **impervious** to the Death Star and can deactivate the Slowlane tractor beam, not fearful **pansies** who drop their **cargo** at the first sign of Imperial Slowlaners.   
 Unlike natural wind, you are the **arbiter** of your headwinds.  
 Having a life partner who doesn't **ascribe to** your life's ideals and philosophies is like towing a trailer full of **wet manure**. -    
 Someone fighting with you **in your corner** is accelerative; if they serve as the opposition, they become **treasonous**.  
