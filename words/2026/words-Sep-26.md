@@ -67,7 +67,7 @@ a verb word Saylor said in the end
 **Fetid, putrid, rancid, stinky, filthy, pungent, smelly**   
 
 **simpleton**, **nitwit**, **dimwit**,   
-**knucklehead, muttonhead, meathead, bonehead**,   
+**knucklehead, muttonhead, meathead, bonehead, addlehead**,   
 
 **lubber, oaf, gawk, brute, hulk**,   
 **natty, jaunty**   
@@ -100,6 +100,18 @@ calamity, catastrophe, etc
 **pedicure, manicure, salon**   
 
 ## Regular Recordings  
+
+### Week 38  
+
+**indignant**, **indigenous**, **ingenious**   
+
+ROSE TREMAIN is a difficult author to **pigeonhole**.  
+Duplicate code can creep into a code base **unbeknownst** to anyone.  
+Circus monkeys are trained to be very **docile** and obedient.  
+
+Perhaps bitcoin is **vinyl**, cool memories and fun to drag out and put on display.  
+Leather **vinyl** interior.  
+
 
 **congenital** heart disease, **congenital** malformation/anomaly/defect.  
 He was a **congenital** liar and usually in debt. -    
@@ -186,15 +198,55 @@ It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Ca
 
 ## Words Explain   
 
-impugn  
 
-mend  
 
-Muck  
+**Impugn**  
+   - **Definition**: To challenge or question the validity or integrity of something; to argue against.  
+   - **Common Usage**: Less commonly used in daily life, more often found in formal or legal contexts.  
+   - **Examples**:  
+     - The lawyer impugned the witness's credibility during cross-examination.  
+     - She did not hesitate to impugn his motives, claiming he was only interested in personal gain.  
+   - **Alternatives**: Dispute, challenge, question.  
 
-reproof  
+---  
 
-spurn  
+**Mend**  
+   - **Definition**: To repair or fix something that is broken or damaged; to improve or heal.  
+   - **Common Usage**: Commonly used in everyday situations, from physical repairs to emotional healing.  
+   - **Examples**:  
+     - She decided to mend the tear in her shirt instead of throwing it away.  
+     - After a long discussion, they were able to mend their friendship.  
+   - **Alternatives**: Repair, fix, heal.  
+
+---  
+
+**Muck**  
+   - **Definition**: Soft, wet dirt or waste; to make something dirty or messy.  
+   - **Common Usage**: Fairly common in informal contexts, particularly in relation to dirt or messes.  
+   - **Examples**:  
+     - The kids came in covered in muck after playing in the mud.  
+     - He had to muck out the stable after feeding the horses.  
+   - **Alternatives**: Dirt, mess, filth.  
+
+---  
+
+**Reproof**  
+   - **Definition**: An expression of blame or disapproval; a reprimand.  
+   - **Common Usage**: Less common in daily conversation, often used in formal or literary contexts.  
+   - **Examples**:  
+     - The teacher's reproof was mild, but it still stung.  
+     - After receiving reproof from his manager, he made sure to improve his work habits.  
+   - **Alternatives**: Criticism, reprimand, rebuke.  
+
+---  
+
+**Spurn**  
+   - **Definition**: To reject with disdain or contempt; to refuse or scorn something.  
+   - **Common Usage**: Not very common in everyday conversation, but known in literary contexts.  
+   - **Examples**:  
+     - She spurned his advances, insisting she was not interested in a relationship.  
+     - The artist spurned conventional techniques to create his unique style.  
+   - **Alternatives**: Reject, scorn, disdain.  
 
 ---   
 
@@ -248,8 +300,7 @@ spurn
 
 ---  
 
-**Preclude**  
-   - **Definition**: To make something impossible; to prevent something from happening.  
+**Preclude**  **Definition**: To make something impossible; to prevent something from happening.  
    - **Common Usage**: Fairly common in both formal and informal contexts, especially in writing.  
    - **Examples**:  
      - The heavy rain might preclude the outdoor event from taking place.  
@@ -273,6 +324,8 @@ spurn
 
 If you **hang back** and stay cool, the woman come back to you.  
 
+**Stand back and stand down**.   
+
 **Harbor** the knowledge of knowing who is the **perpetrator**.   
 
 ## Interesting  
@@ -283,8 +336,6 @@ He **bellows**, **rends the air with anguish**.
 
 Why does the author say some experts' anxiety seems **misplaced**?  
 I would no longer view an October upgrade as **a long shot**. B- → B is quite plausible.  
-
-He kept Apple’s **temperamental** actors performing well, and he avoided stepping into the **limelight**.  
 
 Quantifying anger in American politics. - America is **awash** in **indignation**.  
 

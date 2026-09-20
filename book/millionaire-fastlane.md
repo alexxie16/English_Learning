@@ -105,7 +105,7 @@ Unfortunately, millions of people have faithfully invested decades into the plan
 A strategy that requires your life and your dreams to be paid as **penance** is **a sucker's bet**. -    
 **Banality** followed by blindness is the side effect of Slowlane institutionalization.  
 A friend recently **berated** me because I declined to go out on a Saturday night.“ Are you crazy? It's Saturday night!” he wailed.  
-Five days of **work-bondage** exchanged for two days of **unadulterated** freedom. -    
+Five days of **work-bondage** exchanged for two days of **unadulterated** freedom.   
 Sadly, if you are **entrenched** in the Slowlane, your options to shatter this negative 60% return for your freedom is restricted.  
 Look no further than Friday night when people celebrate freedom as the Slowlane dictatorship takes a weekend **furlough**. -    
 The Slowlaner accepts an existence of frugality and sacrifice to a tipping-point where life feels like **incarceration**.  
@@ -114,7 +114,7 @@ And if that cog becomes **obsolete** or **expendable**? Guess what, you're **out
 Exposing Slowlane **Ineptitude**  
 Time becomes the **lynchpin** for wealth that **congenitally** ties to the mathematical handicaps of mortality. -    
 Unless you plan on living forever, this relationship is **dubiously** **foolhardy**. -    
-To create explosive wealth fast, you must abandon the Slowlane formula and its **lecherous** relationship to time. -    
+To create explosive wealth fast, you must abandon the Slowlane formula and its **lecherous** relationship to time.   
 Time is your **primordial** fuel and it should not be traded for money. -    
 Your time should not be an **expendable** resource for wealth because wealth itself is composed of time.  
 If an education **entombs** you under a mountain of debt and **shackles** you to a job for the rest of your life, is it really a good education? -    
@@ -122,7 +122,7 @@ Has your education **indentured** you to a job?
 Compound interest tables, save 10% of your paycheck, stop drinking expensive coffee, and other chronic Slowlane **diatribes**. Again, the Paradox of Practice **rears its ugly mug**.  
 The Slowlane guru's advice? A **palliative** “Stick to the plan.” Recommit. Rebuild.  
 For the **charade** to continue, the gurus need to reinforce the strategy with new books selling the same old shit!  
-They operate in an entirely different wealth universe not **predicated on** uncontrollable limited leverage. -    
+They operate in an entirely different wealth universe not **predicated on** uncontrollable limited leverage.   
 In 2008, the value of my home equity plummeted $ 800,000. I **disavow** my home as an investment and, thankfully, I do not rely on it.  
 When the **torque** of you're financial plan resides with others, you're likely to lose control.  
 The Slowlane begs you to settle and become a **miser**.  
@@ -146,7 +146,7 @@ Meanwhile, Azur continues to **dredge away** at the same old routine.
 Where is this playbook and how do you get it? You have to **forsake** the ideology of the majority and become a Slowlane traitor.  
 This “consumer” focus is like a **gravitational pull** to keep you **amenable** to anti-Fastlane thinking.  
 For example, the sale of this book **extricates** me from the Slowlane wealth equation and its universe.  
-Producers are **indigenous** to the Fastlane roadmap. -    
+Producers are **indigenous** to the Fastlane roadmap.   
 Unit profit is also **pliable**. I could experiment with increased prices or new services.  
 if your company stagnates and net income starts to erode, so will the corresponding asset value.  
 I streamlined operations, which created **passivity**.  
@@ -181,7 +181,7 @@ Good people are **conduits** to your dreams, not just in motivational fuel, but 
 Think of the relationships in your life like an **army platoon** readying for battle. -    
 You need warriors who are **impervious** to the Death Star and can deactivate the Slowlane tractor beam, not fearful **pansies** who drop their **cargo** at the first sign of Imperial Slowlaners.   
 Unlike natural wind, you are the **arbiter** of your headwinds.  
-Having a life partner who doesn't **ascribe to** your life's ideals and philosophies is like towing a trailer full of **wet manure**. -    
+Having a life partner who doesn't **ascribe to** your life's ideals and philosophies is like towing a trailer full of **wet manure**.   
 Someone fighting with you **in your corner** is accelerative; if they serve as the opposition, they become **treasonous**.  
 She couldn't understand why I was so **fervent** to be an entrepreneur. Our relationship **stagnated** as my failures grew, and the relationship eventually ended.  
 This **occurrence** wasn't either one of our faults; we just were two different people on two different paths.  

@@ -24,24 +24,19 @@ You ignored the tickle of logic in your brain. You are a victim of your own **ma
 As it turns out, I was correct, and that truth **crystallized** because I chose to make financial decisions for myself. I didn't rely on the **pontificators** at CNBC who **rapaciously** declared that housing was safe. -  
 Responsibility is the **forefather** to accountability, but one doesn't **evidence** the other. -  
 A strategy that requires your life and your dreams to be paid as **penance** is **a sucker's bet**. -  
-Five days of **work-bondage** exchanged for two days of **unadulterated** freedom. -  
 Look no further than Friday night when people celebrate freedom as the Slowlane dictatorship takes a weekend **furlough**. -  
 Time becomes the **lynchpin** for wealth that **congenitally** ties to the mathematical handicaps of mortality. -  
 Unless you plan on living forever, this relationship is **dubiously** **foolhardy**. -  
-To create explosive wealth fast, you must abandon the Slowlane formula and its **lecherous** relationship to time. -  
 Time is your **primordial** fuel and it should not be traded for money. -  
 If an education **entombs** you under a mountain of debt and **shackles** you to a job for the rest of your life, is it really a good education? -  
-They operate in an entirely different wealth universe not **predicated on** uncontrollable limited leverage. -  
 Chuma **trolls up** the town square **commandeering** a 25-foot **contraption**, a towering machine built from a twisted maze of **gantries**, wheels, levers, and ropes. -  
 After a short **trawl** to Chuma's barren pyramid plot, Azur's suspicions are confirmed. -  
-Producers are **indigenous** to the Fastlane roadmap. -  
 Bad employees **pluck** the fruit of money trees and require **pruning**. -  
 Yes, these people are still trading their time for money, but in an unprecedented **stratum** of value. -  
 After a few various **rants and raves** about the car, he **exclaimed**, “I gotta get as many pictures as possible cuz I'll never be able to afford one of these.” -  
 Before they could even pursue flying, the Wright brothers had to break free of society's **natural headwind**-the natural social conditioning that **impregnates** all young minds. -  
 Time passes, dreams die, and what remains? An old **withered** body **forlorn** for what could have been. -  
 Think of the relationships in your life like an **army platoon** readying for battle. -  
-Having a life partner who doesn't **ascribe to** your life's ideals and philosophies is like towing a trailer full of **wet manure**. -  
 
 ## happiness-advantage.md ##  
 book/happiness-advantage.md  

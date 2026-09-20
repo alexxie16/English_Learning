@@ -3,8 +3,6 @@
 > There are no solutions, there are trade offs.  
 
 The world's energy crunch is a battle between **platitudes** and physics.  
-
-Leather **vinyl** interior.  
 **Argentine** **lineage**.  
 
 The president **abrogated** an old law.  

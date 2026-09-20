@@ -1,53 +1,53 @@
 
-## August 
+## August   
 
-**scarcity**
+**scarcity**  
 
-**indispensable**
+**indispensable**  
 
-**defective**, **flawed** 
+**defective**, **flawed**   
 
-**conqueror**
+**conqueror**  
 
-**euthanize**
+**euthanize**  
 
-**condiment**
+**condiment**  
 
-**cordial**
+**cordial**  
 
-**molestation**
+**molestation**  
 
 **illuminating**  
 
-**holistic view**
+**holistic view**  
 
-**exclamation** mark, **bang**
+**exclamation** mark, **bang**  
 
-**whiny**
+**whiny**  
 
-**Inflection point** 
+**Inflection point**   
 
-**elusive**
+**elusive**  
 
-**plight**, **dilemma**
+**plight**, **dilemma**  
 
-**bespoken**
+**bespoken**  
 
-**upfront** 
+**upfront**   
 
-**Philistine** 
+**Philistine**   
 
 **volatile**  
 
 **accrue**  **curated**  
 
-**pathological**, **pathogen**
+**pathological**, **pathogen**  
 
-**gravitate**
+**gravitate**  
 
 **commanding height**, **commanding role**  
 
-**cramming**
+**cramming**  
 
 **post mortem**  
 
@@ -55,19 +55,19 @@
 
 **laborious**  
 
-**pediatric** 
+**pediatric**   
 
-**dilatory** 
+**dilatory**   
 
 **deterministic**, **indeterministic**  
 
 **consonant**, **vowel**  
 
-**canny**, **uncanny**
+**canny**, **uncanny**  
 
-**calamity**, **fortitude**
+**calamity**, **fortitude**  
 
-**Cynicism** 
+**Cynicism**   
 
 **mediterranean**  
 
@@ -77,13 +77,13 @@
 
 **sexually precocious**  
 
-**paltry**
+**paltry**  
 
-**stamina**
+**stamina**  
 
-**articulate** 
+**articulate**   
 
-**demeanor**, **misdemeanor**
+**demeanor**, **misdemeanor**  
 
 **rhyme**, **rhythm**  
 
@@ -91,75 +91,69 @@
 
 **carnivore**, **herbivore**, **omnivore**  
 
-**indignant**, **indigenous** 
+**remark**  
 
-**remark**
-
-**tranquility**  
-
-**digress**
-
-**deteriorate**  
+**digress**  
 
 **metropolis**  
 
-**strengthen**
+**strengthen**  
 
 **apparatus**, **asparagus**  
 
 **finite**  
 
-**punctual**, **punctuality**
+**punctual**, **punctuality**  
 
-**synchronous**, **synchronize**
+**synchronous**, **synchronize**  
 
-**complemental**, **supplemental** 
+**complemental**, **supplemental**   
 
-**propagate**
+**propagate**  
 
 **divisive**, **decisive**  
 
-**collateral damage** 
+**collateral damage**   
 
 **chiseled**  
 
 **charismatic**  
 
-**paralyzed**
+**paralyzed**  
 
-**molotov cocktail**
+**molotov cocktail**  
 
-**masculine**, **feminine**
+**masculine**, **feminine**  
 
 **animosity**  
 
-**emit**, **omit** 
+**emit**, **omit**   
 
 **extrapolate**  
 
-**conciliatory** 
+**conciliatory**   
 
-**dopamine**
+**dopamine**  
 
 **concatenate**  
 
-**crocodile**
+**crocodile**  
 
-**flummox**
+**flummox**  
 
-**ostrich**
+**ostrich**  
 
-**plume**
+**plume**  
 
-**Proceed** 
+**Proceed**   
 
-**Itinerary** 
+**Itinerary**   
 
-**pivot**
+**pivot**  
 
 **adolescence**  
 
-**adamant** 
+**adamant**   
 
 **enzyme**  
 
@@ -167,15 +161,15 @@
 
 **coveted**  
 
-**plentiful**
+**plentiful**  
 
 **vital**  
 
-**Systematical**, **systemic** 
+**Systematical**, **systemic**   
 
-**vertebrae**
+**vertebrae**  
 
-**cervical vertebra**
+**cervical vertebra**  
 
 **incumbent**  
 
@@ -183,5 +177,5 @@
 
 **curriculum**  
 
-**renege** 
+**renege**   
 
