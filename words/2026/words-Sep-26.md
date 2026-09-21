@@ -47,6 +47,8 @@ throng
 
 ## Special Words  
 
+**prominent**  
+
 **thorny**  
 
 **harbor**  
@@ -55,6 +57,8 @@ throng
 
 ## Verb Words  
 
+**slink**  
+
 **dismay, dismiss**  
 
 **pace**  
@@ -62,6 +66,8 @@ throng
 a verb word Saylor said in the end   
 
 ## Words Gallery  
+
+**prolific, proliferate, profligate**.  
 
 **prudent, prudish, priggish**,   
 **Fetid, putrid, rancid, stinky, filthy, pungent, smelly**   
@@ -83,11 +89,11 @@ a verb word Saylor said in the end
 **frolic, romp, pomp, fanfare, orgy, regale**,   
 **scrawny, skinny, slender, slim**  
 
-glint, gleam, shimmer, glitter  
+**glint, gleam, shimmer, glitter**  
 
-lumbar, lumber, slumber,   
+**lumbar, lumber, slumber**,   
 
-calamity, catastrophe, etc   
+**calamity, catastrophe**  
 
 **Mesmerize, enthral, enamor, dazzle, spellbind, spellbound, captivate, possess, charm**  
 
@@ -100,6 +106,25 @@ calamity, catastrophe, etc
 **pedicure, manicure, salon**   
 
 ## Regular Recordings  
+
+blow  
+
+
+he succumbed to drink and a **profligate** lifestyle.  
+I know he's been **castigated** for being a, you know, a **profligate** **philanderer**.  
+
+I'm your lobbyist, not your **henchman**.  
+
+henchman, entourage,   
+malefactor, accomplice, perpetrator, mastermind  
+
+
+They foster a sense of aggrieved entitlement.  
+As usual, most answers to this question lay blame at the feet of redpill and incel influencers, misogyny, etc.  
+Some guys really take this to heart, so they view such spaces as entirely off limits for romance.  
+
+The shipwreck was a **harrowing** experience.  
+
 
 ### Week 38  
 
@@ -191,14 +216,32 @@ So many bad practices over the years and **culminated** in this mess. -
 This **wishy-washy** statement always made me felt uneasy.  
 
 ### Economist Newsletter  
+
+South Africa is at risk of becoming a **mafia state**.  
+Soaring bond yields, **gaping deficits** and towering debts: what could go wrong?  
+Say goodbye to summer. Not just this year’s. The season is **imperilled** by climate change. It was nice while it **lasted**. -  
+
+Does it have anything to do with the fact that younger men tend to be a bit overbearing and short **tempered**?  
+
+The economic **folly** of free buses.  
+Russia’s **sham** election is **descending** into **farce**.  
+Is it still worthwhile to teach **cursive** in school? The comeback of **joined-up** handwriting reflects research as well as culture.  
+OpenAI announced that a team of its agents had solved a theoretical problem that has **stumped** mathematicians for decades.  
+Takaichi Sanae’s big-spending plans are **unnerving** markets.  
+So I commend to you our **painstakingly** balanced cover package on the truth and lies about Islam in Europe.   
+Europe faces “civilisational **erasure**” as it is overrun by Muslim immigrants. That is **cobblers**.  
+A new Economist podcast series looks at the rise, **abetted** by Elon Musk, of Tommy Robinson, Britain’s most **prominent** far-right **rabble-rouser**.  
+How Donald Trump **boxed his party in**.  
+Russia has turned its schools into **indoctrination** machines.  
+
 Quantifying anger in American politics. - America is **awash** in **indignation**.  
-
 It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Canada’s leader must use all his **guile** to **defuse** a grave threat to his country’s economy.  
-
 
 ## Words Explain   
 
+apprise  
 
+---  
 
 **Impugn**  
    - **Definition**: To challenge or question the validity or integrity of something; to argue against.  
@@ -276,7 +319,7 @@ It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Ca
    - **Examples**:  
      - She bought a new apparel for the upcoming winter season.  
      - The store specializes in high-end athletic apparel.  
-   - **Alternatives**: Clothing, garments, attire.  
+   - **Alternatives**: Clothing, garments, attire, garb.  
 
 ---  
 
@@ -316,8 +359,6 @@ It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Ca
      - She managed to glom that last piece of cake before anyone else could get to it.  
      - He tried to glom onto some of the free samples at the event.  
    - **Alternatives**: Grab, seize, take.  
-
-  
 
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  

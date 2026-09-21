@@ -156,7 +156,7 @@ Louis is **devious**, but he's not bold.
 **Bring it on**, Ross, I bleed **crimson**.  
 Oh, **venomous banter**, this is adorable, I love it.  
 
-And of course, they rightly **impugn** all meat, not just "red" meat. -     
+And of course, they rightly **impugn** all meat, not just "red" meat.   
 
 **The Hulk**.  
 I saw a rotting **hulk** on the beach.   

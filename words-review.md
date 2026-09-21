@@ -7,7 +7,6 @@ Marcus recommends that when our practice **falls short** of Stoic **precepts**, 
 The Stoics’ advocacy of sexual reserve will sound **prudish** to modern readers, but they had a point. -  
 The political correctness movement has some **untoward** side effects. -  
 Although ancient Romans normally went out in public wearing shoes and a **tunic**, Cato wore neither. -  
-Even those who are old and **feeble** can read the Stoics and reflect on their writings. -  
 
 ## millionaire-fastlane.md ##  
 book/millionaire-fastlane.md  
@@ -60,7 +59,6 @@ I was afraid they’d **slink away** quietly, but they've really committed to th
 With her **voluptuous** figure, **sparkly** stage costumes and blond **bouffant** **wigs**, she was likened by the writer Chet Flippo to the Big Rock Candy Mountain, the Depression-era symbol of abundance. -  
 **In the aftermath** of the tragedy, a **tribunal** pointed fingers at the captain, the crew, and the builders, but no one looked at the true source of the failure. -  
 It never feels **lewd** and **lecherous**. -  
-And of course, they rightly **impugn** all meat, not just "red" meat. -  
 He was **affable** at one moment, **choleric** the next. -  
 A better tip still is to **get off your bottom** and **strut** (or even **traipse**) around the office. -  
 The **caprice** of the world’s most powerful man has taken Canada to the brink of a disastrous trade war. -  

@@ -85,4 +85,4 @@ I must die. If **forthwith**, I die; and if a little later, I will take lunch no
 We used to run for miles; now we get **winded** walking down the hallway.  
 We will find ourselves surrounded by people not of our choosing. We might, as a result, have to interact, each and every day, over breakfast and before we have had our coffee, with the same **ornery** individuals.  
 These individuals, rather than enjoying their life, will have been **embittered** by it, and now, near the end of their life,  
-Even those who are old and **feeble** can read the Stoics and reflect on their writings. -    
+Even those who are old and **feeble** can read the Stoics and reflect on their writings.   
