@@ -51,6 +51,7 @@ Please **elucidate** the reasons for your action. -
 Clouds of dust **billowed out** as the cars passed. -  
 I like my community there because it’s small and generally free of both drama and nonsense. But small **precludes** mainstream cultural relevance. -  
 So many bad practices over the years and **culminated** in this mess. -  
+Say goodbye to summer. Not just this year’s. The season is **imperilled** by climate change. It was nice while it **lasted**. -  
 
 ## words-Aug-26.md ##  
 words/2026/words-Aug-26.md  

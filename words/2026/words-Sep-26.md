@@ -67,6 +67,11 @@ a verb word Saylor said in the end
 
 ## Words Gallery  
 
+**fret, distraught, heartbroken**, **harrowing**   
+**henchman, entourage, flunky, goon, scab**  
+**malefactor, accomplice, perpetrator, mastermind**  
+**expletive, exclaim**  
+
 **prolific, proliferate, profligate**.  
 
 **prudent, prudish, priggish**,   
@@ -76,7 +81,7 @@ a verb word Saylor said in the end
 **knucklehead, muttonhead, meathead, bonehead, addlehead**,   
 
 **lubber, oaf, gawk, brute, hulk**,   
-**natty, jaunty**   
+**natty, jaunty, modish, chic, trendy, stylish**   
 
 **furore, uproar, outcry, groundswell, commotion**   
 **grumpy, grouchy, crabby, cranky, crotchety, cantankerous**  
@@ -106,24 +111,52 @@ a verb word Saylor said in the end
 **pedicure, manicure, salon**   
 
 ## Regular Recordings  
+bungle, bumble, blunder,   
 
-blow  
+procreate, procreation, reproductive, generative, seminal,   
 
 
-he succumbed to drink and a **profligate** lifestyle.  
+glum, glom,   
+
+bilk  
+supplicant  
+
+Mosquito **incense**, **incense paper**,  
+
+I'm terribly **squeamish**. I can't bear gory films.  
+This movie is not for the **squeamish**.  
+
+By **funnelling** money to Sierra Leone’s political elite and funding large parts of the state itself, Jos Leijdekkers has **amassed** perks that would be the envy of a **Bond villain**.  
+
+If you're a **debtor**, then you want the money to be worth less, so you replay less, and vice versa.   
+**geometrically** diminishing supply that can not be modified no matter how hard you try.  
+
+
+These trends are **fickle**, you need to check your conviction.   
+
+Buy bitcoin when a lot of nocoiners are posting red screenshot and **gloating** on Twitter.   
+Don't **gloat** over your rival's misfortune.  
+
+**Diplomatic furore**  
+
+He **succumbed** to drink and a **profligate** lifestyle.  
 I know he's been **castigated** for being a, you know, a **profligate** **philanderer**.  
-
 I'm your lobbyist, not your **henchman**.  
 
-henchman, entourage,   
-malefactor, accomplice, perpetrator, mastermind  
+Locating, educating, and **remunerating** Bitcoin Open-Source Engineers in the Global South.  
+You're **off to a great start**.  
 
-
-They foster a sense of aggrieved entitlement.  
-As usual, most answers to this question lay blame at the feet of redpill and incel influencers, misogyny, etc.  
-Some guys really take this to heart, so they view such spaces as entirely off limits for romance.  
+They foster a sense of **aggrieved** entitlement.  
+As usual, most answers to this question lay blame at the feet of redpill and **incel** influencers, misogyny, etc.  
+Some guys really **take this to heart**, so they view such spaces as entirely **off limits** for romance.  
 
 The shipwreck was a **harrowing** experience.  
+
+---   
+
+
+What Mao can teach China about managing America. An **insurgent** power has fought the incumbent to a stalemate.  
+German politics is fragmenting, **fraying** and radicalising.   
 
 
 ### Week 38  
@@ -239,7 +272,41 @@ It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Ca
 
 ## Words Explain   
 
-apprise  
+ashen  
+
+ribald  
+
+blandish  
+
+---   
+
+**Firmament**  
+   - **Definition**: The sky or heavens; often used to refer to the expanse of the sky as seen from the Earth.  
+   - **Common Usage**: Less commonly used in daily conversation; more prevalent in literary or poetic contexts.  
+   - **Examples**:  
+     - The stars twinkled brightly in the firmament on that clear night.  
+     - Many ancient cultures believed that the firmament was a solid dome above the Earth.  
+   - **Alternatives**: Sky, heavens, celestial sphere.  
+
+---  
+
+**Campy**  
+   - **Definition**: Exaggerated, theatrical, or deliberately exaggerated and stylized; often with a sense of ironic or humorous quality.  
+   - **Common Usage**: Somewhat common, especially in discussions about film, art, or fashion; often used in pop culture contexts.  
+   - **Examples**:  
+     - The film's campy humor was enjoyed by audiences who appreciated its over-the-top style.  
+     - His outfit was delightfully campy, with bold colors and outrageous accessories.  
+   - **Alternatives**: Theatrical, kitschy, exaggerated.  
+
+---  
+
+**Apprise**  
+   - **Definition**: To inform or notify someone about something; to provide information.  
+   - **Common Usage**: Somewhat formal; not commonly used in casual conversation, but is recognized in professional or literary contexts.  
+   - **Examples**:  
+     - Please apprise me of any updates regarding the project.  
+     - The doctor will apprise you of the results as soon as they are available.  
+   - **Alternatives**: Inform, notify, update.  
 
 ---  
 
@@ -343,7 +410,8 @@ apprise
 
 ---  
 
-**Preclude**  **Definition**: To make something impossible; to prevent something from happening.  
+**Preclude**  
+   - **Definition**: To make something impossible; to prevent something from happening.  
    - **Common Usage**: Fairly common in both formal and informal contexts, especially in writing.  
    - **Examples**:  
      - The heavy rain might preclude the outdoor event from taking place.  

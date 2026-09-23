@@ -351,6 +351,7 @@ The list is long, the stories **searing**. But Cook mentions nothing more specif
 The New Mexico lawsuit filing doesn't contain evidence that Zuckerberg **nixed** parental controls for teens engaging in chats with AI bots.  
 The post **roiled** the White House. Staffers **reflexively** defended the clip, but were **besieged** with calls from fellow Republicans begging them to take it down, a source familiar with the discussions tells Axios.  
 
+---  
 
 **Corporal** punishment in public schools is forbidden.  
 This is yet another **slur** on the integrity of the police.   

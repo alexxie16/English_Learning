@@ -190,7 +190,6 @@ I was super **pumped**.
 **self-esteem**  
 (Boy. My **self-esteem** can't take this. - I'm sorry)  
 
-Mosquito **incense**, **incense paper**,  
 highly **burnished** armor  
 Do you have any ethical **qualms** regarding human experimentation  
 (He has no **qualms** about lying)  
