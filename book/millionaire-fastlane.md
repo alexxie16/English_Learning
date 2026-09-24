@@ -150,7 +150,7 @@ Producers are **indigenous** to the Fastlane roadmap.
 Unit profit is also **pliable**. I could experiment with increased prices or new services.  
 if your company stagnates and net income starts to erode, so will the corresponding asset value.  
 I streamlined operations, which created **passivity**.  
-Bad employees **pluck** the fruit of money trees and require **pruning**. -    
+Bad employees **pluck** the fruit of money trees and require **pruning**.   
 Being broke and a student of wealth, I couldn't **bottle** my curiosity.   
 Wow. This guy couldn't have been much older than I and he was already retired and **living large**!  
 The next few times I **chauffeured** the man, I **eavesdropped** on his conversations hoping to catch a **tasty tidbit** of the rich.  

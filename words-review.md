@@ -8,6 +8,14 @@ The Stoics’ advocacy of sexual reserve will sound **prudish** to modern reader
 The political correctness movement has some **untoward** side effects. -  
 Although ancient Romans normally went out in public wearing shoes and a **tunic**, Cato wore neither. -  
 
+## bitcoin-standard.md ##  
+book/bitcoin-standard.md  
+Naturally, then, neither beauty nor longevity matters anymore, replaced with political **prattling** and the ability to impress bureaucrats who control the major funding sources to the large galleries and museums. -  
+have received this critical appraisal by janitors more discerning than the insecure **nouveau rich** who spent millions of dollars on what the janitors threw away. -  
+The SHA‐ 256 hashing function is **an integral part** of the operation of the Bitcoin system. -  
+the possibility of a global return to sound money and liberal government is extremely unlikely as these concepts are largely **alien to** the vast majority of politicians and voters worldwide, who have been **reared** for generations to understand government control of money and morality as necessary for the functioning of any society. -  
+Blockchains with their own currency, such as Bitcoin, exist **orthogonally** to the law; -  
+
 ## millionaire-fastlane.md ##  
 book/millionaire-fastlane.md  
 All I can be is that creepy **munchkin** pointing off in the distance with a **stern** directive, “Follow the yellow brick road.” -  
@@ -30,7 +38,6 @@ Time is your **primordial** fuel and it should not be traded for money. -
 If an education **entombs** you under a mountain of debt and **shackles** you to a job for the rest of your life, is it really a good education? -  
 Chuma **trolls up** the town square **commandeering** a 25-foot **contraption**, a towering machine built from a twisted maze of **gantries**, wheels, levers, and ropes. -  
 After a short **trawl** to Chuma's barren pyramid plot, Azur's suspicions are confirmed. -  
-Bad employees **pluck** the fruit of money trees and require **pruning**. -  
 Yes, these people are still trading their time for money, but in an unprecedented **stratum** of value. -  
 After a few various **rants and raves** about the car, he **exclaimed**, “I gotta get as many pictures as possible cuz I'll never be able to afford one of these.” -  
 Before they could even pursue flying, the Wright brothers had to break free of society's **natural headwind**-the natural social conditioning that **impregnates** all young minds. -  
@@ -50,7 +57,6 @@ He was a **congenital** liar and usually in debt. -
 Please **elucidate** the reasons for your action. -  
 Clouds of dust **billowed out** as the cars passed. -  
 I like my community there because it’s small and generally free of both drama and nonsense. But small **precludes** mainstream cultural relevance. -  
-So many bad practices over the years and **culminated** in this mess. -  
 Say goodbye to summer. Not just this year’s. The season is **imperilled** by climate change. It was nice while it **lasted**. -  
 
 ## words-Aug-26.md ##  

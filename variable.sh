@@ -31,6 +31,7 @@ export files=(
   "./media/GOT/GOT2.md"
   "./media/GOT/GOT1.md"
   "./book/guide-to-good-life.md"
+  "./book/bitcoin-standard.md"
   "./book/millionaire-fastlane.md"
   "./book/happiness-advantage.md"
   "./book/blocksize-war.md"

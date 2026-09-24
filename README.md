@@ -13,6 +13,8 @@ Improving English vocabulary for a non native-speaker is taxing and time-consumi
 
 [A guide to good life](/book/guide-to-good-life.md)
 
+[The Bitcoin Standard](/book/bitcoin-standard.md)
+
 [Millionaire Fastlane](/book/millionaire-fastlane.md)
 
 [The happiness advantage](./book/happiness-advantage.md)

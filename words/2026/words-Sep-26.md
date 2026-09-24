@@ -47,6 +47,8 @@ throng
 
 ## Special Words  
 
+**sadistic**  
+
 **prominent**  
 
 **thorny**  
@@ -111,15 +113,14 @@ a verb word Saylor said in the end
 **pedicure, manicure, salon**   
 
 ## Regular Recordings  
-bungle, bumble, blunder,   
+**bungle, bumble, blunder**,   
+**procreate, procreation, reproductive, generative, seminal**,   
 
-procreate, procreation, reproductive, generative, seminal,   
 
+**glum, glom**,   
 
-glum, glom,   
+The **widowed** mother reared up the two children.   
 
-bilk  
-supplicant  
 
 Mosquito **incense**, **incense paper**,  
 
@@ -242,7 +243,7 @@ He was calm and decisive when **in command**, but he didn't seek any notice or *
 
 Imperialism has not been able to **subjugate** China.  
 
-So many bad practices over the years and **culminated** in this mess. -    
+So many bad practices over the years and **culminated** in this mess.   
 
 > **Cavil**: To raise trivial and frivolous objection  
 
@@ -272,13 +273,57 @@ It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Ca
 
 ## Words Explain   
 
-ashen  
+**Bilk**  
+   - **Definition**: To cheat or defraud someone, often by taking away their money or possessions.  
+   - **Common Usage**: Somewhat common, used primarily in the context of fraud or deception.  
+   - **Examples**:  
+     - The con artist managed to bilk several elderly women out of their life savings.  
+     - After the investigation, the company was found to have bilked investors during the financial crisis.  
+   - **Alternatives**: Defraud, cheat, swindle.  
 
-ribald  
+---  
 
-blandish  
+**Supplicant**  
+   - **Definition**: A person who appeals or begs earnestly for something; a petitioner.  
+   - **Common Usage**: Less common in everyday speech but used in literary or formal contexts.  
+   - **Examples**:  
+     - The supplicant kneels before the altar, seeking guidance and mercy.  
+     - As a supplicant, he presented his case to the council, hoping for their favor.  
+   - **Alternatives**: Beggar, petitioner, applicant.  
+
+---  
+
+**Ashen**  
+   - **Definition**: Pale or gray in color; resembling ashes, often indicating shock or fear.  
+   - **Common Usage**: Commonly used to describe a person's complexion when they are frightened or unwell.  
+   - **Examples**:  
+     - After hearing the bad news, her face turned ashen, revealing her shock.  
+     - The post-apocalyptic landscape was bleak and ashen, devoid of life.  
+   - **Alternatives**: Pale, grayish, wan.  
+
+---  
+
+**Ribald**  
+   - **Definition**: Referring to language or behavior that is vulgar, irreverently humorous, or indecent.  
+   - **Common Usage**: Less common, often found in literary or theatrical contexts when discussing humor or language.  
+   - **Examples**:  
+     - The ribald jokes made at the party were met with both laughter and shock.  
+     - Shakespeare often included ribald elements in his comedies to entertain the audience.  
+   - **Alternatives**: Coarse, crude, lewd.  
+
+---  
+
+**Blandish**  
+   - **Definition**: To coax or persuade someone through flattery or sweet talk; to influence by gentle persuasion.  
+   - **Common Usage**: Less common in everyday conversation, typically used in formal or literary contexts.  
+   - **Examples**:  
+     - The salesman tried to blandish the customers into buying the overpriced product.  
+     - She used sweet words to blandish her parents into granting her permission for the trip.  
+   - **Alternatives**: Cajole, coax, wheedle.  
 
 ---   
+
+--   
 
 **Firmament**  
    - **Definition**: The sky or heavens; often used to refer to the expanse of the sky as seen from the Earth.  
