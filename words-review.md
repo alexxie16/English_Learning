@@ -23,7 +23,6 @@ Our old Dodge Duster started **billowing** smoke and **clanked** to a stop. -
 Wealth **eludes** most people because they are **preoccupied** with events while **disregarding** process. -  
 When you **plop your butt** on the recliner and **maul through** a can of **Pringles**, you choose pleasure now **in lieu of** pain later. -  
 You're their prey and the **peddlers** don't care if you can afford it or not. -  
-To tell a great poker player “you're lucky” is to **hurl an insult**. Likewise, to **ascribe** luck to a self-made millionaire's success is to perform the same insult. -  
 when I was a teenager, my mother **chummed with** friends at a local restaurant. -  
 An investment company had **bilked** millions of dollars from investors. -  
 When you **bequeath** control to others, you essentially become a **hitchhiker** with no seat belt. -  
@@ -53,11 +52,14 @@ Even our e-mails are more **brusque** and **impersonal**. -
 
 ## words-Sep-26.md ##  
 words/2026/words-Sep-26.md  
+If you try to patch this **thingamajig** and that **thingamabob** that was introduced by the implementation of some TODO, you end up in situations like this. -  
 He was a **congenital** liar and usually in debt. -  
 Please **elucidate** the reasons for your action. -  
 Clouds of dust **billowed out** as the cars passed. -  
 I like my community there because it’s small and generally free of both drama and nonsense. But small **precludes** mainstream cultural relevance. -  
+What Mao can teach China about managing America. An **insurgent** power has fought the **incumbent** to a **stalemate**. -  
 Say goodbye to summer. Not just this year’s. The season is **imperilled** by climate change. It was nice while it **lasted**. -  
+Europe faces “civilisational **erasure**” as it is overrun by Muslim immigrants. That is **cobblers**. -  
 
 ## words-Aug-26.md ##  
 words/2026/words-Aug-26.md  

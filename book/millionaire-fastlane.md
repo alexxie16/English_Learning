@@ -86,7 +86,7 @@ When you **plop your butt** on the recliner and **maul through** a can of **Prin
 You're their prey and the **peddlers** don't care if you can afford it or not. -  
 While Joe is killing **ogres** and wizards in the latest dungeon of doom.  
 “Rich people got lucky” is a Sidewalker's **creed** and a **disempowering** belief that strips you of your free will.  
-To tell a great poker player “you're lucky” is to **hurl an insult**. Likewise, to **ascribe** luck to a self-made millionaire's success is to perform the same insult. -  
+To tell a great poker player “you're lucky” is to **hurl an insult**. Likewise, to **ascribe** luck to a self-made millionaire's success is to perform the same insult.   
 These people are searching for that **elusive** “big hit.” While the talented make it through  
 Sidewalkers are ripe for **swindling** because they seek events and want to avoid process.  
 Faith **unto** others, and when things don't work out as intended, blame **unto** others.  

@@ -17,11 +17,11 @@
 
 ## Weeks   
 
+xxx  
+
 ------------------  
 
-### Words with Questions  
-
-brusque  
+## Words with Questions  
 
 marquee  
 
@@ -115,23 +115,25 @@ a verb word Saylor said in the end
 ## Regular Recordings  
 **bungle, bumble, blunder**,   
 **procreate, procreation, reproductive, generative, seminal**,   
-
-
 **glum, glom**,   
+**scoff, scorn, sneer**,   
+**rectify, ratify, deify**  
 
+I'm not gonna let you **glom onto** my new hit show!  
+Lenard might have **defied** one, but I won't have you **talking smack** about the others.   
+
+If you try to patch this **thingamajig** and that **thingamabob** that was introduced by the implementation of some TODO, you end up in situations like this. -  
+
+You might want to **hold off**. Because your boss gonna need me.  
 The **widowed** mother reared up the two children.   
 
-
 Mosquito **incense**, **incense paper**,  
-
 I'm terribly **squeamish**. I can't bear gory films.  
 This movie is not for the **squeamish**.  
 
 By **funnelling** money to Sierra Leone’s political elite and funding large parts of the state itself, Jos Leijdekkers has **amassed** perks that would be the envy of a **Bond villain**.  
-
 If you're a **debtor**, then you want the money to be worth less, so you replay less, and vice versa.   
 **geometrically** diminishing supply that can not be modified no matter how hard you try.  
-
 
 These trends are **fickle**, you need to check your conviction.   
 
@@ -153,11 +155,6 @@ Some guys really **take this to heart**, so they view such spaces as entirely **
 
 The shipwreck was a **harrowing** experience.  
 
----   
-
-
-What Mao can teach China about managing America. An **insurgent** power has fought the incumbent to a stalemate.  
-German politics is fragmenting, **fraying** and radicalising.   
 
 
 ### Week 38  
@@ -251,11 +248,14 @@ This **wishy-washy** statement always made me felt uneasy.
 
 ### Economist Newsletter  
 
+What Mao can teach China about managing America. An **insurgent** power has fought the **incumbent** to a **stalemate**. -    
+German politics is fragmenting, **fraying** and radicalising.   
+
 South Africa is at risk of becoming a **mafia state**.  
 Soaring bond yields, **gaping deficits** and towering debts: what could go wrong?  
 Say goodbye to summer. Not just this year’s. The season is **imperilled** by climate change. It was nice while it **lasted**. -  
 
-Does it have anything to do with the fact that younger men tend to be a bit overbearing and short **tempered**?  
+Does it have anything to do with the fact that younger men tend to be a bit **overbearing** and **short tempered**?  
 
 The economic **folly** of free buses.  
 Russia’s **sham** election is **descending** into **farce**.  
@@ -263,7 +263,7 @@ Is it still worthwhile to teach **cursive** in school? The comeback of **joined-
 OpenAI announced that a team of its agents had solved a theoretical problem that has **stumped** mathematicians for decades.  
 Takaichi Sanae’s big-spending plans are **unnerving** markets.  
 So I commend to you our **painstakingly** balanced cover package on the truth and lies about Islam in Europe.   
-Europe faces “civilisational **erasure**” as it is overrun by Muslim immigrants. That is **cobblers**.  
+Europe faces “civilisational **erasure**” as it is overrun by Muslim immigrants. That is **cobblers**. -    
 A new Economist podcast series looks at the rise, **abetted** by Elon Musk, of Tommy Robinson, Britain’s most **prominent** far-right **rabble-rouser**.  
 How Donald Trump **boxed his party in**.  
 Russia has turned its schools into **indoctrination** machines.  
@@ -272,6 +272,18 @@ Quantifying anger in American politics. - America is **awash** in **indignation*
 It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Canada’s leader must use all his **guile** to **defuse** a grave threat to his country’s economy.  
 
 ## Words Explain   
+
+brusque  
+
+Mure   
+
+maraud  
+
+collate  
+
+**glum**  
+
+---  
 
 **Bilk**  
    - **Definition**: To cheat or defraud someone, often by taking away their money or possessions.  
@@ -304,7 +316,7 @@ It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Ca
 ---  
 
 **Ribald**  
-   - **Definition**: Referring to language or behavior that is vulgar, irreverently humorous, or indecent.  
+   - **Definition**: Referring to language or behavior that is vulgar, **irreverently** humorous, or **indecent**.  
    - **Common Usage**: Less common, often found in literary or theatrical contexts when discussing humor or language.  
    - **Examples**:  
      - The ribald jokes made at the party were met with both laughter and shock.  
