@@ -14,7 +14,7 @@ After working hard to get what we want, we routinely lose interest **in the obje
 One key to happiness, then, is to **forestall** the adaptation process: We need to take steps to prevent ourselves from taking for granted,  
 Consider the person who has been reduced to possession of only a **loincloth**.  
 Although they offer **downtrodden** people advice on how to make their existence more tolerable, the Stoics are **by no means** in favor of keeping these people in their state of **subjugation**.  
-But as children grow older, they **grow jaded**. -  
+But as children grow older, they **grow jaded**.   
 Those who come close to dying but subsequently revive typically regain their **zest** for living.  
 But more to the point, it seems unlikely that a Stoic will gain tranquility as a result of entertaining such thoughts. **To the contrary**, he is likely to end up **glum** and anxiety-ridden. -  
 In particular, he is likely to be **racked with** “if only” thoughts: “If only I had spent more time playing with her! If only I had told her more bedtime stories!  

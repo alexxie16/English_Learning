@@ -1,6 +1,5 @@
 ## guide-to-good-life.md ##  
 book/guide-to-good-life.md  
-But as children grow older, they **grow jaded**. -  
 But more to the point, it seems unlikely that a Stoic will gain tranquility as a result of entertaining such thoughts. **To the contrary**, he is likely to end up **glum** and anxiety-ridden. -  
 We have it entirely within our power, for example, to prevent **viciousness** and **cupidity** from finding a home in our soul. -  
 Marcus recommends that when our practice **falls short** of Stoic **precepts**, we should not become **despondent** and certainly should not give up our attempts to practice Stoicism; -  
@@ -52,7 +51,12 @@ Even our e-mails are more **brusque** and **impersonal**. -
 
 ## words-Sep-26.md ##  
 words/2026/words-Sep-26.md  
+Saddam Hussein had been captured **skulking** in a spider hole. -  
+My face **scrunched** with rage when Cooper picked up his **pudgy** **round arms** to wave. -  
 If you try to patch this **thingamajig** and that **thingamabob** that was introduced by the implementation of some TODO, you end up in situations like this. -  
+I know he's been **castigated** for being a, you know, a **profligate** **philanderer**. -  
+Locating, educating, and **remunerating** Bitcoin Open-Source Engineers in the Global South. -  
+They foster a sense of **aggrieved** entitlement. -  
 He was a **congenital** liar and usually in debt. -  
 Please **elucidate** the reasons for your action. -  
 Clouds of dust **billowed out** as the cars passed. -  

@@ -16,7 +16,6 @@
 - 🏛️ [Economist Newsletter](#economist-newsletter)  
 
 ## Weeks   
-
 xxx  
 
 ------------------  
@@ -59,6 +58,10 @@ throng
 
 ## Verb Words  
 
+**infringe**  
+
+**gloat**  
+
 **slink**  
 
 **dismay, dismiss**  
@@ -76,7 +79,7 @@ a verb word Saylor said in the end
 
 **prolific, proliferate, profligate**.  
 
-**prudent, prudish, priggish**,   
+**prudent, prudish, priggish, straight-laced**,   
 **Fetid, putrid, rancid, stinky, filthy, pungent, smelly**   
 
 **simpleton**, **nitwit**, **dimwit**,   
@@ -89,7 +92,6 @@ a verb word Saylor said in the end
 **grumpy, grouchy, crabby, cranky, crotchety, cantankerous**  
 
 **dredge, drudge, trudge, trek**  
-
 **prosperous, auspicious, propitious**   
 **munchkin, goblin, elf**,  
 
@@ -97,19 +99,15 @@ a verb word Saylor said in the end
 **scrawny, skinny, slender, slim**  
 
 **glint, gleam, shimmer, glitter**  
-
 **lumbar, lumber, slumber**,   
-
 **calamity, catastrophe**  
 
 **Mesmerize, enthral, enamor, dazzle, spellbind, spellbound, captivate, possess, charm**  
 
 **blemish, fleck, tarnish, stain**  
 **suet, tallow, lard, ghee**,   
-
 **abnegate, abstain(abstinence), forgo**  
 **bestow, bequeath, subjugate**  
-
 **pedicure, manicure, salon**   
 
 ## Regular Recordings  
@@ -119,16 +117,65 @@ a verb word Saylor said in the end
 **scoff, scorn, sneer**,   
 **rectify, ratify, deify**  
 
+hackneyed  
+
+ointment, balm, unguent,   
+
+iconoclastic   
+maraud  
+
+---  
+
+plough, plow, till   
+flog, flagellate, whip, thrash, lash, whip  
+
+
+It is sometimes hard to muster the positivity in the bear market doldrums, but zooming out to get perspective always brings it back for me.  
+
+I think people believe neutrality would be a very **bland** existence. No, this is the existence little children live.  
+If you look at little children, **on balance**, they’re generally pretty happy because they are really **immersed in** the environment and the moment, without any thought of how it should be given their personal preferences and desires.   
+
+--- economist  
+
+A **foiled plot** in Fairford is predictable but **puzzling**. The threat to Britain’s military bases is real, and complicated   
+Hollywood’s novel obsession with literary adaptations. Why new film and TV shows resemble a **highbrow** reading list.  
+Australia’s giant data-centre boom. Why the lucky country is striking AI **paydirt**.  
+Saddam Hussein had been captured **skulking** in a spider hole. -     
+
+### Week 39  
+
+My face **scrunched** with rage when Cooper picked up his **pudgy** **round arms** to wave. -    
+
+
+Think I've given our consultants a little too much **sway**.  
+We're also **lulled** into that what happened in the first 40 years post WWII.  
+Europe has **come to terms** with it(Auto industry changing).  
+
+It's at puberty where things just go **hog wild**.  
+One of the most **outspoken** and prolific programmers in the world.  
+
+### Glom onto, Glum  
+
+> **glom onto** is a real expression, but it’s not especially common in everyday modern English. It has a slightly **quirky**, informal feel.  
+
 I'm not gonna let you **glom onto** my new hit show!  
+I’m not gonna let you **latch onto** my new hit show!  
+
+The players sat there with glum looks on their faces. -    
+
+---  
+
 Lenard might have **defied** one, but I won't have you **talking smack** about the others.   
+
+I hear **the smack of** collusion between them.   
 
 If you try to patch this **thingamajig** and that **thingamabob** that was introduced by the implementation of some TODO, you end up in situations like this. -  
 
 You might want to **hold off**. Because your boss gonna need me.  
-The **widowed** mother reared up the two children.   
+The **widowed** mother **reared up** the two children.   
 
 Mosquito **incense**, **incense paper**,  
-I'm terribly **squeamish**. I can't bear gory films.  
+I'm terribly **squeamish**. I can't bear **gory** films.  
 This movie is not for the **squeamish**.  
 
 By **funnelling** money to Sierra Leone’s political elite and funding large parts of the state itself, Jos Leijdekkers has **amassed** perks that would be the envy of a **Bond villain**.  
@@ -140,21 +187,18 @@ These trends are **fickle**, you need to check your conviction.
 Buy bitcoin when a lot of nocoiners are posting red screenshot and **gloating** on Twitter.   
 Don't **gloat** over your rival's misfortune.  
 
-**Diplomatic furore**  
-
 He **succumbed** to drink and a **profligate** lifestyle.  
-I know he's been **castigated** for being a, you know, a **profligate** **philanderer**.  
+I know he's been **castigated** for being a, you know, a **profligate** **philanderer**. -    
 I'm your lobbyist, not your **henchman**.  
 
-Locating, educating, and **remunerating** Bitcoin Open-Source Engineers in the Global South.  
+Locating, educating, and **remunerating** Bitcoin Open-Source Engineers in the Global South. -    
 You're **off to a great start**.  
 
-They foster a sense of **aggrieved** entitlement.  
-As usual, most answers to this question lay blame at the feet of redpill and **incel** influencers, misogyny, etc.  
+They foster a sense of **aggrieved** entitlement. -    
+As usual, most answers to this question **lay blame** at the feet of redpill and **incel** influencers, misogyny, etc.  
 Some guys really **take this to heart**, so they view such spaces as entirely **off limits** for romance.  
 
 The shipwreck was a **harrowing** experience.  
-
 
 
 ### Week 38  
@@ -247,6 +291,13 @@ So many bad practices over the years and **culminated** in this mess.
 This **wishy-washy** statement always made me felt uneasy.  
 
 ### Economist Newsletter  
+
+**Diplomatic furore**  
+
+The sportswear giant is trying to recapture the **zeitgeist**.   
+The **equinox** has arrived, which means the northern hemisphere is headed into autumn.  
+And is there an investment that’ll help you **ride out** the day when the robots **go rogue**?  
+After **nixing** Iran proposal, Trump tells Axios he expects talks this week.  
 
 What Mao can teach China about managing America. An **insurgent** power has fought the **incumbent** to a **stalemate**. -    
 German politics is fragmenting, **fraying** and radicalising.   
@@ -413,7 +464,7 @@ collate
    - **Examples**:  
      - She spurned his advances, insisting she was not interested in a relationship.  
      - The artist spurned conventional techniques to create his unique style.  
-   - **Alternatives**: Reject, scorn, disdain.  
+   - **Alternatives**: Reject, scorn, disdain, scoff.  
 
 ---   
 
@@ -488,14 +539,24 @@ collate
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
+Lenard might have **defied** one, but I won't have you **talking smack** about the others.   
+You might want to **hold off**. Because your boss gonna need me.  
+I'm your lobbyist, not your **henchman**.  
+
 If you **hang back** and stay cool, the woman come back to you.  
 
 **Stand back and stand down**.   
-
 **Harbor** the knowledge of knowing who is the **perpetrator**.   
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
+
+Some guys really **take this to heart**, so they view such spaces as entirely **off limits** for romance.  
+This movie is not for the **squeamish**.  
+He **succumbed** to drink and a **profligate** lifestyle.  
+
+We're also **lulled** into that what happened in the first 40 years post WWII.  
+Europe has **come to terms** with it(Auto industry changing).  
 
 Let's **pace** the frontier.  
 He **bellows**, **rends the air with anguish**.  
