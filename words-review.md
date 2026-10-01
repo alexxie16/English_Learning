@@ -10,9 +10,7 @@ Although ancient Romans normally went out in public wearing shoes and a **tunic*
 ## bitcoin-standard.md ##  
 book/bitcoin-standard.md  
 Naturally, then, neither beauty nor longevity matters anymore, replaced with political **prattling** and the ability to impress bureaucrats who control the major funding sources to the large galleries and museums. -  
-have received this critical appraisal by janitors more discerning than the insecure **nouveau rich** who spent millions of dollars on what the janitors threw away. -  
 The SHA‐ 256 hashing function is **an integral part** of the operation of the Bitcoin system. -  
-the possibility of a global return to sound money and liberal government is extremely unlikely as these concepts are largely **alien to** the vast majority of politicians and voters worldwide, who have been **reared** for generations to understand government control of money and morality as necessary for the functioning of any society. -  
 Blockchains with their own currency, such as Bitcoin, exist **orthogonally** to the law; -  
 
 ## millionaire-fastlane.md ##  
@@ -24,16 +22,13 @@ When you **plop your butt** on the recliner and **maul through** a can of **Prin
 You're their prey and the **peddlers** don't care if you can afford it or not. -  
 when I was a teenager, my mother **chummed with** friends at a local restaurant. -  
 An investment company had **bilked** millions of dollars from investors. -  
-When you **bequeath** control to others, you essentially become a **hitchhiker** with no seat belt. -  
 You ignored the tickle of logic in your brain. You are a victim of your own **malfeasance**. -  
 As it turns out, I was correct, and that truth **crystallized** because I chose to make financial decisions for myself. I didn't rely on the **pontificators** at CNBC who **rapaciously** declared that housing was safe. -  
 Responsibility is the **forefather** to accountability, but one doesn't **evidence** the other. -  
 A strategy that requires your life and your dreams to be paid as **penance** is **a sucker's bet**. -  
 Look no further than Friday night when people celebrate freedom as the Slowlane dictatorship takes a weekend **furlough**. -  
-Time becomes the **lynchpin** for wealth that **congenitally** ties to the mathematical handicaps of mortality. -  
 Unless you plan on living forever, this relationship is **dubiously** **foolhardy**. -  
 Time is your **primordial** fuel and it should not be traded for money. -  
-If an education **entombs** you under a mountain of debt and **shackles** you to a job for the rest of your life, is it really a good education? -  
 Chuma **trolls up** the town square **commandeering** a 25-foot **contraption**, a towering machine built from a twisted maze of **gantries**, wheels, levers, and ropes. -  
 After a short **trawl** to Chuma's barren pyramid plot, Azur's suspicions are confirmed. -  
 Yes, these people are still trading their time for money, but in an unprecedented **stratum** of value. -  

@@ -29,7 +29,7 @@ I've grown a **goitre** by dwelling in this den—
 existential **angst** as ways to **cow** audiences into appreciating their art, and often added some pretense to political ideals,  
 Naturally, then, neither beauty nor longevity matters anymore, replaced with political **prattling** and the ability to impress bureaucrats who control the major funding sources to the large galleries and museums. -    
 only for modern art lovers to **swarm** around them in admiration, illustrating the utter **vacuity** of our era's artistic tastes.  
-have received this critical appraisal by janitors more discerning than the insecure **nouveau rich** who spent millions of dollars on what the janitors threw away. -    
+have received this critical appraisal by janitors more discerning than the insecure **nouveau rich** who spent millions of dollars on what the janitors threw away.   
 
 ## Chapter 6: Capitalism's Information System  
 making **sound decisions** based on prices impossible.  
@@ -57,7 +57,7 @@ a few of the most **salient** questions surrounding Bitcoin's operation are exam
 By surviving the closing of the Silk Road **unscathed**, Bitcoin demonstrated that it is far more than a currency for crime,  
 Computer security is a fundamentally **intractable** problem.   
 The SHA‐ 256 hashing function is **an integral part** of the operation of the Bitcoin system. -    
-the possibility of a global return to sound money and liberal government is extremely unlikely as these concepts are largely **alien to** the vast majority of politicians and voters worldwide, who have been **reared** for generations to understand government control of money and morality as necessary for the functioning of any society. -    
+the possibility of a global return to sound money and liberal government is extremely unlikely as these concepts are largely **alien to** the vast majority of politicians and voters worldwide, who have been **reared** for generations to understand government control of money and morality as necessary for the functioning of any society.   
 All of his writings and communications have been **pored over** obsessively by investigators and journalists to no avail.  
 Non‐ Bitcoin digital currencies are, **in the aggregate**, easy money.  
 But it appears **patently clear** that they cannot compete with Bitcoin on being trustless digital cash.  

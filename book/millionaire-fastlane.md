@@ -92,7 +92,7 @@ Sidewalkers are ripe for **swindling** because they seek events and want to avoi
 Faith **unto** others, and when things don't work out as intended, blame **unto** others.  
 when I was a teenager, my mother **chummed with** friends at a local restaurant. -  
 An investment company had **bilked** millions of dollars from investors. -  
-When you **bequeath** control to others, you essentially become a **hitchhiker** with no seat belt. -  
+When you **bequeath** control to others, you essentially become a **hitchhiker** with no seat belt.   
 You ignored the tickle of logic in your brain. You are a victim of your own **malfeasance**. -  
 As it turns out, I was correct, and that truth **crystallized** because I chose to make financial decisions for myself. I didn't rely on the **pontificators** at CNBC who **rapaciously** declared that housing was safe. -  
 Responsibility is the **forefather** to accountability, but one doesn't **evidence** the other. -  
@@ -112,12 +112,12 @@ The Slowlaner accepts an existence of frugality and sacrifice to a tipping-point
 and I didn't need to spend thousands on a college degree to **hawk** insurance.  
 And if that cog becomes **obsolete** or **expendable**? Guess what, you're **out of luck**.  
 Exposing Slowlane **Ineptitude**  
-Time becomes the **lynchpin** for wealth that **congenitally** ties to the mathematical handicaps of mortality. -    
+Time becomes the **lynchpin** for wealth that **congenitally** ties to the mathematical handicaps of mortality.   
 Unless you plan on living forever, this relationship is **dubiously** **foolhardy**. -    
 To create explosive wealth fast, you must abandon the Slowlane formula and its **lecherous** relationship to time.   
 Time is your **primordial** fuel and it should not be traded for money. -    
 Your time should not be an **expendable** resource for wealth because wealth itself is composed of time.  
-If an education **entombs** you under a mountain of debt and **shackles** you to a job for the rest of your life, is it really a good education? -    
+If an education **entombs** you under a mountain of debt and **shackles** you to a job for the rest of your life, is it really a good education?   
 Has your education **indentured** you to a job?  
 Compound interest tables, save 10% of your paycheck, stop drinking expensive coffee, and other chronic Slowlane **diatribes**. Again, the Paradox of Practice **rears its ugly mug**.  
 The Slowlane guru's advice? A **palliative** “Stick to the plan.” Recommit. Rebuild.  

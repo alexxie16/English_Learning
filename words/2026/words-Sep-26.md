@@ -123,14 +123,16 @@ ointment, balm, unguent,
 
 iconoclastic   
 maraud  
+tizzy  
+macerate  
 
 ---  
 
-plough, plow, till   
-flog, flagellate, whip, thrash, lash, whip  
+**plough, plow, till**   
+**flog, flagellate, whip, thrash, lash, whip**  
 
 
-It is sometimes hard to muster the positivity in the bear market doldrums, but zooming out to get perspective always brings it back for me.  
+It is sometimes hard to **muster** the positivity in the bear market **doldrums**, but zooming out to get perspective always brings it back for me.  
 
 I think people believe neutrality would be a very **bland** existence. No, this is the existence little children live.  
 If you look at little children, **on balance**, they’re generally pretty happy because they are really **immersed in** the environment and the moment, without any thought of how it should be given their personal preferences and desires.   
@@ -161,7 +163,7 @@ One of the most **outspoken** and prolific programmers in the world.
 I'm not gonna let you **glom onto** my new hit show!  
 I’m not gonna let you **latch onto** my new hit show!  
 
-The players sat there with glum looks on their faces. -    
+The players sat there with **glum looks** on their faces. -    
 
 ---  
 
