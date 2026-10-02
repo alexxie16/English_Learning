@@ -24,7 +24,6 @@ when I was a teenager, my mother **chummed with** friends at a local restaurant.
 An investment company had **bilked** millions of dollars from investors. -  
 You ignored the tickle of logic in your brain. You are a victim of your own **malfeasance**. -  
 As it turns out, I was correct, and that truth **crystallized** because I chose to make financial decisions for myself. I didn't rely on the **pontificators** at CNBC who **rapaciously** declared that housing was safe. -  
-Responsibility is the **forefather** to accountability, but one doesn't **evidence** the other. -  
 A strategy that requires your life and your dreams to be paid as **penance** is **a sucker's bet**. -  
 Look no further than Friday night when people celebrate freedom as the Slowlane dictatorship takes a weekend **furlough**. -  
 Unless you plan on living forever, this relationship is **dubiously** **foolhardy**. -  
@@ -32,7 +31,6 @@ Time is your **primordial** fuel and it should not be traded for money. -
 Chuma **trolls up** the town square **commandeering** a 25-foot **contraption**, a towering machine built from a twisted maze of **gantries**, wheels, levers, and ropes. -  
 After a short **trawl** to Chuma's barren pyramid plot, Azur's suspicions are confirmed. -  
 Yes, these people are still trading their time for money, but in an unprecedented **stratum** of value. -  
-After a few various **rants and raves** about the car, he **exclaimed**, “I gotta get as many pictures as possible cuz I'll never be able to afford one of these.” -  
 Before they could even pursue flying, the Wright brothers had to break free of society's **natural headwind**-the natural social conditioning that **impregnates** all young minds. -  
 Time passes, dreams die, and what remains? An old **withered** body **forlorn** for what could have been. -  
 Think of the relationships in your life like an **army platoon** readying for battle. -  
@@ -63,7 +61,6 @@ Europe faces “civilisational **erasure**” as it is overrun by Muslim immigra
 ## words-Aug-26.md ##  
 words/2026/words-Aug-26.md  
 The two men managed to **elude** the police for six weeks. -  
-I was afraid they’d **slink away** quietly, but they've really committed to the most cringe **self immolation** possible. -  
 With her **voluptuous** figure, **sparkly** stage costumes and blond **bouffant** **wigs**, she was likened by the writer Chet Flippo to the Big Rock Candy Mountain, the Depression-era symbol of abundance. -  
 **In the aftermath** of the tragedy, a **tribunal** pointed fingers at the captain, the crew, and the builders, but no one looked at the true source of the failure. -  
 It never feels **lewd** and **lecherous**. -  

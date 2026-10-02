@@ -95,7 +95,7 @@ An investment company had **bilked** millions of dollars from investors. -
 When you **bequeath** control to others, you essentially become a **hitchhiker** with no seat belt.   
 You ignored the tickle of logic in your brain. You are a victim of your own **malfeasance**. -  
 As it turns out, I was correct, and that truth **crystallized** because I chose to make financial decisions for myself. I didn't rely on the **pontificators** at CNBC who **rapaciously** declared that housing was safe. -  
-Responsibility is the **forefather** to accountability, but one doesn't **evidence** the other. -  
+Responsibility is the **forefather** to accountability, but one doesn't **evidence** the other.   
 As we dined at a restaurant she **bellyached** about the **nightmarish** **ordeal**.  
 
 ## PART 4: Mediocrity–The Slowlane Roadmap  
@@ -162,7 +162,7 @@ Yes, these people are still trading their time for money, but in an unprecedente
 ## PART 6: Your Vehicle to Wealth–YOU  
 
 Advising a Slowlaner to “pay yourself first” is like advising a **quadriplegic** to climb a **flight of stairs**. It's **futile**.  
-After a few various **rants and raves** about the car, he **exclaimed**, “I gotta get as many pictures as possible cuz I'll never be able to afford one of these.” -    
+After a few various **rants and raves** about the car, he **exclaimed**, “I gotta get as many pictures as possible cuz I'll never be able to afford one of these.”   
 He looked like he was **canvassing** the room as if he was selling something.   
 He eventually got to our table and unleashed the **uncouth**, “Hey, how would you like to earn $ 10,000 per month?”  
 His **eyes popped out of their sockets**, and after he picked them off the table, he **scampered** away like a rat without his cheese.   

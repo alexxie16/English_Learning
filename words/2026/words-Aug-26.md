@@ -118,7 +118,7 @@ The two men managed to **elude** the police for six weeks. -
 The suspect **eluded** a 12-hour **manhunt** before he was caught.  
 That's not automatically **improper**—the transactions were disclosed and subjected to independent review—but it creates an obvious question...  
 
-I was afraid they’d **slink away** quietly, but they've really committed to the most cringe **self immolation** possible. -    
+I was afraid they’d **slink away** quietly, but they've really committed to the most cringe **self immolation** possible.   
 
 Million people will be **flocking in**.   
 Don't **sleep on** this country, it will surprise you.  

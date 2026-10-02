@@ -117,6 +117,9 @@ a verb word Saylor said in the end
 **scoff, scorn, sneer**,   
 **rectify, ratify, deify**  
 
+**plough, plow, till**   
+**flog, flagellate, whip, thrash, lash, whip**  
+
 hackneyed  
 
 ointment, balm, unguent,   
@@ -128,9 +131,20 @@ macerate
 
 ---  
 
-**plough, plow, till**   
-**flog, flagellate, whip, thrash, lash, whip**  
+**Cupid**: The Roman god of **erotic desire**, affection, and romantic love, typically shown as a winged boy with a bow and arrow.  
+**Cupidity**: A formal noun defined as **avarice** or a rapacious hunger for material wealth. It describes someone blinded by the urge to accumulate cash or status.  
 
+**Going against the grain** is not easy, especially when it means you’ve publicly changed your mind.  
+
+She still loves him, **warts and all**.  
+In addition to that, we do our best to practice what we preach and "dogfood" the software we fund, **warts and all**.  
+And right now, support for the red team is **duly** needed.  
+
+> He told her that grief left unexamined stops being a room you pass through and becomes a place you live  
+
+
+Where does the **fire in the belly** come from?  
+Someone would say something **cutting**, and I’d flatten my face and think, a Stoic Wouldn't react.  
 
 It is sometimes hard to **muster** the positivity in the bear market **doldrums**, but zooming out to get perspective always brings it back for me.  
 
