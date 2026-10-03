@@ -31,7 +31,7 @@ People who **flank** their computers with pictures of loved ones aren’t just d
 That delivering instructions in an angry, negative tone **handicaps** their employees before the task is even underway.  
 During a talk, one woman in the audience sat **scowling** at me the entire time.  
 This does not mean you should be inauthentic, **smother** your true feelings, or paint an awkward smile on your face.  
-Lowest marks in performance are generally led by commanders with a negative, controlling, and **aloof** **demeanor**. -  
+Lowest marks in performance are generally led by commanders with a negative, controlling, and **aloof** **demeanor**.   
 And in turn, they made giant **strides** in production, improving their performance by over 40 percent.  
 
 ### PRINCIPLE #2: THE FULCRUM AND THE LEVER  

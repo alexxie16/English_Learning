@@ -231,7 +231,7 @@ Also, that's an unnecessary **ad hominem** attack. 🤣
 I say we have a **brawl** outside hutchins to resolve this, it's the Texas way.  
 A **poignant** point.  
 
-A better tip still is to **get off your bottom** and **strut** (or even **traipse**) around the office. -    
+A better tip still is to **get off your bottom** and **strut** (or even **traipse**) around the office.   
 
 ### Week 32   
 

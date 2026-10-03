@@ -52,7 +52,7 @@ For many readers, I realize, this line of reasoning will **fall flat**. They wil
 If they preserve their tranquility by **shunning** other people, they will fail to do their social duty to form and maintain relationships.  
 A **seeksorrow**, he explains, is “one who **contrives** to give himself **vexation**.  
 Marcus thinks it will be easier for us to deal with **impudent** people if we keep in mind that the world cannot exist without such individuals.  
-The Stoics’ advocacy of sexual reserve will sound **prudish** to modern readers, but they had a point. -    
+The Stoics’ advocacy of sexual reserve will sound **prudish** to modern readers, but they had a point.   
 
 ## ELEVEN Insults: On Putting Up with Put-Downs  
 

@@ -178,7 +178,7 @@ Escaping Human Headwind **Bloviators**.
 You must turn your back on them. Every entrepreneur has **bloviators** in their life.  
 He sold it under a specific **set of circumstances**, which included **the provision** that he had to play the **lead role**.  
 Good people are **conduits** to your dreams, not just in motivational fuel, but in extending your opportunity reach.  
-Think of the relationships in your life like an **army platoon** readying for battle. -    
+Think of the relationships in your life like an **army platoon** readying for battle.   
 You need warriors who are **impervious** to the Death Star and can deactivate the Slowlane tractor beam, not fearful **pansies** who drop their **cargo** at the first sign of Imperial Slowlaners.   
 Unlike natural wind, you are the **arbiter** of your headwinds.  
 Having a life partner who doesn't **ascribe to** your life's ideals and philosophies is like towing a trailer full of **wet manure**.   

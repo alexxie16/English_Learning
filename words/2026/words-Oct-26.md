@@ -52,8 +52,6 @@ throng
 
 ## Words Gallery  
 
-
-## Regular Recordings  
 **bungle, bumble, blunder**,   
 **procreate, procreation, reproductive, generative, seminal**,   
 **glum, glom**,   
@@ -63,8 +61,10 @@ throng
 **plough, plow, till**   
 **flog, flagellate, whip, thrash, lash, whip**  
 
-hackneyed  
 
+## Regular Recordings  
+
+hackneyed  
 ointment, balm, unguent,   
 
 iconoclastic   
@@ -72,7 +72,19 @@ maraud
 tizzy  
 macerate  
 
+exclaim, proclaim, acclaim.   
+
+trudge, trawl, traipse, strut  
+
 ---  
+
+While I am not the first to chafe at their combination of messianism, contempt for ordinary consumers.  
+
+
+Anthropic’s IPO Prospectus Is a Fucking **Doozy**.  
+You know, something exactly **akin to** the “**rapture**” events that religious cultists believe are coming.  
+
+
 
 **Cupid**: The Roman god of **erotic desire**, affection, and romantic love, typically shown as a winged boy with a bow and arrow.  
 **Cupidity**: A formal noun defined as **avarice** or a rapacious hunger for material wealth. It describes someone blinded by the urge to accumulate cash or status.  

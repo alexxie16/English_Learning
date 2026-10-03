@@ -3,7 +3,6 @@ book/guide-to-good-life.md
 But more to the point, it seems unlikely that a Stoic will gain tranquility as a result of entertaining such thoughts. **To the contrary**, he is likely to end up **glum** and anxiety-ridden. -  
 We have it entirely within our power, for example, to prevent **viciousness** and **cupidity** from finding a home in our soul. -  
 Marcus recommends that when our practice **falls short** of Stoic **precepts**, we should not become **despondent** and certainly should not give up our attempts to practice Stoicism; -  
-The Stoics’ advocacy of sexual reserve will sound **prudish** to modern readers, but they had a point. -  
 The political correctness movement has some **untoward** side effects. -  
 Although ancient Romans normally went out in public wearing shoes and a **tunic**, Cato wore neither. -  
 
@@ -33,19 +32,21 @@ After a short **trawl** to Chuma's barren pyramid plot, Azur's suspicions are co
 Yes, these people are still trading their time for money, but in an unprecedented **stratum** of value. -  
 Before they could even pursue flying, the Wright brothers had to break free of society's **natural headwind**-the natural social conditioning that **impregnates** all young minds. -  
 Time passes, dreams die, and what remains? An old **withered** body **forlorn** for what could have been. -  
-Think of the relationships in your life like an **army platoon** readying for battle. -  
 
 ## happiness-advantage.md ##  
 book/happiness-advantage.md  
-Lowest marks in performance are generally led by commanders with a negative, controlling, and **aloof** **demeanor**. -  
 The best way to kick-start this is to start making a daily list of the good things in your job, your career, and your life. It may sound **hokey**, or ridiculously simple—and indeed the activity itself is simple—but over a decade of empirical studies has proven the profound effect it has on the way our brains are wired. -  
 I was met with **ashen** faces and utter silence. -  
 Even our e-mails are more **brusque** and **impersonal**. -  
 
+## words-Oct-26.md ##  
+words/2026/words-Oct-26.md  
+Saddam Hussein had been captured **skulking** in a spider hole. -  
+
 ## words-Sep-26.md ##  
 words/2026/words-Sep-26.md  
-Saddam Hussein had been captured **skulking** in a spider hole. -  
 My face **scrunched** with rage when Cooper picked up his **pudgy** **round arms** to wave. -  
+The players sat there with **glum looks** on their faces. -  
 If you try to patch this **thingamajig** and that **thingamabob** that was introduced by the implementation of some TODO, you end up in situations like this. -  
 I know he's been **castigated** for being a, you know, a **profligate** **philanderer**. -  
 Locating, educating, and **remunerating** Bitcoin Open-Source Engineers in the Global South. -  
@@ -65,7 +66,6 @@ With her **voluptuous** figure, **sparkly** stage costumes and blond **bouffant*
 **In the aftermath** of the tragedy, a **tribunal** pointed fingers at the captain, the crew, and the builders, but no one looked at the true source of the failure. -  
 It never feels **lewd** and **lecherous**. -  
 He was **affable** at one moment, **choleric** the next. -  
-A better tip still is to **get off your bottom** and **strut** (or even **traipse**) around the office. -  
 The **caprice** of the world’s most powerful man has taken Canada to the brink of a disastrous trade war. -  
 **Ostracism** and sanctions have not worked. Less **squeamish** powers, such as Russia and China, are trying to pull Afghanistan into their orbit. -  
 The battle for Hugo Boss. - A British **retail magnate** tries to go **upmarket**. -  
