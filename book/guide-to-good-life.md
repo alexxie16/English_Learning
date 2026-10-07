@@ -22,7 +22,7 @@ To practice negative visualization, after all, is to contemplate the **impermane
 
 ## FIVE The Dichotomy of Control: On Becoming Invincible  
 
-We have it entirely within our power, for example, to prevent **viciousness** and **cupidity** from finding a home in our soul. -    
+We have it entirely within our power, for example, to prevent **viciousness** and **cupidity** from finding a home in our soul.   
 Instead of **moping** for a year before resubmitting her **manuscript**, she might get her moping period down to a week or even a day, and this change will dramatically increase her chance of getting the manuscript published.  
 
 ## SIX Fatalism: Letting Go of the Past … and the Present  

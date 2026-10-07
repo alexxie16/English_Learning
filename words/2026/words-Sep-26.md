@@ -22,28 +22,6 @@ xxx
 
 ## Words with Questions  
 
-marquee  
-
-smarmy  
-
-morose  
-
-revel  
-
-psoriasis  
-
-coquette  
-
-pillory  
-
-upheaval   
-
-throng  
-
-**clammy**  
-
-**calumnies**  
-
 ## Special Words  
 
 **sadistic**  
@@ -116,7 +94,6 @@ a verb word Saylor said in the end
 
 My face **scrunched** with rage when Cooper picked up his **pudgy** **round arms** to wave. -    
 
-
 Think I've given our consultants a little too much **sway**.  
 We're also **lulled** into that what happened in the first 40 years post WWII.  
 Europe has **come to terms** with it(Auto industry changing).  
@@ -157,7 +134,7 @@ These trends are **fickle**, you need to check your conviction.
 Buy bitcoin when a lot of nocoiners are posting red screenshot and **gloating** on Twitter.   
 Don't **gloat** over your rival's misfortune.  
 
-He **succumbed** to drink and a **profligate** lifestyle.  
+He **succumbed** to drink and a **profligate** lifestyle.     
 I know he's been **castigated** for being a, you know, a **profligate** **philanderer**. -    
 I'm your lobbyist, not your **henchman**.  
 
@@ -293,16 +270,6 @@ It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Ca
 
 ## Words Explain   
 
-brusque  
-
-Mure   
-
-maraud  
-
-collate  
-
-**glum**  
-
 ---  
 
 **Bilk**  
@@ -352,8 +319,6 @@ collate
      - The salesman tried to blandish the customers into buying the overpriced product.  
      - She used sweet words to blandish her parents into granting her permission for the trip.  
    - **Alternatives**: Cajole, coax, wheedle.  
-
----   
 
 --   
 

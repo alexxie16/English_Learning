@@ -138,7 +138,7 @@ NA
 
 ## Regular Recordings  
 
-Bitcoin continues its Sideways Summer **trudge** moving between 63 and 66. -    
+Bitcoin continues its Sideways Summer **trudge** moving between 63 and 66.   
 That reminds me, I **have a bone to pick with** you.  
 **pick a bone with someone**.  
 You and I made a **pact** that if **either** of us ever got a hot girlfriend, that person would have his girlfriend hook the other guy up with one of her girlfriends.    

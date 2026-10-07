@@ -56,7 +56,7 @@ The first central bank purchase is likely to make the value of Bitcoin rise sign
 a few of the most **salient** questions surrounding Bitcoin's operation are examined here.  
 By surviving the closing of the Silk Road **unscathed**, Bitcoin demonstrated that it is far more than a currency for crime,  
 Computer security is a fundamentally **intractable** problem.   
-The SHA‐ 256 hashing function is **an integral part** of the operation of the Bitcoin system. -    
+The SHA‐ 256 hashing function is **an integral part** of the operation of the Bitcoin system.   
 the possibility of a global return to sound money and liberal government is extremely unlikely as these concepts are largely **alien to** the vast majority of politicians and voters worldwide, who have been **reared** for generations to understand government control of money and morality as necessary for the functioning of any society.   
 All of his writings and communications have been **pored over** obsessively by investigators and journalists to no avail.  
 Non‐ Bitcoin digital currencies are, **in the aggregate**, easy money.  

@@ -54,7 +54,7 @@ Optimism becomes **maladaptive** when it causes us to grossly overestimate our c
 ### PRINCIPLE # 4: FALLING UP  
 
 At 120 falls, the research assistants **emerged**, **giggled sheepishly**, and admitted they had forgotten to put the video in the recorder.  
-I was met with **ashen** faces and utter silence. -  
+I was met with **ashen** faces and utter silence.   
 economic **whiplash**  
 Unable to predict where the financial tsunami would head next, they were **straitjacketed** by despair and incapable of moving forward.  
 While others gather their **wits**, capitalize on their strengths, and forge ahead.  

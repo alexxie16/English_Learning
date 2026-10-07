@@ -140,7 +140,7 @@ Nonetheless, each is primed for the challenge and honored by the **Pharaoh**'s *
 Chuma, **engrossed** and **unfazed** by his brother's accusation **retorts**, “Azur, you're **short-sightedness** and thirst for wealth have clouded your vision. You build your pyramid and I will build mine.”  
 As Azur walks away, he **chides**, “You fool! Pharaoh will hang you in the **gallows** when he discovers your treason.”  
 Chuma **trolls up** the town square **commandeering** a 25-foot **contraption**, a towering machine built from a twisted maze of **gantries**, wheels, levers, and ropes. -    
-After a short **trawl** to Chuma's barren pyramid plot, Azur's suspicions are confirmed. -    
+After a short **trawl** to Chuma's barren pyramid plot, Azur's suspicions are confirmed.   
 Chuma and his machine accomplish as much as Azur's three years of **toilsome** work.  
 Meanwhile, Azur continues to **dredge away** at the same old routine.  
 Where is this playbook and how do you get it? You have to **forsake** the ideology of the majority and become a Slowlane traitor.  
