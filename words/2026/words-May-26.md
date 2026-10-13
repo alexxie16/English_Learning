@@ -106,7 +106,7 @@ NA
 
 They will **stoop to** every **lowdown** trick.  
 
-Please donate whatever you can to xxx. We have to get this **albatross** from **around our neck**. -    
+Please donate whatever you can to xxx. We have to get this **albatross** from **around our neck**.     
 
 History is **replete** with examples of how governments that have the **prerogative** to create money out of thin air have almost always abused this privilege by turning it against their own people.  
 

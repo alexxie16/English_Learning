@@ -25,26 +25,6 @@
 
 ### Words with Questions  
 
-genial  
-
-comport  
-
-**aegis**  
-
-abrogate  
-
-hackneyed  
-
-nitrite  
-
-**venal**  
-
-**envisage**   
-
-**supercilious**  
-
-**goad**  
-
 ## Special Words  
 
 **opportunist**  

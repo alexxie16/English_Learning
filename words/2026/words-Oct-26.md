@@ -46,11 +46,13 @@ throng
 
 ## Special Words  
 
-
 ## Verb Words  
 
 
 ## Words Gallery  
+**hokey, corny, tacky, cheesy, hackneyed**  
+**attain, attainable, tenable, untenable, tentacle, retain**,   
+**retort, rebuke, refute, rebuttal**,   
 
 **exclaim, proclaim, acclaim**.   
 **trudge, trawl, traipse, strut**  
@@ -74,10 +76,28 @@ iconoclastic
 maraud  
 tizzy  
 macerate  
-
-hokey, corny, etc  
+mealy   
+smirch  
 
 ---  
+
+Did you **tell on** me?  
+
+I have always thought, " he said reflectively, " that the system of mourning, of immuring women in crepe for the rest of their lives and forbidding them normal enjoyment is just as barbarous as the Hindu suttee.  
+I am amazed, Don Lorenzo, how you could possibly think of **immuring** so charming a Girl within the walls of a **Cloister**!  
+
+### Week 41  
+
+In which areas of life are you still **holding back** until you feel like you know what you're doing? Everyone's just **winging it**, you might as well **get on with it**.  
+
+You've got a **soft touch**, but I'm a heavy hitter.  
+These plant eaters are no **pushovers**. They're no...they're no **pansies**.  
+
+I like **rough around the edges**, but a sweetheart inside.  
+Certainly V30 was the **impetus**, if we go into the root cause of fundamentals.  
+Two groups, either **opposition** or **apathy**.  
+
+> The receiver hosts a "payment endpoint," an HTTPS URL that acts as the coordination point. The sender's wallet knows to contact this endpoint because the receiver includes it as a pj= parameter inside a standard BIP-21 payment URI — the same URI format used for ordinary Bitcoin payments.  
 
 His energy, warmth, and curiosity **envelop** you like a blanket.  
 CLARITY Act **cloture** vote failed. The air is coming out of the August Bitcoin balloon.  
@@ -117,6 +137,12 @@ If you look at little children, **on balance**, they’re generally pretty happy
 
 ### Economist Newsletter  
 
+And around 25 years ago Robert Mugabe, the dictator of Zimbabwe, **dispatched** thugs to grab mostly white-owned farms, **immiserating** his country.   
+
+If you’re still wondering why Donald Trump is so loth to restrain the boom in artificial intelligence, see yesterday’s stock market rally.   
+But the president’s approach to AI is at odds with growing public opposition to the technology, not least among his own supporters. Will he change his position?  
+How China manages its oil woes will have global **repercussions**.  
+
 But that sentiment is **pallid** compared with the anger now directed at Manchester City, which broke spending rules to become England’s most successful team, an independent commission **alleges**. -    
 If your moral calculations depend on predicting what the world will be like in the year 2300, there is a good chance they will be **hooey**. -   
 China is giving its economy **a big shot in the arm**. A massive infrastructure scheme may give the country a **sorely needed** boost—and help rebalance the world economy.  
@@ -128,23 +154,75 @@ Saddam Hussein had been captured **skulking** in a spider hole. -
 
 ## Words Explain   
 
-brusque  
+---  
 
-Mure   
+**Brusque**  
+   - **Definition**: Abrupt or offhand in speech or manner; blunt and often rude.  
+   - **Common Usage**: Commonly used in everyday conversation, especially when describing someone's demeanor or interaction style.  
+   - **Examples**:  
+     - His brusque reply made it clear he was in no mood for a chat.  
+     - The waitress was brusque, serving the food without a smile.  
+   - **Alternatives**: Curt, blunt, abrupt.  
 
-maraud  
+---  
 
-collate  
+**Mure**  
+   - **Definition**: To enclose or confine (historically refers to a wall or a barrier).  
+   - **Common Usage**: Rarely used in daily life; mostly found in historical or literary contexts.  
+   - **Examples**:  
+     - The illustration showed the mure that surrounded the ancient village.  
+     - Legends spoke of knights who would brave the mure to rescue their loved ones.  
+   - **Alternatives**: Enclosure, barrier, wall (context-dependent, as this word is less common).  
 
-**glum**  
+---  
+
+**Maraud**  
+   - **Definition**: To roam or go around in quest of plunder; to raid or pillage.  
+   - **Common Usage**: Not common in daily conversation; often used in literature or discussions about historical events.  
+   - **Examples**:  
+     - The pirates would maraud along the coast, searching for unsuspecting ships.  
+     - After the village was abandoned, **bandits** began to **maraud** its ruins.  
+   - **Alternatives**: Pillage, plunder, loot.  
+
+---  
+
+**Collate**  
+   - **Definition**: To gather information and organize it; to arrange in a specific order.  
+   - **Common Usage**: Fairly common in academic, professional, and data-related contexts.  
+   - **Examples**:  
+     - The librarian was tasked with collating all the research papers for the conference.  
+     - You need to collate the data from different sources before drawing any conclusions.  
+   - **Alternatives**: Arrange, organize, compile.  
+
+---  
+
+**Glum**  
+   - **Definition**: Looking or feeling sad; gloomy; morose.  
+   - **Common Usage**: Fairly common in everyday conversation, often used to describe someone's demeanor or mood.  
+   - **Examples**:  
+     - He seemed glum after hearing the disappointing news.  
+     - The glum faces in the room indicated that the event had not gone as planned.  
+   - **Alternatives**: Dismal, dejected, gloomy.  
+
+---   
+
 
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
+
+
+Did you **tell on** me?  
+Certainly V30 was the **impetus**, if we go into the root cause of fundamentals.  
+Two groups, either **opposition** or **apathy**.  
+
 
 Where does the **fire in the belly** come from?  
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
+
+In which areas of life are you still **holding back** until you feel like you know what you're doing? Everyone's just **winging it**, you might as well **get on with it**.  
+
 
 **Going against the grain** is not easy, especially when it means you've publicly changed your mind.  
 In addition to that, we do our best to practice what we preach and "dogfood" the software we fund, **warts and all**.  

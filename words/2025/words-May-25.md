@@ -21,15 +21,16 @@ Special Words
 
 **aptitude**  
 
-parasitic  
+**parasitic**  
 
-heuristic  
+**heuristic**  
 
-divulge  
 
 ### Verb Words  
 
-beset  
+**divulge**  
+
+**beset**  
 
 -------------------------  
 
@@ -312,34 +313,24 @@ wampum??
 delude, delusive.  
 delude, deceive, dishonest, fool  
 tutelage??  
-enamored??  
 elide??  
 Layaway  
 **Jubilant**  
 
-islet  
 atelier  
 
 gloat?  
 
-slug?? different meanings  
-mange  
-dominatrix .  
-perfidy  
 
 esperanto  
+perfidy  
 
 coterie  
 
-
-cavalcade.  
-plumage.  
-
-irenic.  
+cavalcade  
+plumage  
+irenic  
 sallow  
-
-**volition**.  
-
 
 
 ## Conversation  
