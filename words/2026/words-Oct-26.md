@@ -66,7 +66,6 @@ throng
 **plough, plow, till**   
 **flog, flagellate, whip, thrash, lash, whip**  
 
-
 ## Regular Recordings  
 
 hackneyed  
@@ -81,7 +80,7 @@ smirch
 
 ---  
 
-Did you **tell on** me?  
+Points taken.  
 
 I have always thought, " he said reflectively, " that the system of mourning, of immuring women in crepe for the rest of their lives and forbidding them normal enjoyment is just as barbarous as the Hindu suttee.  
 I am amazed, Don Lorenzo, how you could possibly think of **immuring** so charming a Girl within the walls of a **Cloister**!  
@@ -210,6 +209,10 @@ Saddam Hussein had been captured **skulking** in a spider hole. -
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
+What's life without **whimsy**.  
+In a few minutes, when I **gloat over** the failure of this **enterprise**, how would you prefer I do it?  
+Or just my normal look of **haughty derision**?  
+.. to **pray on** the **gullible** and lonely, in addition, I'm being **blackmailed** with a hidden dirty sock.  
 
 Did you **tell on** me?  
 Certainly V30 was the **impetus**, if we go into the root cause of fundamentals.  

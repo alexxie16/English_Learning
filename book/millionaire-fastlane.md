@@ -83,18 +83,18 @@ We have become a nation where **unfettered** spending and **material extravaganc
 If you're **held hostage** to your lifestyle, you aren't wealthy, because you lack freedom.  
 Sure you can **assuage** affordability and make **outlandish** arguments, often starting with… “I can afford this as long as …  
 When you **plop your butt** on the recliner and **maul through** a can of **Pringles**, you choose pleasure now **in lieu of** pain later. -  
-You're their prey and the **peddlers** don't care if you can afford it or not. -  
+You're their prey and the **peddlers** don't care if you can afford it or not.   
 While Joe is killing **ogres** and wizards in the latest dungeon of doom.  
 “Rich people got lucky” is a Sidewalker's **creed** and a **disempowering** belief that strips you of your free will.  
 To tell a great poker player “you're lucky” is to **hurl an insult**. Likewise, to **ascribe** luck to a self-made millionaire's success is to perform the same insult.   
 These people are searching for that **elusive** “big hit.” While the talented make it through  
 Sidewalkers are ripe for **swindling** because they seek events and want to avoid process.  
 Faith **unto** others, and when things don't work out as intended, blame **unto** others.  
-when I was a teenager, my mother **chummed with** friends at a local restaurant. -  
+when I was a teenager, my mother **chummed with** friends at a local restaurant.   
 An investment company had **bilked** millions of dollars from investors. -  
 When you **bequeath** control to others, you essentially become a **hitchhiker** with no seat belt.   
 You ignored the tickle of logic in your brain. You are a victim of your own **malfeasance**. -  
-As it turns out, I was correct, and that truth **crystallized** because I chose to make financial decisions for myself. I didn't rely on the **pontificators** at CNBC who **rapaciously** declared that housing was safe. -  
+As it turns out, I was correct, and that truth **crystallized** because I chose to make financial decisions for myself. I didn't rely on the **pontificators** at CNBC who **rapaciously** declared that housing was safe.   
 Responsibility is the **forefather** to accountability, but one doesn't **evidence** the other.   
 As we dined at a restaurant she **bellyached** about the **nightmarish** **ordeal**.  
 

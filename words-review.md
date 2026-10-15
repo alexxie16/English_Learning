@@ -36,7 +36,6 @@ If you woke up with a clear head, I expect you’re one of those **priggish**, *
 
 ## words-May-26.md ##  
 words/2026/words-May-26.md  
-Please donate whatever you can to xxx. We have to get this **albatross** from **around our neck**.   
 
 ## guide-to-good-life.md ##  
 book/guide-to-good-life.md  
@@ -56,11 +55,8 @@ All I can be is that creepy **munchkin** pointing off in the distance with a **s
 Our old Dodge Duster started **billowing** smoke and **clanked** to a stop. -  
 Wealth **eludes** most people because they are **preoccupied** with events while **disregarding** process. -  
 When you **plop your butt** on the recliner and **maul through** a can of **Pringles**, you choose pleasure now **in lieu of** pain later. -  
-You're their prey and the **peddlers** don't care if you can afford it or not.   
-when I was a teenager, my mother **chummed with** friends at a local restaurant.   
 An investment company had **bilked** millions of dollars from investors. -  
 You ignored the tickle of logic in your brain. You are a victim of your own **malfeasance**. -  
-As it turns out, I was correct, and that truth **crystallized** because I chose to make financial decisions for myself. I didn't rely on the **pontificators** at CNBC who **rapaciously** declared that housing was safe.   
 A strategy that requires your life and your dreams to be paid as **penance** is **a sucker's bet**. -  
 Look no further than Friday night when people celebrate freedom as the Slowlane dictatorship takes a weekend **furlough**. -  
 Unless you plan on living forever, this relationship is **dubiously** **foolhardy**. -  
