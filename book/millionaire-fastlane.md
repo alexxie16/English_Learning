@@ -113,7 +113,7 @@ and I didn't need to spend thousands on a college degree to **hawk** insurance.
 And if that cog becomes **obsolete** or **expendable**? Guess what, you're **out of luck**.  
 Exposing Slowlane **Ineptitude**  
 Time becomes the **lynchpin** for wealth that **congenitally** ties to the mathematical handicaps of mortality.   
-Unless you plan on living forever, this relationship is **dubiously** **foolhardy**. -    
+Unless you plan on living forever, this relationship is **dubiously** **foolhardy**.   
 To create explosive wealth fast, you must abandon the Slowlane formula and its **lecherous** relationship to time.   
 Time is your **primordial** fuel and it should not be traded for money. -    
 Your time should not be an **expendable** resource for wealth because wealth itself is composed of time.  

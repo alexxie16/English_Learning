@@ -1,5 +1,7 @@
 ## words-Oct-26.md ##  
 words/2026/words-Oct-26.md  
+Even his artistic **oeuvre**, though **sublime**, is **minute**. -  
+Suffered a major customer data breach in 2020 that leaked names and addresses of customers, a significant **lapse** for a company built on security. -  
 While I am not the first to **chafe at** their combination of messianism, contempt for ordinary consumers. -  
 Anthropic’s IPO Prospectus Is a Fucking **Doozy**. -  
 But that sentiment is **pallid** compared with the anger now directed at Manchester City, which broke spending rules to become England’s most successful team, an independent commission **alleges**. -  
@@ -34,9 +36,6 @@ The **caprice** of the world’s most powerful man has taken Canada to the brink
 The battle for Hugo Boss. - A British **retail magnate** tries to go **upmarket**. -  
 If you woke up with a clear head, I expect you’re one of those **priggish**, **strait-laced** Gen Zs. -  
 
-## words-May-26.md ##  
-words/2026/words-May-26.md  
-
 ## guide-to-good-life.md ##  
 book/guide-to-good-life.md  
 But more to the point, it seems unlikely that a Stoic will gain tranquility as a result of entertaining such thoughts. **To the contrary**, he is likely to end up **glum** and anxiety-ridden. -  
@@ -59,7 +58,6 @@ An investment company had **bilked** millions of dollars from investors. -
 You ignored the tickle of logic in your brain. You are a victim of your own **malfeasance**. -  
 A strategy that requires your life and your dreams to be paid as **penance** is **a sucker's bet**. -  
 Look no further than Friday night when people celebrate freedom as the Slowlane dictatorship takes a weekend **furlough**. -  
-Unless you plan on living forever, this relationship is **dubiously** **foolhardy**. -  
 Time is your **primordial** fuel and it should not be traded for money. -  
 Chuma **trolls up** the town square **commandeering** a 25-foot **contraption**, a towering machine built from a twisted maze of **gantries**, wheels, levers, and ropes. -  
 Yes, these people are still trading their time for money, but in an unprecedented **stratum** of value. -  
