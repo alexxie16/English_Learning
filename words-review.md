@@ -36,6 +36,15 @@ The **caprice** of the world’s most powerful man has taken Canada to the brink
 The battle for Hugo Boss. - A British **retail magnate** tries to go **upmarket**. -  
 If you woke up with a clear head, I expect you’re one of those **priggish**, **strait-laced** Gen Zs. -  
 
+## 4000-weeks.md ##  
+book/4000-weeks.md  
+“in a new kind of everlasting present”—an anxious limbo of social media scrolling and **desultory** Zoom calls and **insomnia**, in which it felt impossible to make meaningful plans, or even to clearly picture life beyond the end of next week. -  
+“I have by **sundry** people [been] horribly cheated,” fumed the iron **magnate** Ambrose Crowley. -  
+Who was flying over the American Midwest on a business trip, reading a book, when she was **accosted** by a thought: “I hate my life.” -  
+We waste our lives **railing against** traffic jams and toddlers for having the **temerity** to take the time they take, because they’re **blunt reminders** of how little control we truly have over our schedules. -  
+The desire, by the time we die, to have truly mattered in the **cosmic** scheme of things, as opposed to being instantly **trampled** **underfoot** by the advancing **eons**. (aeon) -  
+Anything could happen, from an urgent email that **scuppers** your plans for the morning to a **bereavement** that shakes your world to its foundations. -  
+
 ## guide-to-good-life.md ##  
 book/guide-to-good-life.md  
 But more to the point, it seems unlikely that a Stoic will gain tranquility as a result of entertaining such thoughts. **To the contrary**, he is likely to end up **glum** and anxiety-ridden. -  

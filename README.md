@@ -11,15 +11,11 @@ Improving English vocabulary for a non native-speaker is taxing and time-consumi
 
 ## Books
 
-[A guide to good life](/book/guide-to-good-life.md)
+[4000 Weeks Time Management](/book/4000-weeks.md)
 
-[The Bitcoin Standard](/book/bitcoin-standard.md)
+[A guide to good life](/book/guide-to-good-life.md) | [The Bitcoin Standard](/book/bitcoin-standard.md)
 
-[Millionaire Fastlane](/book/millionaire-fastlane.md)
-
-[The happiness advantage](./book/happiness-advantage.md)
-
-[The Blocksize War](./book/blocksize-war.md)
+[Millionaire Fastlane](/book/millionaire-fastlane.md) | [The happiness advantage](./book/happiness-advantage.md) | [The Blocksize War](./book/blocksize-war.md)
 
 ## 2026
 

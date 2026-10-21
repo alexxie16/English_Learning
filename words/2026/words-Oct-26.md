@@ -46,6 +46,12 @@ throng
 
 ## Special Words  
 
+**kernel**  
+
+**blunt**  
+
+**consoling**  
+
 **neurotic**  
 
 ## Verb Words  
@@ -83,9 +89,35 @@ macerate
 mealy   
 smirch  
 
+brandish  
+gypsum  
+upbraid  
+iconoclastic  
+cajole  
+
 **radian, gradient, slope, curve/curvature**  
 
+brusque, brash, crass, cheeky, edgy, feisty  
+
+bewilder, bewitch  
+
+Sliver, slice, swath, glimmer,   
+polemic, polemical, polemist/polemicist, polestar  
+
+engross, enamored, enamel, enslave  
+
+
 ---  
+
+### week 42  
+
+
+Writers must sometimes opt for being brusque but effective instead of sympathetic but ignored.  
+
+
+Evelyn is **entertaining** company, with **droll** and sardonic observations on nearly everything.   
+
+I think most **neurodivergent** people are deeply feeling people.  
 
 It is sometimes hard to **muster** the positivity in the bear market **doldrums**, but zooming out to get perspective always brings it back for me.  
 
@@ -235,7 +267,7 @@ Saddam Hussein had been captured **skulking** in a spider hole. -
 
 ---  
 
-**Mure**  
+**Mure, Immure**  
    - **Definition**: To enclose or confine (historically refers to a wall or a barrier).  
    - **Common Usage**: Rarely used in daily life; mostly found in historical or literary contexts.  
    - **Examples**:  
@@ -290,11 +322,12 @@ Did you **tell on** me?
 Certainly V30 was the **impetus**, if we go into the root cause of fundamentals.  
 Two groups, either **opposition** or **apathy**.  
 
-
 Where does the **fire in the belly** come from?  
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
+
+This is the **kernel** of wisdom in the cliché of the celebrity who claims that a brush with cancer was “the best thing that ever happened” to them.   
 
 One key to happiness, then, is to **forestall** the adaptation process: We need to take steps to prevent ourselves from taking for granted,  
 

@@ -40,6 +40,7 @@ export files=(
   "./words/2026/words-Mar-26.md"
   "./words/2026/words-Feb-26.md"
   "./words/2026/words-Jan-26.md"
+  "./book/4000-weeks.md"
   "./book/guide-to-good-life.md"
   "./book/bitcoin-standard.md"
   "./book/millionaire-fastlane.md"
