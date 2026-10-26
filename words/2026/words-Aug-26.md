@@ -294,7 +294,7 @@ We know the wait can be **unnerving**, but **rest assured** that the team is wor
 
 ### Economist Newsletter  
 
-The **caprice** of the world’s most powerful man has taken Canada to the brink of a disastrous trade war. -   
+The **caprice** of the world’s most powerful man has taken Canada to the brink of a disastrous trade war.   
 It may be pleasing to watch Mark Carney **stand up to** Donald Trump, but now Canada’s leader must use all his **guile** to **defuse** a grave threat to his country’s economy.  
    
 Quantifying anger in American politics. - America is **awash** in **indignation**.  

@@ -210,7 +210,7 @@ That restaurant was once considered the **acme** of fine dining.
 
 The national security tool won't **lapse** Thursday night, but lawmakers are **punting** another **thorny** fight just weeks down the road.  
 
-Clouds of dust **billowed out** as the cars passed. -  
+Clouds of dust **billowed out** as the cars passed.   
 
 I like my community there because it’s small and generally free of both drama and nonsense. But small **precludes** mainstream cultural relevance. -    
 E.g. **Abdication** is **precluded** by the lack of a possible successor.   

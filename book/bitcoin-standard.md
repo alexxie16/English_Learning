@@ -27,7 +27,7 @@ To make matters worse, this phrase is usually followed by emotional **blackmail*
 Debt‐fueled mass consumption is as much a normal part of capitalism as **asphyxiation** is a normal part of respiration.  
 I've grown a **goitre** by dwelling in this den—  
 existential **angst** as ways to **cow** audiences into appreciating their art, and often added some pretense to political ideals,  
-Naturally, then, neither beauty nor longevity matters anymore, replaced with political **prattling** and the ability to impress bureaucrats who control the major funding sources to the large galleries and museums. -    
+Naturally, then, neither beauty nor longevity matters anymore, replaced with political **prattling** and the ability to impress bureaucrats who control the major funding sources to the large galleries and museums.   
 only for modern art lovers to **swarm** around them in admiration, illustrating the utter **vacuity** of our era's artistic tastes.  
 have received this critical appraisal by janitors more discerning than the insecure **nouveau rich** who spent millions of dollars on what the janitors threw away.   
 

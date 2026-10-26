@@ -1,12 +1,11 @@
 ## words-Oct-26.md ##  
 words/2026/words-Oct-26.md  
 Even his artistic **oeuvre**, though **sublime**, is **minute**. -  
-Suffered a major customer data breach in 2020 that leaked names and addresses of customers, a significant **lapse** for a company built on security. -  
 While I am not the first to **chafe at** their combination of messianism, contempt for ordinary consumers. -  
 Anthropic’s IPO Prospectus Is a Fucking **Doozy**. -  
 But that sentiment is **pallid** compared with the anger now directed at Manchester City, which broke spending rules to become England’s most successful team, an independent commission **alleges**. -  
 If your moral calculations depend on predicting what the world will be like in the year 2300, there is a good chance they will be **hooey**. -  
-Saddam Hussein had been captured **skulking** in a spider hole. -  
+Saddam Hussein had been captured **skulking** in a **spider hole**. -  
 
 ## words-Sep-26.md ##  
 words/2026/words-Sep-26.md  
@@ -18,7 +17,6 @@ Locating, educating, and **remunerating** Bitcoin Open-Source Engineers in the G
 They foster a sense of **aggrieved** entitlement. -  
 He was a **congenital** liar and usually in debt. -  
 Please **elucidate** the reasons for your action. -  
-Clouds of dust **billowed out** as the cars passed. -  
 I like my community there because it’s small and generally free of both drama and nonsense. But small **precludes** mainstream cultural relevance. -  
 What Mao can teach China about managing America. An **insurgent** power has fought the **incumbent** to a **stalemate**. -  
 Say goodbye to summer. Not just this year’s. The season is **imperilled** by climate change. It was nice while it **lasted**. -  
@@ -31,7 +29,6 @@ With her **voluptuous** figure, **sparkly** stage costumes and blond **bouffant*
 **In the aftermath** of the tragedy, a **tribunal** pointed fingers at the captain, the crew, and the builders, but no one looked at the true source of the failure. -  
 It never feels **lewd** and **lecherous**. -  
 He was **affable** at one moment, **choleric** the next. -  
-The **caprice** of the world’s most powerful man has taken Canada to the brink of a disastrous trade war. -  
 **Ostracism** and sanctions have not worked. Less **squeamish** powers, such as Russia and China, are trying to pull Afghanistan into their orbit. -  
 The battle for Hugo Boss. - A British **retail magnate** tries to go **upmarket**. -  
 If you woke up with a clear head, I expect you’re one of those **priggish**, **strait-laced** Gen Zs. -  
@@ -54,7 +51,6 @@ Although ancient Romans normally went out in public wearing shoes and a **tunic*
 
 ## bitcoin-standard.md ##  
 book/bitcoin-standard.md  
-Naturally, then, neither beauty nor longevity matters anymore, replaced with political **prattling** and the ability to impress bureaucrats who control the major funding sources to the large galleries and museums. -  
 Blockchains with their own currency, such as Bitcoin, exist **orthogonally** to the law; -  
 
 ## millionaire-fastlane.md ##  

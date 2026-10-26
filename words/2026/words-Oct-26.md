@@ -61,6 +61,17 @@ throng
 **Cope**  
 
 ## Words Gallery  
+
+**radian, gradient, slope, curve/curvature**  
+**brusque, brash, crass, cheeky, edgy, feisty**  
+**bewilder, bewitch**  
+
+**Sliver, slice, swath, glimmer**,   
+**polemic, polemical, polemist/polemicist, polestar**  
+**engross, enamored, enamel, enslave**  
+**extirpate, eradicate, eliminate, erase**  
+
+
 **hokey, corny, tacky, cheesy, hackneyed**  
 **attain, attainable, tenable, untenable, tentacle, retain**,   
 **retort, rebuke, refute, rebuttal**,   
@@ -79,6 +90,11 @@ throng
 
 ## Regular Recordings  
 
+perfunctory, functionary  
+**Indigo**  
+
+---   
+
 hackneyed  
 ointment, balm, unguent,   
 
@@ -94,26 +110,52 @@ gypsum
 upbraid  
 iconoclastic  
 cajole  
+vamoose  
 
-**radian, gradient, slope, curve/curvature**  
+humbug   
 
-brusque, brash, crass, cheeky, edgy, feisty  
-
-bewilder, bewitch  
-
-Sliver, slice, swath, glimmer,   
-polemic, polemical, polemist/polemicist, polestar  
-
-engross, enamored, enamel, enslave  
-
+impregnable  
 
 ---  
 
+vacillate, equivocate, ambivalent,   
+
+
+But last year, my run of medical luck **hit a snag** when, deep in my second trimester of pregnancy, certain smells started making me feel… well, strange.  
+
+In the car between stops, walking from one meeting to the next – talk to **Ramble**. **Rattle off** your to-dos, and it turns what you say into tasks, with any date, priority, or project you mention.   
+Where your biological family has failed you, you always have me. - You're my **surrogate** family?    
+
+
+**Paydirt** (or pay dirt) is soil, gravel, or rock that contains enough valuable minerals—such as gold—to make extraction and processing profitable  
+
+Their predictions turned out to be **wide of the mark**.   
+
+You're an ill-made **spiteful**, little creature, full of envy, lust, and **low cunning**.   
+“**Lecierous** little stump” is a HELL of burn.  
+You've allowed that boy to ride **roughshod** over you and everyone else in the city. -    
+
+**Heinie**: The term heinie (also spelled hiney) most commonly refers to a person's buttocks in informal or childish U.S. slang  
+
+Like many fugitives, he lived in Argentina **unmolested** for many years.   
+The situation is **analogous** to trying to ban the wheel or a knife.   
+I love to play basketball, but I suck at it. I can't **parlay** my love of basketball into a career.  
+We cannot **vacillate** on the question of the party's leadership.  
+
+
+Assorted things I've been **mulling over** regarding agents.  
+
+I need the **Gold Cloaks**.  
+I say, we don't have the right to give up or **let up**.  
+
+
+--- Economist  
+
 ### week 42  
 
+To **extirpate** weeds is not only to destroy their visible parts but also to pull them out by the roots. -  
 
-Writers must sometimes opt for being brusque but effective instead of sympathetic but ignored.  
-
+Writers must sometimes opt for being **brusque** but effective instead of sympathetic but ignored. -    
 
 Evelyn is **entertaining** company, with **droll** and sardonic observations on nearly everything.   
 
@@ -122,7 +164,7 @@ I think most **neurodivergent** people are deeply feeling people.
 It is sometimes hard to **muster** the positivity in the bear market **doldrums**, but zooming out to get perspective always brings it back for me.  
 
 Even his artistic **oeuvre**, though **sublime**, is **minute**. -    
-Suffered a major customer data breach in 2020 that leaked names and addresses of customers, a significant **lapse** for a company built on security. -    
+Suffered a major customer data breach in 2020 that leaked names and addresses of customers, a significant **lapse** for a company built on security.   
 
 **helical spring**  
 
@@ -179,16 +221,19 @@ Someone would say something **cutting**, and I’d **flatten** my face and think
 
 If you look at little children, **on balance**, they’re generally pretty happy because they are really **immersed in** the environment and the moment, without any thought of how it should be given their personal preferences and desires.   
 
----  
-
---- economist  
-
-Demand for autism care is soaring. The system is struggling to **cope**.  
 
 > Do you need to walk 10,000 steps a day? How fast you walk may be as important as how much.  
 
-
 ### Economist Newsletter  
+
+When more than half of the voters **live off** the State, no politician dares to touch spending, because cutting it means losing elections.  
+Everything is going wrong for Muhammad bin Salman. This is his **annus horribilis**.  
+
+The past week has been a **hairy** one for cyber-defenders.  
+Demand for autism care is soaring. The system is struggling to **cope**.  
+Donald Trump’s **wrecking-ball** foreign policy could outlast him.  
+His **yen** for demolition has broken the “**pendulum theory**”.    
+Vladimir Putin’s regime is enjoying Donald Trump’s **estrangement** from Volodymyr Zelensky.  
 
 And around 25 years ago Robert Mugabe, the dictator of Zimbabwe, **dispatched** thugs to grab mostly white-owned farms, **immiserating** his country.   
 
@@ -203,7 +248,7 @@ China is giving its economy **a big shot in the arm**. A massive infrastructure 
 A **foiled plot** in Fairford is predictable but **puzzling**. The threat to Britain’s military bases is real, and complicated   
 Hollywood’s novel obsession with literary adaptations. Why new film and TV shows resemble a **highbrow** reading list.  
 Australia’s giant data-centre boom. Why the lucky country is striking AI **paydirt**.  
-Saddam Hussein had been captured **skulking** in a spider hole. -     
+Saddam Hussein had been captured **skulking** in a **spider hole**. -     
 
 ## Words Explain   
 
@@ -309,6 +354,12 @@ Saddam Hussein had been captured **skulking** in a spider hole. -
 
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
+
+Where your biological family has failed you, you always have me. - You're my **surrogate** family?    
+
+You're an ill-made **spiteful**, little creature, full of envy, lust, and **low cunning**.   
+“**Lecierous** little stump” is a HELL of burn.  
+You've allowed that boy to ride **roughshod** over you and everyone else in the city.   
 
 I think you're delightfully **droll**.  
 **Points taken**.  
