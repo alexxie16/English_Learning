@@ -46,6 +46,8 @@ throng
 
 ## Special Words  
 
+**threadbare**  
+
 **kernel**  
 
 **blunt**  
@@ -89,6 +91,8 @@ throng
 **flog, flagellate, whip, thrash, lash, whip**  
 
 ## Regular Recordings  
+vacillate, equivocate, ambivalent,   
+vapid, tepid, intrepid,   
 
 perfunctory, functionary  
 **Indigo**  
@@ -118,7 +122,25 @@ impregnable
 
 ---  
 
-vacillate, equivocate, ambivalent,   
+
+**renal failure, renal transplantation**   
+
+Well, truth be told, I was gonna pay you back, but your attitude irks me.  
+
+Their quarterly meetings were **anodyne** affairs. -    
+
+> a block reaching a node doesn't automatically mean that block will remain in the accepted chain. If a competing chain wins, the node may reorganize to that chain instead.  
+
+The production lines we saw were almost entirely **devoid** of humans, and the few who were **milling about** were mostly holding laptops and **clipboards**, overseeing the robotized lines.  
+Then at one hotel, they sent a classic Mercedes MPV. Gas-powered too. It felt like a big **step back** into the past.  
+A competitive footing in all these industries  
+And China has a whole slew of open-weight labs that are focused just on that too. What does Europe have? Mistral?  
+This is **an account of** China, first and foremost.  
+
+   
+> Worry, **at its core**, is the **repetitious** experience of a mind attempting to generate a feeling of security about the future,  
+
+Are you my deadhead to Miami?  
 
 
 But last year, my run of medical luck **hit a snag** when, deep in my second trimester of pregnancy, certain smells started making me feel… well, strange.  
@@ -354,6 +376,9 @@ Saddam Hussein had been captured **skulking** in a **spider hole**. -
 
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
+
+Others find themselves years into **threadbare** marriages they actually should leave but don’t.   
+you might find yourself walking the streets with **unwarranted** fear, staying home instead of **venturing out**, and avoiding interactions with strangers—and voting for a **demagogue** with a tough-on-crime platform.  
 
 Where your biological family has failed you, you always have me. - You're my **surrogate** family?    
 

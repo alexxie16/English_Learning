@@ -1,5 +1,8 @@
 ## words-Oct-26.md ##  
 words/2026/words-Oct-26.md  
+You've allowed that boy to ride **roughshod** over you and everyone else in the city. -  
+To **extirpate** weeds is not only to destroy their visible parts but also to pull them out by the roots. -  
+Writers must sometimes opt for being **brusque** but effective instead of sympathetic but ignored. -  
 Even his artistic **oeuvre**, though **sublime**, is **minute**. -  
 While I am not the first to **chafe at** their combination of messianism, contempt for ordinary consumers. -  
 Anthropic’s IPO Prospectus Is a Fucking **Doozy**. -  
@@ -37,6 +40,12 @@ If you woke up with a clear head, I expect you’re one of those **priggish**, *
 book/4000-weeks.md  
 “in a new kind of everlasting present”—an anxious limbo of social media scrolling and **desultory** Zoom calls and **insomnia**, in which it felt impossible to make meaningful plans, or even to clearly picture life beyond the end of next week. -  
 “I have by **sundry** people [been] horribly cheated,” fumed the iron **magnate** Ambrose Crowley. -  
+Even the greatest of builders would inevitably fail to reproduce his plans absolutely faithfully; nor would he be able to protect his creation from the **ravages** of time—from the physical decay or **marauding** armies that would eventually reduce it to dust. -  
+he finally agreed to meet a second time, but sent a telegram on the morning in question to say he wasn't coming; then he showed up anyway but acted **morose**. -  
+Others find themselves years into **threadbare** marriages they actually should leave but don’t. -  
+Your finite time has been **appropriated**, without your realizing anything’s **amiss**. -  
+“a plan is just a thought.” We treat our plans as though they are a **lasso**, thrown from the present around the future, in order to bring it under our command. -  
+But a more **surreptitious** form of the same attitude has also infected your friend who always seems to be training for a 10K, yet who’s apparently incapable of just going for a run. -  
 Who was flying over the American Midwest on a business trip, reading a book, when she was **accosted** by a thought: “I hate my life.” -  
 We waste our lives **railing against** traffic jams and toddlers for having the **temerity** to take the time they take, because they’re **blunt reminders** of how little control we truly have over our schedules. -  
 The desire, by the time we die, to have truly mattered in the **cosmic** scheme of things, as opposed to being instantly **trampled** **underfoot** by the advancing **eons**. (aeon) -  

@@ -54,89 +54,89 @@ The third principle is to resist the **allure** of **middling priorities**.
 
 > — 4. Becoming a Better Procrastinator > Page 69 · Location 867  
 
-Even the greatest of builders would inevitably fail to reproduce his plans absolutely faithfully; nor would he be able to protect his creation from the ravages of time—from the physical decay or marauding armies that would eventually reduce it to dust.  
+Even the greatest of builders would inevitably fail to reproduce his plans absolutely faithfully; nor would he be able to protect his creation from the **ravages** of time—from the physical decay or **marauding** armies that would eventually reduce it to dust. -    
 
 > — 4. Becoming a Better Procrastinator > Page 71 · Location 896  
 
-her down-to-earth vigor appealed to the neurotic, self-conscious Kafka.  
+Her **down-to-earth** **vigor** appealed to the **neurotic**, self-conscious Kafka.  
 
 > — 4. Becoming a Better Procrastinator > Page 72 · Location 912  
 
-he finally agreed to meet a second time, but sent a telegram on the morning in question to say he wasn’t coming; then he showed up anyway but acted morose.  
+he finally agreed to meet a second time, but sent a telegram on the morning in question to say he wasn't coming; then he showed up anyway but acted **morose**. -    
 
 > — 4. Becoming a Better Procrastinator > Page 72 · Location 916  
 
-It might be easy to file Kafka away under the heading of “tortured genius,” a remote figure with little relevance to our more ordinary  
+It might be easy to **file Kafka away under** the heading of “tortured genius,” a remote figure with little relevance to our more ordinary  
 
 > — 4. Becoming a Better Procrastinator > Page 73 · Location 924  
 
-Like the rest of us, Kafka railed at reality’s constraints. He was indecisive in love, and in much else, because he yearned to live more than one life:  
+Like the rest of us, Kafka **railed** at reality’s constraints. He was indecisive in love, and in much else, because he **yearned** to live more than one life.  
 
 > — 4. Becoming a Better Procrastinator > Page 73 · Location 927  
 
-Others find themselves years into threadbare marriages they actually should leave but don’t,  
+Others find themselves years into **threadbare** marriages they actually should leave but don’t. -  
 
 > — 4. Becoming a Better Procrastinator > Page 74 · Location 938  
 
-you might find yourself walking the streets with unwarranted fear, staying home instead of venturing out, and avoiding interactions with strangers—and voting for a demagogue with a tough-on-crime platform.  
+You might find yourself walking the streets with **unwarranted** fear, staying home instead of **venturing out**, and avoiding interactions with strangers—and voting for a **demagogue** with a tough-on-crime platform.  
 
 > — 5. The Watermelon Problem > Page 85 · Location 1100  
 
-My own squalid, but I suspect entirely typical, history as a Twitter junkie might serve as a case in point.  
+My own **squalid**, but I suspect entirely typical, history as a Twitter junkie might serve as a **case in point**.  
 
 > — 5. The Watermelon Problem > Page 85 · Location 1106  
 
-which meant being constantly braced for confrontation or disaster, or harboring a nebulous sense of foreboding.  
+Which meant being constantly braced for confrontation or disaster, or harboring a nebulous sense of foreboding.  
 
 > — 5. The Watermelon Problem > Page 86 · Location 1120  
 
-Your finite time has been appropriated, without your realizing anything’s amiss.  
+Your finite time has been **appropriated**, without your realizing anything’s **amiss**. -    
 
 > — 5. The Watermelon Problem > Page 87 · Location 1128  
 
-First, the abbot of the Mount Koya monastery had refused to let him in the door.  
+First, the **abbot** of the Mount Koya **monastery** had refused to let him in the door.  
 
 > — 6. The Intimate Interrupter > Page 89 · Location 1148  
 
-who’d been raised beside the ocean in balmy California, had to douse himself with several gallons of bone-chilling melted snow.  
+Who’d been raised beside the ocean in **balmy** California, had to **douse** himself with several gallons of **bone-chilling** melted snow.  
 
 > — 6. The Intimate Interrupter > Page 90 · Location 1153  
 
-I wish I could reveal, at this point, the secret for uprooting the urge toward distraction—  
+I wish I could reveal, at this point, the secret for **uprooting** the urge toward distraction.    
 
 > — 6. The Intimate Interrupter > Page 95 · Location 1229  
 
 ## Part II: Beyond Control  
 
-The trouble with being so emotionally invested in planning for the future, though, is that while it may occasionally prevent a catastrophe, the rest of the time it tends to exacerbate the very anxiety it was supposed to allay.  
+The trouble with being so emotionally invested in planning for the future, though, is that while it may occasionally prevent a catastrophe, the rest of the time it tends to exacerbate the very anxiety it was supposed to **allay**.  
 
 > — 7. We Never Really Have Time > Page 100 · Location 1279  
 
-Worry, at its core, is the repetitious experience of a mind attempting to generate a feeling of security about the future,  
+Worry, **at its core**, is the **repetitious** experience of a mind attempting to generate a feeling of security about the future,  
 
 > — 7. We Never Really Have Time > Page 101 · Location 1291  
 
-“a plan is just a thought.” We treat our plans as though they are a lasso, thrown from the present around the future, in order to bring it under our command.  
+“a plan is just a thought.” We treat our plans as though they are a **lasso**, thrown from the present around the future, in order to bring it under our command. -    
 
 > — 7. We Never Really Have Time > Page 107 · Location 1378  
 
-Hence the old parable about a vacationing New York businessman who gets talking to a Mexican fisherman, who tells him that he works only a few hours per day and spends most of his time drinking wine in the sun and playing music with his friends.  
+Hence the old **parable** about a vacationing New York businessman who gets talking to a Mexican fisherman, who tells him that he works only a few hours per day and spends most of his time drinking wine in the sun and playing music with his friends.  
 
 > — 8. You Are Here > Page 115 · Location 1495  
 
-There is no little pocket, situated outside of life, [to which we could] steal life’s provisions and squirrel them away.  
+There is no little pocket, **situated** outside of life, [to which we could] steal life’s **provisions** and **squirrel them away**.  
 
 > — 8. You Are Here > Page 121 · Location 1574  
 
-But a more surreptitious form of the same attitude has also infected your friend who always seems to be training for a 10K, yet who’s apparently incapable of just going for a run:  
+But a more **surreptitious** form of the same attitude has also infected your friend who always seems to be training for a 10K, yet who’s apparently incapable of just going for a run. -      
 
 > — 9. Rediscovering Rest > Page 123 · Location 1599  
 
-it’s surely never been harder to make the requisite psychological shift than it is today—to pause in your work for long enough to enter the coherent, harmonious, somehow thicker experience of time that comes with being “on the receiving end” of life, the feeling of stepping off the clock into “deep time,” rather than ceaselessly struggling to master it.  
+It’s surely never been harder to make the **requisite** psychological shift than it is today—to pause in your work for long enough to enter the coherent, harmonious, somehow thicker experience of time that comes with being “on the receiving end” of life, the feeling of **stepping off the clock** into “deep time,” rather than **ceaselessly** struggling to master it.  
 
 > — 9. Rediscovering Rest > Page 133 · Location 1733  
 
-So I’m happy to be solo as I head uphill, past a waterfall with a satisfyingly Satanic name—Hell Gill Force—  
+So I’m happy to be **solo** as I head uphill, past a waterfall with a satisfyingly Satanic name—Hell Gill Force—  
 
 > — 9. Rediscovering Rest > Page 134 · Location 1752  
 
@@ -144,11 +144,11 @@ That we suffer when we adopt this sort of dictatorial attitude toward the rest o
 
 > — 10. The Impatience Spiral > Page 141 · Location 1838  
 
-The Tao Te Ching is full of images of suppleness and yielding: the wise man (the reader is constantly being informed) is like a tree that bends instead of breaking in the wind, or water that flows around obstacles in its path.  
+The Tao Te Ching is full of images of **suppleness** and **yielding**: the wise man (the reader is constantly being informed) is like a tree that **bends instead of breaking** in the wind, or water that flows around obstacles in its path.  
 
 > — 10. The Impatience Spiral > Page 141 · Location 1839  
 
-not just because we spend so much time feeling frustrated, but because chivying the world to move faster is frequently counterproductive anyway.  
+Not just because we spend so much time feeling frustrated, but because chivying the world to move faster is frequently counterproductive anyway.  
 
 > — 10. The Impatience Spiral > Page 141 · Location 1843  
 
@@ -164,15 +164,15 @@ There were long moments, as I squirmed in my seat at the Harvard Art Museum duri
 
 > — 11. Staying on the Bus > Page 150 · Location 1965  
 
-As with money, it’s good to have plenty of time, all else being equal.  
+As with money, it’s good to have plenty of time, **all else being equal**.  
 
 > — 12. The Loneliness of the Digital Nomad > Page 161 · Location 2116  
 
-And yet the trouble with this kind of individualist freedom, as Judith Shulevitz points out, is that a society in thrall to it, as ours is, ends up desynchronizing itself—  
+And yet the trouble with this kind of individualist freedom, as Judith Shulevitz points out, is that a society **in thrall** to it, as ours is, ends up desynchronizing itself—  
 
 > — 12. The Loneliness of the Digital Nomad > Page 170 · Location 2255  
 
-the result is that work seeps through life like water, filling every cranny with more to-dos, a phenomenon that seemed to only intensify during the coronavirus lockdown.  
+the result is that work seeps through life like water, filling every **cranny** with more to-dos, a phenomenon that seemed to only intensify during the coronavirus lockdown.  
 
 > — 12. The Loneliness of the Digital Nomad > Page 171 · Location 2265  
 
