@@ -64,10 +64,10 @@
 
 ## Words Gallery  
 
-sacrilege, sacrosanct,   
+**sacrilege, sacrosanct**,   
 **reptile, riptide, crocodile**,  
 **pitcher, jug, kettle, canteen, flask**   
-exhort, exalt, exult, exultant, exorbitant,   
+**exhort, exalt, exult, exultant, exorbitant**,   
 **prevaricate, equivocate, weasel, sneaky**.  
 
 **hodgepodge, hedgehog, hedgerow**.  

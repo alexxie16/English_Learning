@@ -22,28 +22,6 @@ xxx
 
 ## Words with Questions  
 
-marquee  
-
-smarmy  
-
-morose  
-
-revel  
-
-psoriasis  
-
-coquette  
-
-pillory  
-
-upheaval   
-
-throng  
-
-**clammy**  
-
-**calumnies**  
-
 ## Special Words  
 
 **threadbare**  
@@ -64,6 +42,12 @@ throng
 
 ## Words Gallery  
 
+**vacillate, equivocate, ambivalent**,   
+**vapid, tepid, intrepid**,   
+**hustler, huckster, hawker, bazaar**,   
+**gallop, trot, gait, stride, gallant, valiant**,   
+**perfunctory, functionary**  
+
 **radian, gradient, slope, curve/curvature**  
 **brusque, brash, crass, cheeky, edgy, feisty**  
 **bewilder, bewitch**  
@@ -72,7 +56,6 @@ throng
 **polemic, polemical, polemist/polemicist, polestar**  
 **engross, enamored, enamel, enslave**  
 **extirpate, eradicate, eliminate, erase**  
-
 
 **hokey, corny, tacky, cheesy, hackneyed**  
 **attain, attainable, tenable, untenable, tentacle, retain**,   
@@ -91,41 +74,20 @@ throng
 **flog, flagellate, whip, thrash, lash, whip**  
 
 ## Regular Recordings  
-vacillate, equivocate, ambivalent,   
-vapid, tepid, intrepid,   
 
-perfunctory, functionary  
 **Indigo**  
-
----   
-
-hackneyed  
-ointment, balm, unguent,   
-
-iconoclastic   
-maraud  
-tizzy  
-macerate  
-mealy   
-smirch  
-
-brandish  
-gypsum  
-upbraid  
-iconoclastic  
-cajole  
-vamoose  
-
-humbug   
-
-impregnable  
-
----  
-
 
 **renal failure, renal transplantation**   
 
-Well, truth be told, I was gonna pay you back, but your attitude irks me.  
+> A **bearer asset** is a type of property or financial instrument where ownership is determined solely by physical possession.  
+
+If the country is winning the future, why are its investors so **glum**?  
+If the clock updates smoothly without OpenCode but **stutters** with OpenCode, we've isolated the issue to OpenCode's effect on tmux rendering.  
+We said No, and you **went behind our back**!   
+
+He's an **ardent** supporter of the local football team.  
+
+Well, truth be told, I was gonna pay you back, but your attitude **irks** me.  
 
 Their quarterly meetings were **anodyne** affairs. -    
 
@@ -133,15 +95,13 @@ Their quarterly meetings were **anodyne** affairs. -
 
 The production lines we saw were almost entirely **devoid** of humans, and the few who were **milling about** were mostly holding laptops and **clipboards**, overseeing the robotized lines.  
 Then at one hotel, they sent a classic Mercedes MPV. Gas-powered too. It felt like a big **step back** into the past.  
-A competitive footing in all these industries  
-And China has a whole slew of open-weight labs that are focused just on that too. What does Europe have? Mistral?  
+A competitive **footing** in all these industries  
+And China has **a whole slew of** open-weight labs that are focused just on that too. What does Europe have? Mistral?  
 This is **an account of** China, first and foremost.  
-
    
 > Worry, **at its core**, is the **repetitious** experience of a mind attempting to generate a feeling of security about the future,  
 
-Are you my deadhead to Miami?  
-
+Are you my **deadhead** to Miami?  
 
 But last year, my run of medical luck **hit a snag** when, deep in my second trimester of pregnancy, certain smells started making me feel… well, strange.  
 
@@ -169,9 +129,6 @@ Assorted things I've been **mulling over** regarding agents.
 
 I need the **Gold Cloaks**.  
 I say, we don't have the right to give up or **let up**.  
-
-
---- Economist  
 
 ### week 42  
 
