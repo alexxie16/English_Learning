@@ -75,7 +75,7 @@ xxx
 
 ## Regular Recordings  
 
-**Indigo**  
+### Week 43  
 
 **renal failure, renal transplantation**   
 

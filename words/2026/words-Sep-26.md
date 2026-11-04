@@ -212,7 +212,7 @@ The national security tool won't **lapse** Thursday night, but lawmakers are **p
 
 Clouds of dust **billowed out** as the cars passed.   
 
-I like my community there because it’s small and generally free of both drama and nonsense. But small **precludes** mainstream cultural relevance. -    
+I like my community there because it’s small and generally free of both drama and nonsense. But small **precludes** mainstream cultural relevance.   
 E.g. **Abdication** is **precluded** by the lack of a possible successor.   
 
 While such decisions might seem too **erudite** for your taste, you will make them either consciously or **subliminally**, and they will be very important.  

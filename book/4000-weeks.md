@@ -86,7 +86,7 @@ My own **squalid**, but I suspect entirely typical, history as a Twitter junkie 
 
 > — 5. The Watermelon Problem > Page 85 · Location 1106  
 
-Which meant being constantly braced for confrontation or disaster, or harboring a nebulous sense of foreboding.  
+Which meant being constantly braced for confrontation or disaster, or **harboring** a **nebulous** sense of **foreboding**. -    
 
 > — 5. The Watermelon Problem > Page 86 · Location 1120  
 
@@ -140,7 +140,7 @@ So I’m happy to be **solo** as I head uphill, past a waterfall with a satisfyi
 
 > — 9. Rediscovering Rest > Page 134 · Location 1752  
 
-That we suffer when we adopt this sort of dictatorial attitude toward the rest of reality is one of the central insights of the ancient Chinese religion of Taoism.  
+That we suffer when we adopt this sort of **dictatorial** attitude toward the rest of reality is one of the central insights of the ancient Chinese religion of Taoism.  
 
 > — 10. The Impatience Spiral > Page 141 · Location 1838  
 
@@ -148,27 +148,27 @@ The Tao Te Ching is full of images of **suppleness** and **yielding**: the wise 
 
 > — 10. The Impatience Spiral > Page 141 · Location 1839  
 
-Not just because we spend so much time feeling frustrated, but because chivying the world to move faster is frequently counterproductive anyway.  
+Not just because we spend so much time feeling frustrated, but because **chivying** the world to move faster is frequently counterproductive anyway. -    
 
 > — 10. The Impatience Spiral > Page 141 · Location 1843  
 
-What they mean is that when they do find a morsel of time, and use it to try to read, they find they’re too impatient to give themselves over to the task.  
+What they mean is that when they do find **a morsel of** time, and use it to try to read, they find they’re too impatient to give themselves over to the task.  
 
 > — 10. The Impatience Spiral > Page 144 · Location 1880  
 
-Perhaps it seems melodramatic to compare “addiction to speed,” as Brown calls our modern disease of accelerated living, to a condition as serious as alcoholism.  
+Perhaps it seems **melodramatic** to compare “addiction to speed,” as Brown calls our modern disease of accelerated living, to a condition as serious as alcoholism.  
 
 > — 10. The Impatience Spiral > Page 146 · Location 1914  
 
-There were long moments, as I squirmed in my seat at the Harvard Art Museum during the assignment, when I’d willingly have done countless things I usually can’t stand—  
+There were **long moments**, as I **squirmed** in my seat at the Harvard Art Museum during the assignment, when I’d willingly have done countless things I usually can’t stand. -  
 
 > — 11. Staying on the Bus > Page 150 · Location 1965  
 
-As with money, it’s good to have plenty of time, **all else being equal**.  
+**As with** money, it’s good to have plenty of time, **all else being equal**.  
 
 > — 12. The Loneliness of the Digital Nomad > Page 161 · Location 2116  
 
-And yet the trouble with this kind of individualist freedom, as Judith Shulevitz points out, is that a society **in thrall** to it, as ours is, ends up desynchronizing itself—  
+And yet the trouble with this kind of individualist freedom, as Judith Shulevitz points out, is that a society **in thrall to** it, as ours is, ends up **desynchronizing** itself.    
 
 > — 12. The Loneliness of the Digital Nomad > Page 170 · Location 2255  
 
@@ -176,11 +176,11 @@ the result is that work seeps through life like water, filling every **cranny** 
 
 > — 12. The Loneliness of the Digital Nomad > Page 171 · Location 2265  
 
-that followed the killing of George Floyd by Minneapolis police in 2020, it’s not unusual to hear protesters describe experiences that call to mind William McNeill’s “strange sense of personal enlargement”—a feeling of time thickening and intensifying, tinged with a kind of ecstasy.  
+that followed the killing of George Floyd by Minneapolis police in 2020, it’s not unusual to hear protesters describe experiences that **call to mind** William McNeill’s “strange sense of **personal enlargement**”—a feeling of time thickening and intensifying, **tinged with** a kind of **ecstasy**.  
 
 > — 12. The Loneliness of the Digital Nomad > Page 172 · Location 2278  
 
-you possess the productivity geek’s natural inclination toward control-freakery when it comes to your time, you can experiment with what it feels like to not try to exert an iron grip on your timetable:  
+you possess the productivity geek’s natural inclination toward control-freakery when it comes to your time, you can experiment with what it feels like to not try to exert an **iron grip** on your **timetable**.   
 
 > — 12. The Loneliness of the Digital Nomad > Page 173 · Location 2286  
 
@@ -188,7 +188,7 @@ Who was flying over the American Midwest on a business trip, reading a book, whe
 
 > — 13. Cosmic Insignificance Therapy > Page 174 · Location 2294  
 
-A malaise that had been growing in her for years had crystallized in the understanding that she was spending her days in a way that no longer felt as if it had any meaning.  
+A malaise that had been growing in her for years had **crystallized** in the understanding that she was spending her days in a way that no longer felt as if it had any meaning.  
 
 > — 13. Cosmic Insignificance Therapy > Page 174 · Location 2295  
 

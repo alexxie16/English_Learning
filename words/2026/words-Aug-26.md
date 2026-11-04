@@ -114,7 +114,7 @@ good **riddance**.
 
 I'm sure he'd be delightfully **taken aback** if you cleaned your apartment.  
 
-The two men managed to **elude** the police for six weeks. -    
+The two men managed to **elude** the police for six weeks.   
 The suspect **eluded** a 12-hour **manhunt** before he was caught.  
 That's not automatically **improper**—the transactions were disclosed and subjected to independent review—but it creates an obvious question...  
 

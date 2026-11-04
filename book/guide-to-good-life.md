@@ -41,7 +41,7 @@ We must learn, as Marcus puts it, to “resist the **murmurs** of the flesh.” 
 Rather than shrugging them off, he took them to heart. His advice to himself: “Keep away from **low company**.”  
 At a **banquet**, Seneca was not seated in the place of honor he thought he deserved.  
 “If people think you **amount to** something, **distrust** yourself.”  
-Marcus recommends that when our practice **falls short** of Stoic **precepts**, we should not become **despondent** and certainly should not give up our attempts to practice Stoicism; -    
+Marcus recommends that when our practice **falls short** of Stoic **precepts**, we should not become **despondent** and certainly should not give up our attempts to practice Stoicism;   
 
 ## NINE Duty: On Loving Mankind  
 

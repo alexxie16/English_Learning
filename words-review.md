@@ -1,5 +1,6 @@
 ## words-Oct-26.md ##  
 words/2026/words-Oct-26.md  
+Their quarterly meetings were **anodyne** affairs. -  
 You've allowed that boy to ride **roughshod** over you and everyone else in the city. -  
 To **extirpate** weeds is not only to destroy their visible parts but also to pull them out by the roots. -  
 Writers must sometimes opt for being **brusque** but effective instead of sympathetic but ignored. -  
@@ -20,14 +21,12 @@ Locating, educating, and **remunerating** Bitcoin Open-Source Engineers in the G
 They foster a sense of **aggrieved** entitlement. -  
 He was a **congenital** liar and usually in debt. -  
 Please **elucidate** the reasons for your action. -  
-I like my community there because it’s small and generally free of both drama and nonsense. But small **precludes** mainstream cultural relevance. -  
 What Mao can teach China about managing America. An **insurgent** power has fought the **incumbent** to a **stalemate**. -  
 Say goodbye to summer. Not just this year’s. The season is **imperilled** by climate change. It was nice while it **lasted**. -  
 Europe faces “civilisational **erasure**” as it is overrun by Muslim immigrants. That is **cobblers**. -  
 
 ## words-Aug-26.md ##  
 words/2026/words-Aug-26.md  
-The two men managed to **elude** the police for six weeks. -  
 With her **voluptuous** figure, **sparkly** stage costumes and blond **bouffant** **wigs**, she was likened by the writer Chet Flippo to the Big Rock Candy Mountain, the Depression-era symbol of abundance. -  
 **In the aftermath** of the tragedy, a **tribunal** pointed fingers at the captain, the crew, and the builders, but no one looked at the true source of the failure. -  
 It never feels **lewd** and **lecherous**. -  
@@ -43,9 +42,12 @@ book/4000-weeks.md
 Even the greatest of builders would inevitably fail to reproduce his plans absolutely faithfully; nor would he be able to protect his creation from the **ravages** of time—from the physical decay or **marauding** armies that would eventually reduce it to dust. -  
 he finally agreed to meet a second time, but sent a telegram on the morning in question to say he wasn't coming; then he showed up anyway but acted **morose**. -  
 Others find themselves years into **threadbare** marriages they actually should leave but don’t. -  
+Which meant being constantly braced for confrontation or disaster, or **harboring** a **nebulous** sense of **foreboding**. -  
 Your finite time has been **appropriated**, without your realizing anything’s **amiss**. -  
 “a plan is just a thought.” We treat our plans as though they are a **lasso**, thrown from the present around the future, in order to bring it under our command. -  
 But a more **surreptitious** form of the same attitude has also infected your friend who always seems to be training for a 10K, yet who’s apparently incapable of just going for a run. -  
+Not just because we spend so much time feeling frustrated, but because **chivying** the world to move faster is frequently counterproductive anyway. -  
+There were **long moments**, as I **squirmed** in my seat at the Harvard Art Museum during the assignment, when I’d willingly have done countless things I usually can’t stand. -  
 Who was flying over the American Midwest on a business trip, reading a book, when she was **accosted** by a thought: “I hate my life.” -  
 We waste our lives **railing against** traffic jams and toddlers for having the **temerity** to take the time they take, because they’re **blunt reminders** of how little control we truly have over our schedules. -  
 The desire, by the time we die, to have truly mattered in the **cosmic** scheme of things, as opposed to being instantly **trampled** **underfoot** by the advancing **eons**. (aeon) -  
@@ -54,7 +56,6 @@ Anything could happen, from an urgent email that **scuppers** your plans for the
 ## guide-to-good-life.md ##  
 book/guide-to-good-life.md  
 But more to the point, it seems unlikely that a Stoic will gain tranquility as a result of entertaining such thoughts. **To the contrary**, he is likely to end up **glum** and anxiety-ridden. -  
-Marcus recommends that when our practice **falls short** of Stoic **precepts**, we should not become **despondent** and certainly should not give up our attempts to practice Stoicism; -  
 The political correctness movement has some **untoward** side effects. -  
 Although ancient Romans normally went out in public wearing shoes and a **tunic**, Cato wore neither. -  
 

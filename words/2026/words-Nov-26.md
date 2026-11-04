@@ -68,215 +68,35 @@ throng
 
 ## Special Words  
 
-**threadbare**  
-
-**kernel**  
-
-**blunt**  
-
-**consoling**  
-
-**neurotic**  
+**melodramatic**  
 
 ## Verb Words  
 
-**forestall**  
-
-**Cope**  
 
 ## Words Gallery  
 
+**Indigo**  
+**Oscillate, vacillate, equivocate, wavering**  
+
 ## Regular Recordings  
 
-**Indigo**  
 
-**renal failure, renal transplantation**   
+I'm just so **chuffed** - that's all I can say.  
 
-He's an **ardent** supporter of the local football team.  
+We have beaks, we can swim, instead of **scrounging off** of others, you know, maybe we could...  
 
-Well, truth be told, I was gonna pay you back, but your attitude **irks** me.  
-
-Their quarterly meetings were **anodyne** affairs. -    
-
-> a block reaching a node doesn't automatically mean that block will remain in the accepted chain. If a competing chain wins, the node may reorganize to that chain instead.  
-
-The production lines we saw were almost entirely **devoid** of humans, and the few who were **milling about** were mostly holding laptops and **clipboards**, overseeing the robotized lines.  
-Then at one hotel, they sent a classic Mercedes MPV. Gas-powered too. It felt like a big **step back** into the past.  
-A competitive **footing** in all these industries  
-And China has **a whole slew of** open-weight labs that are focused just on that too. What does Europe have? Mistral?  
-This is **an account of** China, first and foremost.  
-   
-> Worry, **at its core**, is the **repetitious** experience of a mind attempting to generate a feeling of security about the future,  
-
-Are you my **deadhead** to Miami?  
-
-But last year, my run of medical luck **hit a snag** when, deep in my second trimester of pregnancy, certain smells started making me feel… well, strange.  
-
-In the car between stops, walking from one meeting to the next – talk to **Ramble**. **Rattle off** your to-dos, and it turns what you say into tasks, with any date, priority, or project you mention.   
-Where your biological family has failed you, you always have me. - You're my **surrogate** family?    
-
-
-**Paydirt** (or pay dirt) is soil, gravel, or rock that contains enough valuable minerals—such as gold—to make extraction and processing profitable  
-
-Their predictions turned out to be **wide of the mark**.   
-
-You're an ill-made **spiteful**, little creature, full of envy, lust, and **low cunning**.   
-“**Lecierous** little stump” is a HELL of burn.  
-You've allowed that boy to ride **roughshod** over you and everyone else in the city. -    
-
-**Heinie**: The term heinie (also spelled hiney) most commonly refers to a person's buttocks in informal or childish U.S. slang  
-
-Like many fugitives, he lived in Argentina **unmolested** for many years.   
-The situation is **analogous** to trying to ban the wheel or a knife.   
-I love to play basketball, but I suck at it. I can't **parlay** my love of basketball into a career.  
-We cannot **vacillate** on the question of the party's leadership.  
-
-
-Assorted things I've been **mulling over** regarding agents.  
-
-I need the **Gold Cloaks**.  
-I say, we don't have the right to give up or **let up**.  
-
-
---- Economist  
-
-### week 42  
-
-To **extirpate** weeds is not only to destroy their visible parts but also to pull them out by the roots. -  
-
-Writers must sometimes opt for being **brusque** but effective instead of sympathetic but ignored. -    
-
-Evelyn is **entertaining** company, with **droll** and sardonic observations on nearly everything.   
-
-I think most **neurodivergent** people are deeply feeling people.  
-
-It is sometimes hard to **muster** the positivity in the bear market **doldrums**, but zooming out to get perspective always brings it back for me.  
-
-Even his artistic **oeuvre**, though **sublime**, is **minute**. -    
-Suffered a major customer data breach in 2020 that leaked names and addresses of customers, a significant **lapse** for a company built on security.   
-
-**helical spring**  
-
-> "What's past is **prologue**" is a famous quotation from William Shakespeare's play The **Tempest** (Act 2, Scene 1).  
-
-I think you're delightfully **droll**.  
-**Points taken**.  
-
-> What excites me about cryptography is that it enables the weak to defend themselves against the powerful.  
-
-I have always thought, " he said **reflectively**, " that the system of **mourning**, of **immuring** women in crepe for the rest of their lives and forbidding them normal enjoyment is just as **barbarous** as the Hindu **suttee**.  
-I am amazed, Don Lorenzo, how you could possibly think of **immuring** so charming a Girl within the walls of a **Cloister**!  
-
-### Week 41  
-
-In which areas of life are you still **holding back** until you feel like you know what you're doing? Everyone's just **winging it**, you might as well **get on with it**.  
-
-You've got a **soft touch**, but I'm a heavy hitter.  
-These plant eaters are no **pushovers**. They're no...they're no **pansies**.  
-
-I like **rough around the edges**, but a sweetheart inside.  
-Certainly V30 was the **impetus**, if we go into the root cause of fundamentals.  
-Two groups, either **opposition** or **apathy**.  
-
-> The receiver hosts a "payment endpoint," an HTTPS URL that acts as the coordination point. The sender's wallet knows to contact this endpoint because the receiver includes it as a pj= parameter inside a standard BIP-21 payment URI — the same URI format used for ordinary Bitcoin payments.  
-
-His energy, warmth, and curiosity **envelop** you like a blanket.  
-CLARITY Act **cloture** vote failed. The air is coming out of the August Bitcoin balloon.  
-
-While I am not the first to **chafe at** their combination of messianism, contempt for ordinary consumers. -    
-
-Anthropic’s IPO Prospectus Is a Fucking **Doozy**. -    
-You know, something exactly **akin to** the “**rapture**” events that religious cultists believe are coming.  
-
-### Week 40  
-
-**Cupid**: The Roman god of **erotic desire**, affection, and romantic love, typically shown as a winged boy with a bow and arrow.  
-**Cupidity**: A formal noun defined as **avarice** or a rapacious hunger for material wealth. It describes someone blinded by the urge to accumulate cash or status.  
-
-**Going against the grain** is not easy, especially when it means you've publicly changed your mind.  
-
-She still loves him, **warts and all**.  
-In addition to that, we do our best to practice what we preach and "dogfood" the software we fund, **warts and all**.  
-And right now, support for the red team is **duly** needed.  
-
-### Stoicism excerpts  
-
-> He told her that grief left unexamined stops being a room you pass through and becomes a place you live  
-
-Where does the **fire in the belly** come from?  
-Someone would say something **cutting**, and I’d **flatten** my face and think, a Stoic Wouldn't react.  
-
-> I think people believe neutrality would be a very **bland** existence. No, this is the existence little children live.  
-
-If you look at little children, **on balance**, they’re generally pretty happy because they are really **immersed in** the environment and the moment, without any thought of how it should be given their personal preferences and desires.   
-
-
-> Do you need to walk 10,000 steps a day? How fast you walk may be as important as how much.  
 
 ### Economist Newsletter  
 
-When more than half of the voters **live off** the State, no politician dares to touch spending, because cutting it means losing elections.  
-Everything is going wrong for Muhammad bin Salman. This is his **annus horribilis**.  
-
-The past week has been a **hairy** one for cyber-defenders.  
-Demand for autism care is soaring. The system is struggling to **cope**.  
-Donald Trump’s **wrecking-ball** foreign policy could outlast him.  
-His **yen** for demolition has broken the “**pendulum theory**”.    
-Vladimir Putin’s regime is enjoying Donald Trump’s **estrangement** from Volodymyr Zelensky.  
-
-And around 25 years ago Robert Mugabe, the dictator of Zimbabwe, **dispatched** thugs to grab mostly white-owned farms, **immiserating** his country.   
-
-If you’re still wondering why Donald Trump is so **loth** to restrain the boom in artificial intelligence, see yesterday’s stock market rally.   
-But the president’s approach to AI is **at odds** with growing public opposition to the technology, **not least** among his own supporters. Will he change his position?  
-How China manages its oil **woes** will have global **repercussions**.  
-
-But that sentiment is **pallid** compared with the anger now directed at Manchester City, which broke spending rules to become England’s most successful team, an independent commission **alleges**. -    
-If your moral calculations depend on predicting what the world will be like in the year 2300, there is a good chance they will be **hooey**. -   
-China is giving its economy **a big shot in the arm**. A massive infrastructure scheme may give the country a **sorely needed** boost—and help rebalance the world economy.  
-
-A **foiled plot** in Fairford is predictable but **puzzling**. The threat to Britain’s military bases is real, and complicated   
-Hollywood’s novel obsession with literary adaptations. Why new film and TV shows resemble a **highbrow** reading list.  
-Australia’s giant data-centre boom. Why the lucky country is striking AI **paydirt**.  
-Saddam Hussein had been captured **skulking** in a **spider hole**. -     
 
 ## Words Explain   
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
 
-Others find themselves years into **threadbare** marriages they actually should leave but don’t.   
-you might find yourself walking the streets with **unwarranted** fear, staying home instead of **venturing out**, and avoiding interactions with strangers—and voting for a **demagogue** with a tough-on-crime platform.  
+We have beaks, we can swim, instead of **scrounging off** of others, you know, maybe we could...  
 
-Where your biological family has failed you, you always have me. - You're my **surrogate** family?    
 
-You're an ill-made **spiteful**, little creature, full of envy, lust, and **low cunning**.   
-“**Lecierous** little stump” is a HELL of burn.  
-You've allowed that boy to ride **roughshod** over you and everyone else in the city.   
-
-I think you're delightfully **droll**.  
-**Points taken**.  
-
-What's life without **whimsy**.  
-In a few minutes, when I **gloat over** the failure of this **enterprise**, how would you prefer I do it?  
-Or just my normal look of **haughty derision**?  
-.. to **pray on** the **gullible** and lonely, in addition, I'm being **blackmailed** with a hidden dirty sock.  
-
-Did you **tell on** me?  
-Certainly V30 was the **impetus**, if we go into the root cause of fundamentals.  
-Two groups, either **opposition** or **apathy**.  
-
-Where does the **fire in the belly** come from?  
 
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
 
-This is the **kernel** of wisdom in the cliché of the celebrity who claims that a brush with cancer was “the best thing that ever happened” to them.   
-
-One key to happiness, then, is to **forestall** the adaptation process: We need to take steps to prevent ourselves from taking for granted,  
-
-In which areas of life are you still **holding back** until you feel like you know what you're doing? Everyone's just **winging it**, you might as well **get on with it**.  
-
-
-**Going against the grain** is not easy, especially when it means you've publicly changed your mind.  
-In addition to that, we do our best to practice what we preach and "dogfood" the software we fund, **warts and all**.  
-
-Someone would say something **cutting**, and I’d flatten my face and think, a Stoic Wouldn't react.  
