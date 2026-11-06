@@ -18,7 +18,6 @@ The players sat there with **glum looks** on their faces. -
 If you try to patch this **thingamajig** and that **thingamabob** that was introduced by the implementation of some TODO, you end up in situations like this. -  
 I know he's been **castigated** for being a, you know, a **profligate** **philanderer**. -  
 Locating, educating, and **remunerating** Bitcoin Open-Source Engineers in the Global South. -  
-They foster a sense of **aggrieved** entitlement. -  
 He was a **congenital** liar and usually in debt. -  
 Please **elucidate** the reasons for your action. -  
 What Mao can teach China about managing America. An **insurgent** power has fought the **incumbent** to a **stalemate**. -  
@@ -27,7 +26,6 @@ Europe faces “civilisational **erasure**” as it is overrun by Muslim immigra
 
 ## words-Aug-26.md ##  
 words/2026/words-Aug-26.md  
-With her **voluptuous** figure, **sparkly** stage costumes and blond **bouffant** **wigs**, she was likened by the writer Chet Flippo to the Big Rock Candy Mountain, the Depression-era symbol of abundance. -  
 **In the aftermath** of the tragedy, a **tribunal** pointed fingers at the captain, the crew, and the builders, but no one looked at the true source of the failure. -  
 It never feels **lewd** and **lecherous**. -  
 He was **affable** at one moment, **choleric** the next. -  
@@ -66,7 +64,6 @@ Blockchains with their own currency, such as Bitcoin, exist **orthogonally** to 
 ## millionaire-fastlane.md ##  
 book/millionaire-fastlane.md  
 All I can be is that creepy **munchkin** pointing off in the distance with a **stern** directive, “Follow the yellow brick road.” -  
-Our old Dodge Duster started **billowing** smoke and **clanked** to a stop. -  
 Wealth **eludes** most people because they are **preoccupied** with events while **disregarding** process. -  
 When you **plop your butt** on the recliner and **maul through** a can of **Pringles**, you choose pleasure now **in lieu of** pain later. -  
 An investment company had **bilked** millions of dollars from investors. -  
@@ -82,4 +79,3 @@ Time passes, dreams die, and what remains? An old **withered** body **forlorn** 
 ## happiness-advantage.md ##  
 book/happiness-advantage.md  
 The best way to kick-start this is to start making a daily list of the good things in your job, your career, and your life. It may sound **hokey**, or ridiculously simple—and indeed the activity itself is simple—but over a decade of empirical studies has proven the profound effect it has on the way our brains are wired. -  
-Even our e-mails are more **brusque** and **impersonal**. -  

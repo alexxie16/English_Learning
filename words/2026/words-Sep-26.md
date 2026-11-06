@@ -141,7 +141,7 @@ I'm your lobbyist, not your **henchman**.
 Locating, educating, and **remunerating** Bitcoin Open-Source Engineers in the Global South. -    
 You're **off to a great start**.  
 
-They foster a sense of **aggrieved** entitlement. -    
+They foster a sense of **aggrieved** entitlement.   
 As usual, most answers to this question **lay blame** at the feet of redpill and **incel** influencers, misogyny, etc.  
 Some guys really **take this to heart**, so they view such spaces as entirely **off limits** for romance.  
 

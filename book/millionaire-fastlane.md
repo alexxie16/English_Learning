@@ -60,7 +60,7 @@ Would debt be a **noose** around your neck?
 ## PART 2: Wealth is Not a Road, But a Road Trip  
 
 A sunny, crowded Florida beach of **scantily** **clad**, well-tanned, **boozed-up** college **coeds**.  
-Our old Dodge Duster started **billowing** smoke and **clanked** to a stop. -  
+Our old Dodge Duster started **billowing** smoke and **clanked** to a stop.   
 Wealth **eludes** most people because they are **preoccupied** with events while **disregarding** process. -  
 When a 20-year-old sells his Internet company for $ 30 million dollars, you read about it on a tech blog. The event is **lauded** and **showcased** **for all to admire**.  
 Successful Fastlane travelers are warriors who **live and die** on **rough roads**.  

@@ -78,7 +78,7 @@ As any dietician will tell you, relying on willpower to completely avoid unhealt
 
 I’m impressed at how memorably the Fire Maze training **instilled** in me the lesson that is at the heart of Principle 7–  
 I saw companies **jettison** team trainings and social “perks,” ignoring **plummeting** team morale in favor of things deemed more “important.”  
-Even our e-mails are more **brusque** and **impersonal**. -    
+Even our e-mails are more **brusque** and **impersonal**.   
 Instead of **divesting**, they invest. Not only are these people happier, but they are more productive, **engaged**, energetic, and resilient.  
 First, social interactions **jolt** us with positivity in the moment;  
 Each social connection also **bolsters** our cardiovascular, **neuroendocrine**, and immune systems, so that the more connections we make over time, the better we function.  

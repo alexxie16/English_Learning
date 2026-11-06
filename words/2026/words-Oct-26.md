@@ -81,7 +81,6 @@ xxx
 
 > A **bearer asset** is a type of property or financial instrument where ownership is determined solely by physical possession.  
 
-If the country is winning the future, why are its investors so **glum**?  
 If the clock updates smoothly without OpenCode but **stutters** with OpenCode, we've isolated the issue to OpenCode's effect on tmux rendering.  
 We said No, and you **went behind our back**!   
 
@@ -122,9 +121,7 @@ You've allowed that boy to ride **roughshod** over you and everyone else in the 
 Like many fugitives, he lived in Argentina **unmolested** for many years.   
 The situation is **analogous** to trying to ban the wheel or a knife.   
 I love to play basketball, but I suck at it. I can't **parlay** my love of basketball into a career.  
-We cannot **vacillate** on the question of the party's leadership.  
-
-
+We cannot **vacillate** on the question of the party's leadership. -    
 Assorted things I've been **mulling over** regarding agents.  
 
 I need the **Gold Cloaks**.  
@@ -204,6 +201,8 @@ If you look at little children, **on balance**, they’re generally pretty happy
 > Do you need to walk 10,000 steps a day? How fast you walk may be as important as how much.  
 
 ### Economist Newsletter  
+
+If the country is winning the future, why are its investors so **glum**?  
 
 When more than half of the voters **live off** the State, no politician dares to touch spending, because cutting it means losing elections.  
 Everything is going wrong for Muhammad bin Salman. This is his **annus horribilis**.  
@@ -333,6 +332,8 @@ Saddam Hussein had been captured **skulking** in a **spider hole**. -
 
 ## Conversation  
 > Words I stumbled in real life or in media format that I can recall with an imagery.  
+
+Are you my **deadhead** to Miami?  
 
 Others find themselves years into **threadbare** marriages they actually should leave but don’t.   
 you might find yourself walking the streets with **unwarranted** fear, staying home instead of **venturing out**, and avoiding interactions with strangers—and voting for a **demagogue** with a tough-on-crime platform.  
