@@ -139,7 +139,7 @@ Manual labor was replaced in favor of systems, an organized union of distinct pa
 Nonetheless, each is primed for the challenge and honored by the **Pharaoh**'s **directive**.  
 Chuma, **engrossed** and **unfazed** by his brother's accusation **retorts**, “Azur, you're **short-sightedness** and thirst for wealth have clouded your vision. You build your pyramid and I will build mine.”  
 As Azur walks away, he **chides**, “You fool! Pharaoh will hang you in the **gallows** when he discovers your treason.”  
-Chuma **trolls up** the town square **commandeering** a 25-foot **contraption**, a towering machine built from a twisted maze of **gantries**, wheels, levers, and ropes. -    
+Chuma **trolls up** the town square **commandeering** a 25-foot **contraption**, a towering machine built from a twisted maze of **gantries**, wheels, levers, and ropes.   
 After a short **trawl** to Chuma's barren pyramid plot, Azur's suspicions are confirmed.   
 Chuma and his machine accomplish as much as Azur's three years of **toilsome** work.  
 Meanwhile, Azur continues to **dredge away** at the same old routine.  
@@ -157,7 +157,7 @@ The next few times I **chauffeured** the man, I **eavesdropped** on his conversa
 I **impugned** “compound interest” as an impotent wealth accelerator because of its attachment to time.  
 For compound interest to be effective, you must bypass 30 years of mathematical **ineptitude** by **riding the crest** where it is effective.  
 Oh, don't get your panties **in a wad**; I know the Law of Attraction sounds great and has practical applications.  
-Yes, these people are still trading their time for money, but in an unprecedented **stratum** of value. -    
+Yes, these people are still trading their time for money, but in an unprecedented **stratum** of value.   
 
 ## PART 6: Your Vehicle to Wealth–YOU  
 

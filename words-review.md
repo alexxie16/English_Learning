@@ -14,7 +14,6 @@ Saddam Hussein had been captured **skulking** in a **spider hole**. -
 ## words-Sep-26.md ##  
 words/2026/words-Sep-26.md  
 My face **scrunched** with rage when Cooper picked up his **pudgy** **round arms** to wave. -  
-The players sat there with **glum looks** on their faces. -  
 If you try to patch this **thingamajig** and that **thingamabob** that was introduced by the implementation of some TODO, you end up in situations like this. -  
 I know he's been **castigated** for being a, you know, a **profligate** **philanderer**. -  
 Locating, educating, and **remunerating** Bitcoin Open-Source Engineers in the Global South. -  
@@ -71,8 +70,6 @@ You ignored the tickle of logic in your brain. You are a victim of your own **ma
 A strategy that requires your life and your dreams to be paid as **penance** is **a sucker's bet**. -  
 Look no further than Friday night when people celebrate freedom as the Slowlane dictatorship takes a weekend **furlough**. -  
 Time is your **primordial** fuel and it should not be traded for money. -  
-Chuma **trolls up** the town square **commandeering** a 25-foot **contraption**, a towering machine built from a twisted maze of **gantries**, wheels, levers, and ropes. -  
-Yes, these people are still trading their time for money, but in an unprecedented **stratum** of value. -  
 Before they could even pursue flying, the Wright brothers had to break free of society's **natural headwind**-the natural social conditioning that **impregnates** all young minds. -  
 Time passes, dreams die, and what remains? An old **withered** body **forlorn** for what could have been. -  
 

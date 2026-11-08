@@ -108,7 +108,7 @@ One of the most **outspoken** and prolific programmers in the world.
 I'm not gonna let you **glom onto** my new hit show!  
 I’m not gonna let you **latch onto** my new hit show!  
 
-The players sat there with **glum looks** on their faces. -    
+The players sat there with **glum looks** on their faces.   
 
 ---  
 

@@ -193,7 +193,6 @@ Any orange-pilled **pleb** will tell you with conviction why bitcoin is the best
 Once you realize money is an idea of what is valuable, and that idea isn’t concrete. **You ponder**.  
 Gold has been deemed a **relic** by Bitcoiners, and stocks are proving to be volatile amid massive overprinting by the Federal Reserve.  
 
-**skulk**  
 **allegorically**  
 **beanie**  
 **soothsaying**  
