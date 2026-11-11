@@ -61,7 +61,7 @@ Would debt be a **noose** around your neck?
 
 A sunny, crowded Florida beach of **scantily** **clad**, well-tanned, **boozed-up** college **coeds**.  
 Our old Dodge Duster started **billowing** smoke and **clanked** to a stop.   
-Wealth **eludes** most people because they are **preoccupied** with events while **disregarding** process. -  
+Wealth **eludes** most people because they are **preoccupied** with events while **disregarding** process.   
 When a 20-year-old sells his Internet company for $ 30 million dollars, you read about it on a tech blog. The event is **lauded** and **showcased** **for all to admire**.  
 Successful Fastlane travelers are warriors who **live and die** on **rough roads**.  
 The person I needed to become would have been **dwarfed** because process would have been outsourced. There is no wisdom or personal growth gained in a journey that someone else does for you.  
@@ -115,7 +115,7 @@ Exposing Slowlane **Ineptitude**
 Time becomes the **lynchpin** for wealth that **congenitally** ties to the mathematical handicaps of mortality.   
 Unless you plan on living forever, this relationship is **dubiously** **foolhardy**.   
 To create explosive wealth fast, you must abandon the Slowlane formula and its **lecherous** relationship to time.   
-Time is your **primordial** fuel and it should not be traded for money. -    
+Time is your **primordial** fuel and it should not be traded for money.   
 Your time should not be an **expendable** resource for wealth because wealth itself is composed of time.  
 If an education **entombs** you under a mountain of debt and **shackles** you to a job for the rest of your life, is it really a good education?   
 Has your education **indentured** you to a job?  

@@ -52,9 +52,7 @@ Anything could happen, from an urgent email that **scuppers** your plans for the
 
 ## guide-to-good-life.md ##  
 book/guide-to-good-life.md  
-But more to the point, it seems unlikely that a Stoic will gain tranquility as a result of entertaining such thoughts. **To the contrary**, he is likely to end up **glum** and anxiety-ridden. -  
 The political correctness movement has some **untoward** side effects. -  
-Although ancient Romans normally went out in public wearing shoes and a **tunic**, Cato wore neither. -  
 
 ## bitcoin-standard.md ##  
 book/bitcoin-standard.md  
@@ -63,13 +61,11 @@ Blockchains with their own currency, such as Bitcoin, exist **orthogonally** to 
 ## millionaire-fastlane.md ##  
 book/millionaire-fastlane.md  
 All I can be is that creepy **munchkin** pointing off in the distance with a **stern** directive, “Follow the yellow brick road.” -  
-Wealth **eludes** most people because they are **preoccupied** with events while **disregarding** process. -  
 When you **plop your butt** on the recliner and **maul through** a can of **Pringles**, you choose pleasure now **in lieu of** pain later. -  
 An investment company had **bilked** millions of dollars from investors. -  
 You ignored the tickle of logic in your brain. You are a victim of your own **malfeasance**. -  
 A strategy that requires your life and your dreams to be paid as **penance** is **a sucker's bet**. -  
 Look no further than Friday night when people celebrate freedom as the Slowlane dictatorship takes a weekend **furlough**. -  
-Time is your **primordial** fuel and it should not be traded for money. -  
 Before they could even pursue flying, the Wright brothers had to break free of society's **natural headwind**-the natural social conditioning that **impregnates** all young minds. -  
 Time passes, dreams die, and what remains? An old **withered** body **forlorn** for what could have been. -  
 

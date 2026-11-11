@@ -16,7 +16,7 @@ Consider the person who has been reduced to possession of only a **loincloth**.
 Although they offer **downtrodden** people advice on how to make their existence more tolerable, the Stoics are **by no means** in favor of keeping these people in their state of **subjugation**.  
 But as children grow older, they **grow jaded**.   
 Those who come close to dying but subsequently revive typically regain their **zest** for living.  
-But more to the point, it seems unlikely that a Stoic will gain tranquility as a result of entertaining such thoughts. **To the contrary**, he is likely to end up **glum** and anxiety-ridden. -  
+But more to the point, it seems unlikely that a Stoic will gain tranquility as a result of entertaining such thoughts. **To the contrary**, he is likely to end up **glum** and anxiety-ridden.   
 In particular, he is likely to be **racked with** “if only” thoughts: “If only I had spent more time playing with her! If only I had told her more bedtime stories!  
 To practice negative visualization, after all, is to contemplate the **impermanence** of the world around us.  
 
@@ -67,7 +67,7 @@ By doing this, we can get this person to **mend** his ways with minimal disrupti
 ## FOURTEEN Personal Values: On Seeking Fame  
 
 **Furthermore**, you would have deprived him of the ability to upset you simply by failing to invite you to a **banquet**.  
-Although ancient Romans normally went out in public wearing shoes and a **tunic**, Cato wore neither. -    
+Although ancient Romans normally went out in public wearing shoes and a **tunic**, Cato wore neither.   
 Failures that any sensible person will want to avoid—those failures, for example, that result in death or **disfigurement**.  
 
 ## FIFTEEN Personal Values: On Luxurious Living  

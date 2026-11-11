@@ -22,6 +22,7 @@ xxx
 
 ## Words with Questions  
 
+Truculent  
 iconoclastic   
 
 mealy   
@@ -29,20 +30,12 @@ smirch
 
 brandish  
 gypsum  
-upbraid  
-iconoclastic  
 cajole  
 revel  
 
 psoriasis  
 coquette  
-pillory  
 
-throng  
-
-**clammy**  
-
-**calumnies**  
 
 ## Special Words  
 
@@ -62,6 +55,9 @@ throng
 
 **Smarmy, lickspittle, sycophant**,   
 
+**forebode, foresight, foreclose, forestall, forethought**,   
+**foreskin, foreground, foreshadow, forearm**,  
+
 **Indigo**  
 **halcyon, cyan**  
 
@@ -73,8 +69,15 @@ throng
 
 ## Regular Recordings  
 
-**forebode, foresight, foreclose, forestall, forethought**,   
-**foreskin, foreground, foreshadow, forearm**,  
+They were totally **smitten** with each other.   
+I said "You sure are" and quickly introduced myself lest he take offense to my **glib** remark and place a hex on me.  
+
+You're a grub in fancy arm.  
+PLEASE: Provide Legal Exculpation And Sign Everything.   
+
+
+'No way to move bytes' is the one thing FIPS can't **paper over**.  
+
 
 ### Week 45   
 
@@ -112,10 +115,61 @@ With an eye on America, China is **beefing up** its AI-controlled labs.
 
 ## Words Explain   
 
-humbug   
-marquee  
-smarmy  
-morose  
+upbraid  
+pillory  
+throng  
+**clammy**  
+**calumnies**  
+
+---  
+
+**Humbug**  
+   - **Definition**: Deceptive or pretentious language or behavior; nonsense or a trick.  
+   - **Common Usage**: Fairly uncommon in daily life but often encountered in literature or discussions about deceit.  
+   - **Examples**:  
+     - The salesman’s promise of a miraculous product was nothing but humbug.  
+     - “Bah, humbug!” declared Scrooge, dismissing the holiday spirit.  
+   - **Alternatives**: Nonsense, sham, fraud.  
+
+---  
+
+**Marquee**  
+   - **Definition**: A large tent used for outdoor events; also refers to a sign over the entrance of a theater or building, often containing the title of a show or event.  
+   - **Common Usage**: Commonly used in event planning or when discussing theaters; permanent canopy over an entrance of a hotel etc; also found in marketing contexts.  
+   - **Examples**:  
+     - The wedding took place under a beautifully decorated marquee in the garden.  
+     - The marquee at the theater displayed the names of the latest blockbuster movies.  
+   - **Alternatives**: Tent (often sumptuous tent), signboard, display.  
+
+---  
+
+**Smarmy**  
+   - **Definition**: Excessively flattering or ingratiating; insincere charm.  
+   - **Common Usage**: Somewhat common in conversations when discussing behavior or personality, often with a negative connotation.  
+   - **Examples**:  
+     - His smarmy compliments made everyone feel uneasy about his intentions.  
+     - The politician had a smarmy demeanor that turned off many voters.  
+   - **Alternatives**: Sycophantic, insincere, ingratiating.  
+
+---  
+
+**Morose**  
+   - **Definition**: Gloomy or sullen, often in a manner that is withdrawn or unhappy.  
+   - **Common Usage**: Fairly common in discussions about mood, personality, or emotional state.  
+   - **Examples**:  
+     - After hearing the bad news, he became morose and didn’t want to talk to anyone.  
+     - The morose atmosphere of the room was palpable.  
+   - **Alternatives**: Sullen, gloomy, despondent.  
+
+---  
+
+**Prosaic**  
+   - **Definition**: Lacking poetic beauty; commonplace or unromantic; dull.  
+   - **Common Usage**: Somewhat common in literary contexts when discussing writing styles or descriptions.  
+   - **Examples**:  
+     - The prosaic details of the report made it difficult to stay engaged.  
+     - His prosaic approach to storytelling failed to capture the audience’s imagination.  
+   - **Alternatives**: Mundane, ordinary, pedestrian.  
 
 ---  
 
@@ -190,3 +244,5 @@ We have beaks, we can swim, instead of **scrounging off** of others, you know, m
 ## Interesting  
 > Interesting, vivid, absurd, sensational words in sentences.  
 
+Wealth **eludes** most people because they are **preoccupied** with events while **disregarding** process.  
+Time is your **primordial** fuel and it should not be traded for money.   
